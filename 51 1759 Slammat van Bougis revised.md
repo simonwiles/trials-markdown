@@ -38,8 +38,8 @@ In my presence, \[signed\] J.J. le Sueur, secretary.
 
 [^2]: See 1717 Aaron van Bengalen, n. 1.** **
 
-[^3]: This is the only testimony collected by the landdrost of Stellenbosch, and since Slammat had run away, the case was not sent to the Council of Justice. 
+[^3]: This is the only testimony collected by the landdrost of Stellenbosch, and since Slammat had run away, the case was not sent to the Council of Justice.
 
 [^4]:  A fairly common term of abuse in eighteenth-century Cape documents, denoting a low-life person, from French *canaille* (scoundrel) (Boshoff & Nienaber 1967: 331).
 
-[^5]:  Meaning that the horse’s legs were tied very loosely, in such a way that it could still graze, but not run away. 
+[^5]:  Meaning that the horse’s legs were tied very loosely, in such a way that it could still graze, but not run away.

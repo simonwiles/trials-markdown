@@ -306,9 +306,9 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 
 [^1]: Slave arsonists caused serious damage in Cape Town in 1736 and 1798, and in Stellenbosch in 1710. For discussion of arson as a form of slave resistance, see Worden 1985: 132-33; Ross 1983: 54-5; Heese 1994: 102-4 and Shell 1994: 265-84. Shell argues that fear of slave arson influenced vernacular architecture, with restrictions on the use of thatched roofs in Cape Town and the design of special *brandzolderen* (fire ceilings) in rural houses. For other examples of arson, see 1706 Ari; 1736 Table Valley Slaves; 1742 Fortuijn van Bengalen; 1759 Slammat van Boegies and 1794 Abraham van Macassar.
 
-[^2]: For example, *Kaapse Plakkaatboek* II: 52-3 and 62-3 (1715), 125 (1727), 160-61 (1735), 191 (1740), 196-97 (1741). 
+[^2]: For example, *Kaapse Plakkaatboek* II: 52-3 and 62-3 (1715), 125 (1727), 160-61 (1735), 191 (1740), 196-97 (1741).
 
-[^3]: See 1744 Barkat van Timor, n. 2 for discussion of this phenomenon. 
+[^3]: See 1744 Barkat van Timor, n. 2 for discussion of this phenomenon.
 
 [^4]:  It appears as if the scribe changed what he was going to write halfway through the sentence: the phrase ‘door zijns meester stiefzoon Gerrit Mos’ is essentially the same as ‘van hem Mos’ – perhaps he meant to have written that Aaron was beaten *by* Mos, but instead wrote that Aaron received blows *from* Mos.
 
@@ -318,4 +318,4 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 
 [^7]:  The *eijsch* recommended that Aaron be burnt alive ‘tot spectakel en afschrik van anderen’ (as a spectacle and deterrent to others), CJ 321, document 6, but in the event the sentence was changed to that recorded here, CJ 6 \[1717\], ff. 114-15. Such a fate is described by Mentzel: ‘A more painful death is by a process of slow strangulation, while a “kaffir” holds a bundle of burning reeds close to the face’ (1925: 133). The punishment was grimly appropriate for arsonists, those who had played with fire. For a similar case, see 1724 Andries van Ceijlon.
 
-[^8]:  Cotton was not produced at the Cape, but Aaron’s blanket was most likely a so-called *palempoer*, a thin blanket padded with cotton (like a quilt), commonly used in the East Indies and imported to the Cape for use by both slaves and colonists (see Schoeman 2001: 43 and 416) . 
+[^8]:  Cotton was not produced at the Cape, but Aaron’s blanket was most likely a so-called *palempoer*, a thin blanket padded with cotton (like a quilt), commonly used in the East Indies and imported to the Cape for use by both slaves and colonists (see Schoeman 2001: 43 and 416) .

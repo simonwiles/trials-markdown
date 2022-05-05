@@ -140,6 +140,6 @@ Thus examined, in the presence of the aforesaid *heemraden* at the Stellenbosch 
 
 In my presence, \[signed\] Jan Mahieu, secretary.
 
-[^1]: The case was not considered serious enough to send to the Council of Justice (there is no mention of it in the *regtsrollen*, CJ 4, or Documents in Criminal Cases, CJ 308), and so was presumably dealt with by the landdrost in Stellenbosch. This testimony is a single fragment which survived by chance in the Stellenbosch archive, bound in the front of a volume of other testimonies from the 1740s. 
+[^1]: The case was not considered serious enough to send to the Council of Justice (there is no mention of it in the *regtsrollen*, CJ 4, or Documents in Criminal Cases, CJ 308), and so was presumably dealt with by the landdrost in Stellenbosch. This testimony is a single fragment which survived by chance in the Stellenbosch archive, bound in the front of a volume of other testimonies from the 1740s.
 
-[^2]:  It might be significant that Cinna ran away on a Sunday, when slaves were at least theoretically supposed to have a free day, although most farmers ignored the fact (Kolb 1777, vol. II: 306 and 309; Mentzel 1925: 124; Biewenga 1999: 203-4, 206; De Kock 1950: 61). For other examples in this volume, see 1719 Jonas van Manado; 1761 Johan Spring in ’t Veld; and 1775 Jephta van Madagascar. 
+[^2]:  It might be significant that Cinna ran away on a Sunday, when slaves were at least theoretically supposed to have a free day, although most farmers ignored the fact (Kolb 1777, vol. II: 306 and 309; Mentzel 1925: 124; Biewenga 1999: 203-4, 206; De Kock 1950: 61). For other examples in this volume, see 1719 Jonas van Manado; 1761 Johan Spring in ’t Veld; and 1775 Jephta van Madagascar.

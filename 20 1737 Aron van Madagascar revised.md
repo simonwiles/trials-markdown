@@ -42,11 +42,11 @@ Let the sentence be done, \[signed\] J. de la Fontaine.
 
 In my presence, \[signed\] Js. de Grandpreez, secretary.
 
-[^1]: A community of runaway slaves existed at Hangklip, on the southernmost point of False Bay, throughout the eighteenth century, where they were well positioned to evade Company commandos. However, they were dependent for food on raiding wagons coming over the nearby mountain passes, or else by obtaining supplies from sympathetic slaves or by raiding nearby farms. Often they were captured during such raids. For the fullest account of the Hangklip maroons, see Ross 1983: 54-72, who mentions this case on pp. 57 and 66-7. For other cases involving them, see 1785 Spadilje van Siam; 1786 Job van Madagascar; and 1786 October van Madagascar. 
+[^1]: A community of runaway slaves existed at Hangklip, on the southernmost point of False Bay, throughout the eighteenth century, where they were well positioned to evade Company commandos. However, they were dependent for food on raiding wagons coming over the nearby mountain passes, or else by obtaining supplies from sympathetic slaves or by raiding nearby farms. Often they were captured during such raids. For the fullest account of the Hangklip maroons, see Ross 1983: 54-72, who mentions this case on pp. 57 and 66-7. For other cases involving them, see 1785 Spadilje van Siam; 1786 Job van Madagascar; and 1786 October van Madagascar.
 
 [^2]: Aron’s confession is available in CJ 341, ff. 104-6. The only other documentation presented to the Council was the *eijsch* (CJ 341, ff. 100-3).
 
-[^3]: It is not clear whether this was personal disgust or a cultural difference. 
+[^3]: It is not clear whether this was personal disgust or a cultural difference.
 
 [^4]: For other cases involving such interactions, see 1735 Company slaves; 1760 Achilles van de West Cust et al.; and 1786 October van Madagascar et al.
 
@@ -56,4 +56,4 @@ In my presence, \[signed\] Js. de Grandpreez, secretary.
 
 [^7]:  This refers to the region of Southeast Africa, roughly modern Maputo, where the Company had a trading post until 1731 (Shell 2001).
 
-[^8]:  Aron was sentenced ‘in cas van aufugie en gedaane asistentie aan een gewapende troep gaauwdieven’ (on the charge of being fugitive and having given assistance to an armed troop of rogues), CJ 19, ff. 28-30. This sentence was that recommended by the Fiscal in the *eijsch*, CJ 341, ff. 102v-3. 
+[^8]:  Aron was sentenced ‘in cas van aufugie en gedaane asistentie aan een gewapende troep gaauwdieven’ (on the charge of being fugitive and having given assistance to an armed troop of rogues), CJ 19, ff. 28-30. This sentence was that recommended by the Fiscal in the *eijsch*, CJ 341, ff. 102v-3.

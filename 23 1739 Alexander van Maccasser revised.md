@@ -52,7 +52,7 @@ In my presence, \[signed\] D.G. Carnspek, secretary.
 
 [^1]: The *sententie* given here summarises the case from the testimonies of Abraham Decker and those of his slaves: Alexander van Maccasser (incorrectly named Alexander van Madagascar, an indication of the untrustworthiness of slave toponyms), Diana van de Caab, Candace van de Caab, Galant van Samboua and Fortuijn van Bengalen, given in CJ 344, vol. 6, ff. 631-48.*^*\ ^
 
-[^2]: The description of the layout of rooms indicate that this was an early townhouse of a type of which no examples survive today. It seems to have included a *voorhuijs* entered directly from the street, another front room in which the owners were eating, a kitchen with a hearth, a small upper room and possibly a rear scullery or pantry. These were linked by the *galderij*, which appears to have been a linking passageway rather than, as in later Cape houses, a room behind the *voorhuijs* in which people ate and sat. We are grateful to Antonia Malan for this information. 
+[^2]: The description of the layout of rooms indicate that this was an early townhouse of a type of which no examples survive today. It seems to have included a *voorhuijs* entered directly from the street, another front room in which the owners were eating, a kitchen with a hearth, a small upper room and possibly a rear scullery or pantry. These were linked by the *galderij*, which appears to have been a linking passageway rather than, as in later Cape houses, a room behind the *voorhuijs* in which people ate and sat. We are grateful to Antonia Malan for this information.
 
 [^3]:  For three lines, the end of the page is slightly damaged; what it presumably once read is provided here in square brackets
 
@@ -60,4 +60,4 @@ In my presence, \[signed\] D.G. Carnspek, secretary.
 
 [^5]:  One Amsterdam *aam* (aum) is the equivalent of about 154 litres.
 
-[^6]:  This sentence was recorded in the *regtsrollen*, CJ 21, ff. 84-5. 
+[^6]:  This sentence was recorded in the *regtsrollen*, CJ 21, ff. 84-5.

@@ -90,4 +90,4 @@ In my presence, \[signed\] J.P. Faure, secretary.
 
 [^3]:  This did not have a racial connotation: Rosetta was ‘van de Caab’. By the 1790s, the word ‘African’ was being used to describe both slaves and settlers who were born at the Cape: by the late eighteenth century there was a growing creolised slave population. It is noteworthy that a slave who was not from the Cape noticed and described Rosetta in this way, perhaps an indication of the existence of different ethnic identities amongst slaves (compare 1763 Christina Strang, n. 6).
 
-[^4]:  Domus had been chief surgeon at the Cape until his retirement in 1787 (Leibbrandt 1905: 399 and 403-4). 
+[^4]:  Domus had been chief surgeon at the Cape until his retirement in 1787 (Leibbrandt 1905: 399 and 403-4).

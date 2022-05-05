@@ -232,12 +232,12 @@ Approved, \[signed\] Js. de Grandpreez.
 
 [^1]: See Ross 1983: 57-8 and Worden 1998/9: 86-7. For other examples in this volume, see 1737 Aron van Madagascar; 1755 Januarij van Bougies; 1760 Achilles van de West Cust et al.; 1786 Job van Madagascar et al.
 
-[^2]: Kinsa van Madagascar was caught earlier and was sentenced on 4 November 1734 to be publicly whipped and branded and to work in chains on the Company works for twenty years, CJ 16, ff. 60-1 (his testimony was copied for the court in the later case, CJ 339, ff. 187-88). Claas was convicted together with his fellow slaves, Valentijn van de Caab, Marre de klijne van Madagasacar and David van de Caab, all of them Company-owned slaves. The first three were sentenced to be publicly whipped, branded and to work in chains for ten years, while David received a whipping and five years’ work in chains, CJ 17, ff. 44-5. The *eijsch *and testimonies from all of them are given in CJ 339, ff. 166-80 and testimonies were also collected from the soldiers Jan Plat and Hendrik Mels and from Januarij van Madagascar, ff. 181-86. 
+[^2]: Kinsa van Madagascar was caught earlier and was sentenced on 4 November 1734 to be publicly whipped and branded and to work in chains on the Company works for twenty years, CJ 16, ff. 60-1 (his testimony was copied for the court in the later case, CJ 339, ff. 187-88). Claas was convicted together with his fellow slaves, Valentijn van de Caab, Marre de klijne van Madagasacar and David van de Caab, all of them Company-owned slaves. The first three were sentenced to be publicly whipped, branded and to work in chains for ten years, while David received a whipping and five years’ work in chains, CJ 17, ff. 44-5. The *eijsch *and testimonies from all of them are given in CJ 339, ff. 166-80 and testimonies were also collected from the soldiers Jan Plat and Hendrik Mels and from Januarij van Madagascar, ff. 181-86.
 
-[^3]: That is, two *stuijvers*. 
+[^3]: That is, two *stuijvers*.
 
 [^4]:  See 1739 Jurgen Scholts et al., n. 5 on this.
 
 [^5]:  In this context, ‘de Caab’ refers to Cape Town.
 
-[^6]:  For a discussion of this, see 1738 Pieter Coridon, n. 2. 
+[^6]:  For a discussion of this, see 1738 Pieter Coridon, n. 2.

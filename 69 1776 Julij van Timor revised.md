@@ -106,7 +106,7 @@ In my presence, \[signed\] C.L. Neethling, secretary.
 
 [^1]:  Julij gave his name as Julij van Boegies in his interrogation, CJ 410, f. 305, article 1, and was referred to as such in the *regtsrollen* and the *sententie*, but in all of the documentation in the Stellenbosch landdrost archive he is consistently called Julij van Timor. This is an indication of the inconsistency of slave toponyms.
 
-[^2]: In his interrogation, Julij stated that he worked as a blacksmith on the Ehlers farm, CJ 410, f. 305, article 1 and this explains why he was sold on approval. Presumably his skills as a smith needed to be tested and proved. Artisans at the Cape often had slaves with particular skills (Shell 1994: 164-65, and see 1719 Jonas van Manado and 1757 Baatjoe van Mandhaar for other examples). On the hiring of artisan slaves, see De Kock 1950: 57-8, Schoeman 2001: 585-86; and 1794 Abraham van Maccassar, n. 5. 
+[^2]: In his interrogation, Julij stated that he worked as a blacksmith on the Ehlers farm, CJ 410, f. 305, article 1 and this explains why he was sold on approval. Presumably his skills as a smith needed to be tested and proved. Artisans at the Cape often had slaves with particular skills (Shell 1994: 164-65, and see 1719 Jonas van Manado and 1757 Baatjoe van Mandhaar for other examples). On the hiring of artisan slaves, see De Kock 1950: 57-8, Schoeman 2001: 585-86; and 1794 Abraham van Maccassar, n. 5.
 
 [^3]: It is interesting that he ran away to Cape Town rather than into the interior. By the later eighteenth century, Cape Town was becoming a larger community in which runaways might hope to conceal themselves and obtain shelter (particularly if they had kin or friends there), although this phenomenon only became marked in the earlier nineteenth century, Worden 1994: 37-8.
 
@@ -128,4 +128,4 @@ In my presence, \[signed\] C.L. Neethling, secretary.
 
 [^12]:  On the night before he was taken prisoner, Julij went to the house of his previous owner, Coenraad Eb, in Cape Town and told one of the slaves there that he had done *quaad* (literally ‘evil’ or ‘bad’) on his owner’s farm and had stabbed the *knecht* and the son of his owner. He added, however, that he did not mean to harm them, but wanted only to have hurt his *baas*, CJ 410, ff. 296-97, testimony of Johan Ehlers, 13 May 1776.
 
-[^13]:  This was the sentence called for in the *eijsch *and it was recorded in the *regtsrollen *on 1 August, CJ 58, ff. 24-5. It is not clear why it was not executed until 10 August, since punishments were usually administered within two days of sentencing. 
+[^13]:  This was the sentence called for in the *eijsch *and it was recorded in the *regtsrollen *on 1 August, CJ 58, ff. 24-5. It is not clear why it was not executed until 10 August, since punishments were usually administered within two days of sentencing.

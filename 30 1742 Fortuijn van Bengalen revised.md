@@ -98,9 +98,9 @@ Thus verified on the farm of the aforementioned burgher Pieter van Taak on 27 De
 
 Which I declare, \[signed\] A. Schephausen, secretary.
 
-[^1]: The documents in this case also include the *eijsch* and testimonies by Fortuijn van Bengalen, and the farmers Pieter Venter and Pieter Loubser (CJ 347, ff. 1-19).* *Christijn van de Caab’s testimony is included here for the details it gives of the problems in her relationship with Fortuijn. These initial testimonies are recorded in the Stellenbosch district records, 1/STB 3/8. 
+[^1]: The documents in this case also include the *eijsch* and testimonies by Fortuijn van Bengalen, and the farmers Pieter Venter and Pieter Loubser (CJ 347, ff. 1-19).* *Christijn van de Caab’s testimony is included here for the details it gives of the problems in her relationship with Fortuijn. These initial testimonies are recorded in the Stellenbosch district records, 1/STB 3/8.
 
-[^2]: This may, of course, have been a convenient excuse on her part. 
+[^2]: This may, of course, have been a convenient excuse on her part.
 
 [^3]:  *Sic* for Osnabrück.
 
@@ -108,4 +108,4 @@ Which I declare, \[signed\] A. Schephausen, secretary.
 
 [^5]:  This sentence was recommended in the *eijsch*, CJ 347, f. 8v* *and recorded in the *regtsrollen*, CJ 24, ff. 1-2. The significance of an iron pot as a symbol of arson is unclear. Fortuijn’s burning alive was observed by Francis d’Abbadie, a visiting French captain, who commented that ‘he was not long in pain, as he was Presently suffocated by the fiersness \[*sic*\] of the flames’, Boucher 1982: 75-6.
 
-[^6]:  *Sic* for Osnabrück. 
+[^6]:  *Sic* for Osnabrück.

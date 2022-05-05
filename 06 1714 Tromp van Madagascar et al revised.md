@@ -394,9 +394,9 @@ As also pronounced and executed on the 6^th\ ^thereupon.
 
 In my presence, \[signed\] Dl. Thibault, secretary.
 
-[^1]: CJ 318, ff. 6-174. Here we reproduce the *sententie*, which summarises the events, and the interrogation of Thomas van Bengalen, one of the eleven runaways, which gives some intriguing details of the methods adopted by the group. The documentation for the case also includes the interrogations of all of the slaves involved, as well as the testimony of Jan Hendrick Munch, the soldier who led the Company troops against them. 
+[^1]: CJ 318, ff. 6-174. Here we reproduce the *sententie*, which summarises the events, and the interrogation of Thomas van Bengalen, one of the eleven runaways, which gives some intriguing details of the methods adopted by the group. The documentation for the case also includes the interrogations of all of the slaves involved, as well as the testimony of Jan Hendrick Munch, the soldier who led the Company troops against them.
 
-[^2]: In this context, it means the rate by which slaves were locally-born rather than imported. 
+[^2]: In this context, it means the rate by which slaves were locally-born rather than imported.
 
 [^3]: For this shift in the nature of slave resistance in the Atlantic colonial world, see Genovese 1979, and, for the Cape, Ross 1983. Ross discusses this episode on pp. 41-2. Penn 1999: 73-99 provides the fullest analysis of runaway slaves on the Cape frontier.
 
@@ -420,4 +420,4 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 
 [^13]:  Jantje was part of the Dutch contingent which had come out to capture the slaves and may have been acting as a guide.
 
-[^14]:  These sentences were recorded in the *regtsrollen*, CJ 5, ff. 8-9 \[1714\]. 
+[^14]:  These sentences were recorded in the *regtsrollen*, CJ 5, ff. 8-9 \[1714\].

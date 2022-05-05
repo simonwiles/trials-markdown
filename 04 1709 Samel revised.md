@@ -40,12 +40,12 @@ As delegates, \[signed\] Jan Botma, D. Coetse.
 
 In my presence, \[signed\] Jan Mahieu, secretary.
 
-[^1]: This case is discussed by Biewenga (1999: 110) as an example of loyalty by slaves, a topic which is often overlooked because of the nature of the criminal records. For another case of slaves who refused to run away, see 1726 Scipio van de Cust. 
+[^1]: This case is discussed by Biewenga (1999: 110) as an example of loyalty by slaves, a topic which is often overlooked because of the nature of the criminal records. For another case of slaves who refused to run away, see 1726 Scipio van de Cust.
 
-[^2]: This might be a spelling alternative for Samuel which, like other Biblical names, was relatively commonly given to slaves. 
+[^2]: This might be a spelling alternative for Samuel which, like other Biblical names, was relatively commonly given to slaves.
 
-[^3]: Malagasy slaves were particularly prone to escape into the interior, believing that they could reach Madagascar by travelling overland, Alpers 2004: 59, Armstrong & Worden 1989: 157. The mutiny by Malagasy slaves aboard the *Meermin* in 1766 provides a good example of how slaves from the island believed they were within reach of home (see Alexander 2004). Such an option was not open to slaves who had been transported across the Indian Ocean from South or Southeast Asia. 
+[^3]: Malagasy slaves were particularly prone to escape into the interior, believing that they could reach Madagascar by travelling overland, Alpers 2004: 59, Armstrong & Worden 1989: 157. The mutiny by Malagasy slaves aboard the *Meermin* in 1766 provides a good example of how slaves from the island believed they were within reach of home (see Alexander 2004). Such an option was not open to slaves who had been transported across the Indian Ocean from South or Southeast Asia.
 
-[^4]: The *regtsrollen* and documents in criminal cases for 1709 make no mention of a slave named Samel (CJ 5 and CJ 313). 
+[^4]: The *regtsrollen* and documents in criminal cases for 1709 make no mention of a slave named Samel (CJ 5 and CJ 313).
 
-[^5]:  For an explanation of this, see the Introduction above, p. XX. 
+[^5]:  For an explanation of this, see the Introduction above, p. XX.

@@ -84,4 +84,4 @@ Exhibit in court, 26 April 1736.
 
 [^5]:  On the function and composition of this body, see 1738 Pieter Coridon, n. 2.
 
-[^6]:  Or linesman. *Vlaggeman* usually means the commander of a squadron but here is meant the house (or even just hut) of the person(s) responsible for giving warning of approaching ships. According to Haafner (1992: 70), the hut was about two-thirds of the way up Lion’s Head. There was another ‘flagman’ at Signal Hill (Worden et al. 1998: 53). 
+[^6]:  Or linesman. *Vlaggeman* usually means the commander of a squadron but here is meant the house (or even just hut) of the person(s) responsible for giving warning of approaching ships. According to Haafner (1992: 70), the hut was about two-thirds of the way up Lion’s Head. There was another ‘flagman’ at Signal Hill (Worden et al. 1998: 53).

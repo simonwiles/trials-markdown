@@ -140,13 +140,13 @@ Your honourable *juffrouw*’s[^14] obedient slave gives notice, with all humili
 
 Which I do, etc.
 
-[^1]: This was particularly the case when widows freed slaves after their husbands’ death, Elphick & Shell 1989: 208-9. On slave manumission during the eighteenth century in general, see Worden 1985: 143-45; Elphick & Shell 1989; and Shell 1994: 371-94. 
+[^1]: This was particularly the case when widows freed slaves after their husbands’ death, Elphick & Shell 1989: 208-9. On slave manumission during the eighteenth century in general, see Worden 1985: 143-45; Elphick & Shell 1989; and Shell 1994: 371-94.
 
-[^2]: The documentation also includes the *eijsch* and the interrogation of Jonas, the substance of which was incorporated into the *sententie*, CJ 323, ff. 507-43. 
+[^2]: The documentation also includes the *eijsch* and the interrogation of Jonas, the substance of which was incorporated into the *sententie*, CJ 323, ff. 507-43.
 
-[^3]: Slaves were supposed to have a rest day on Sundays, but it seems as if in practice only Company slaves could be sure of this, while privately owned slaves were dependent on the whims of their owners. See 1705 Cinna, n. 2. 
+[^3]: Slaves were supposed to have a rest day on Sundays, but it seems as if in practice only Company slaves could be sure of this, while privately owned slaves were dependent on the whims of their owners. See 1705 Cinna, n. 2.
 
-[^4]: There is no evidence of who this might have been, but the style suggests that it was not somebody used to writing formal documents. For another case of slaves getting letters written for them by a burgher schoolchild, see 1786 Augustus van de Caab et al. 
+[^4]: There is no evidence of who this might have been, but the style suggests that it was not somebody used to writing formal documents. For another case of slaves getting letters written for them by a burgher schoolchild, see 1786 Augustus van de Caab et al.
 
 [^5]: For another case concerning Cape Town artisans, see 1757 Baatjoe van Mandhaar.
 
@@ -168,4 +168,4 @@ Which I do, etc.
 
 [^14]:  This is a very literal translation. Scholtz (1963: 64-7 and 74-7) has shown that the eighteenth-century *UE.* (the abbreviation of ‘u Edele’, your honourable) developed into the formal Afrikaans second person pronoun *u*, and therefore the usage here might simply be an attempt to say: ‘you, *juffrouw*’, in the same way that Jonas refers to himself as ‘he, the suppliant’.
 
-[^15]:  The original has the male form of the pronoun, but it clearly has to refer to Jonas’s mistress. It is likely that this may reflect a feature of the sort of Dutch many slaves spoke, as the use of male pronouns for all genders is quite common in certain second-language varieties. For another example, see the sentence uttered by Claas in 1744 Claas van Bengalen and Augustus van Mallebaar. 
+[^15]:  The original has the male form of the pronoun, but it clearly has to refer to Jonas’s mistress. It is likely that this may reflect a feature of the sort of Dutch many slaves spoke, as the use of male pronouns for all genders is quite common in certain second-language varieties. For another example, see the sentence uttered by Claas in 1744 Claas van Bengalen and Augustus van Mallebaar.

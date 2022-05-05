@@ -90,10 +90,10 @@ In the Castle of Good Hope, the date as before.
 
 In my presence, \[signed\] Js. de Grandpreez, secretary.
 
-[^1]: The fiscal cites article 82 of the general *plakkaat* of 1727 (*Kaapse Plakkaatboek *II: 126-27), but this case is equally about contravening article 51 of the same *plakkaat* (*Kaapse Plakkaatboek* II: 119), which prohibited ‘zamenrottinge’ or gatherings of slaves. See also 1736 Table Valley slaves, n. 2. 
+[^1]: The fiscal cites article 82 of the general *plakkaat* of 1727 (*Kaapse Plakkaatboek *II: 126-27), but this case is equally about contravening article 51 of the same *plakkaat* (*Kaapse Plakkaatboek* II: 119), which prohibited ‘zamenrottinge’ or gatherings of slaves. See also 1736 Table Valley slaves, n. 2.
 
 [^2]:  The *ratelwacht *was the ‘watchmen’ and *burgherwacht* the ‘town militia’. There were two night watchmen who were under the command of the Burgher Council, and whose name stemmed from the rattles that they carried to sound alarms of fire or other dangers. The town *burgerwacht*, established in 1686, was made up of male burghers between the age of 16 and 60 who lived in and around the settlement. Each had to perform duty about once a month keeping order during the night, although this was often done through proxies, Botha 1962, vol. I: 161-63; *Kaapse Plakkaatboek* I: 220, 236-38 and 241-42, and Mentzel 1921: 66. For the *burgerwacht* in operation, see 1736 Table Valley slaves.
 
 [^3]:  The Council of Justice was similar in its make-up to the Council of Policy, except that in court cases (both criminal and civil) in which burghers or slaves were tried, two ‘burgher councillors’ joined the Council of Justice. These councillors were elected annually, and election conferred a great marker of status. In the 1780s the number of burgher councillors was increased to six (De Wet 1981: 180-83; Visagie 1969: 41-4).
 
-[^4]:  On slave-ownership by free blacks, see 1785 Spadilje van Siam, n. 2. 
+[^4]:  On slave-ownership by free blacks, see 1785 Spadilje van Siam, n. 2.

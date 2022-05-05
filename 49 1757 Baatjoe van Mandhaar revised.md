@@ -52,11 +52,11 @@ Let the execution be done, \[signed\] R. Tulbagh.
 
 [^1]: Modern Mandar on the south-west coast of Sulawesi. It seems likely that this is the same slave as the one with this name in 1751 Januarij van Boegies et al.
 
-[^2]: The documentation in this case also includes the *eijsch, *testimonies of Broderik, the *geweldiger*, Huijsheer, Baatjoe and two doctors’ reports, CJ 369, ff. 502-25. 
+[^2]: The documentation in this case also includes the *eijsch, *testimonies of Broderik, the *geweldiger*, Huijsheer, Baatjoe and two doctors’ reports, CJ 369, ff. 502-25.
 
 [^3]: The *geweldiger*, Jan Jacob Doeksteen, stated that he had been called to Broderik’s house because one of the slaves ‘amok maakte’ (was running *amok*), CJ 369, f. 511). For *amok*, see 1744 Barkat van Timor, n. 3.
 
-[^4]: The *geweldiger* arrived at the house when called to do so by Broderik, and brought with him eight *caffers*,* *whom he commanded during the operation*, *CJ 369, ff. 511-15. For the *caffers* and their role, see 1719 Jonas van Manado, n. 13. 
+[^4]: The *geweldiger* arrived at the house when called to do so by Broderik, and brought with him eight *caffers*,* *whom he commanded during the operation*, *CJ 369, ff. 511-15. For the *caffers* and their role, see 1719 Jonas van Manado, n. 13.
 
 [^5]:  According to other testimonies in this case, Baatjoe was sick and was waiting for medication from the doctor (CJ 369 f. 507v). Baatjoe stated in his interrogation that he refused to come down because he heard his owner say that he was lazy and that he wanted to beat him to death, CJ 369, ff. 519 and 522v.
 
@@ -68,4 +68,4 @@ Let the execution be done, \[signed\] R. Tulbagh.
 
 [^9]:  The fire-gable (*brandgeevel) *was the central gable above the front door which prevented burning thatch from falling on people escaping from the house, or from scorching the front door. It usually also included windows which let light into the attic. We are grateful to Antonia Malan for this information.
 
-[^10]:  The charge of attack on Baatjoe’s owner, the *burgerwacht*, servants of the court and other persons, as well as the wounding of two servants and the burgher Frederick Huijsheer and the sentence, was recorded in the *rollen*, CJ 39, ff. 117-20. In his cross-examination, Baatjoe stated that he knew he had done wrong but that ‘ik kan het niet helpen, en laat het aan de groote heeren over’ (I cannot help it and I leave it in the hands of the important lords), CJ 369, f. 522v. 
+[^10]:  The charge of attack on Baatjoe’s owner, the *burgerwacht*, servants of the court and other persons, as well as the wounding of two servants and the burgher Frederick Huijsheer and the sentence, was recorded in the *rollen*, CJ 39, ff. 117-20. In his cross-examination, Baatjoe stated that he knew he had done wrong but that ‘ik kan het niet helpen, en laat het aan de groote heeren over’ (I cannot help it and I leave it in the hands of the important lords), CJ 369, f. 522v.

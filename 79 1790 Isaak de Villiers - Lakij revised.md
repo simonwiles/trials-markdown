@@ -46,4 +46,4 @@ With my cognisance, \[signed\] J.P. Faure, secretary.
 
 [^1]: The children of female slaves were also slaves, the property of their mothers’ owners. They could be sold at any age at their owners’ will, although in practice most were kept with their mothers until they were at least of an age to be of greater value. They were defined as children in the *opgaaf* tax returns until the age of 16 for boys and 14 for girls (reflecting the primacy given to child-bearing for women and to labour for men). They worked with the women and other slaves during peak labour periods, and were also, as in this case, used when older as child-minders or for domestic jobs around the house or farm. See Mentzel 1925: 90 and Worden 1985: 88.
 
-[^2]: The case was not sent to the Council of Justice.  
+[^2]: The case was not sent to the Council of Justice.

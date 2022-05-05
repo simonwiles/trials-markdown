@@ -54,10 +54,10 @@ In the Castle of Good Hope, the date as above.
 
 In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-[^1]: There is no further documentation on this case in the Documents in Criminal Cases series of the CJ series. 
+[^1]: There is no further documentation on this case in the Documents in Criminal Cases series of the CJ series.
 
 [^2]:  See 1707 Jan de Thuilot, n. 10.
 
 [^3]:  Gouverneur Generaal* *belonged to the Chamber of Delft and stopped in Cape Town on its way back from Batavia from 9 to 27 May 1751. Some 40 sailors had died on the voyage and Jacob was doubtless welcomed as one of the 26 new men that were taken on at the Cape, Bruijn et al. 1979, vol. III: 398-99.
 
-[^4]:  Brouwer belonged to the Chamber of Enkhuizen and sailed from Texel on 19 December 1751, arriving at the Cape on 11 April 1752, after a brief stay in Santiago. The ship was also found to contain two women dressed as soldiers, Bruijn et al. 1979, vol. II: 536-37. There is no record of Jacobus Claasz, in the *scheepsoldijboek* of the Brouwer (VOC 13993) but this might be explained by the fact that employees with the toponym ‘van de Caab’ were not listed in the muster rolls with the names of incoming ship registers. 
+[^4]:  Brouwer belonged to the Chamber of Enkhuizen and sailed from Texel on 19 December 1751, arriving at the Cape on 11 April 1752, after a brief stay in Santiago. The ship was also found to contain two women dressed as soldiers, Bruijn et al. 1979, vol. II: 536-37. There is no record of Jacobus Claasz, in the *scheepsoldijboek* of the Brouwer (VOC 13993) but this might be explained by the fact that employees with the toponym ‘van de Caab’ were not listed in the muster rolls with the names of incoming ship registers.

@@ -1,4 +1,4 @@
-# ARI[^1] 
+# ARI[^1]
 
 *This account of the experiences of the slave Ari is reported by one of his fellow prisoners, the free burgher Jacobus van der Heijden.[^2] Ari’s story is revealing on several counts.[^3] It is one of the very few sources which gives an indication – however fleeting – of how a Cape slave had originally been captured in Asia. It then gives insights into the tense relationship between a lone deserter and other slave runaways he encountered, in which competition for food and rivalries over leadership played a part. Some details are given on how arson, a frequent means of slave resistance, was carried out.[^4] The text is also of great linguistic interest, since the reported words of the slaves provide some of the earliest forms of the restructuring of Dutch at the Cape which eventually resulted in the formation of Afrikaans.*
 
@@ -38,7 +38,7 @@ With my cognisance, \[signed\] A. Poulle, secretary.
 
 [^1]: In other documentation for this case, Ari is named ‘van Bengalen’ but, as this document makes clear, he originated from the region ‘between Suratte and Persia’ (modern Pakistan). He may well have been taken by his captors to Bengal, a region from which the VOC obtained many slaves, although we have no details of this. This case thus serves as a warning that slave toponyms may indicate the place of sale to the Dutch, rather than the actual area of slave origins.*
 
-[^2]: Jacobus van der Heijden was in the ‘Swart Gat’ prison for his part in the burgher conflict with the governor Willem Adriaan van der Stel. In the so-called *Contra-Deductie*, which the rebellious burghers wrote shortly after this, and in which the illegal imprisonment of Van der Heijden was considered proof of Van der Stel’s corruption and maladministration, he refers to Ari as his ‘confrater’ (fellow brother) in prison, and mentions that while being locked up, he taught the slave the Ten Commandments and the Lord’s Prayer (Franken 1953: 87). After Van der Stel’s recall in 1708, Van der Heijden obtained the meat *pacht* and became one of the most prosperous and influential residents of the colony (Schoeman 2002a: 156, 158). 
+[^2]: Jacobus van der Heijden was in the ‘Swart Gat’ prison for his part in the burgher conflict with the governor Willem Adriaan van der Stel. In the so-called *Contra-Deductie*, which the rebellious burghers wrote shortly after this, and in which the illegal imprisonment of Van der Heijden was considered proof of Van der Stel’s corruption and maladministration, he refers to Ari as his ‘confrater’ (fellow brother) in prison, and mentions that while being locked up, he taught the slave the Ten Commandments and the Lord’s Prayer (Franken 1953: 87). After Van der Stel’s recall in 1708, Van der Heijden obtained the meat *pacht* and became one of the most prosperous and influential residents of the colony (Schoeman 2002a: 156, 158).
 
 [^3]: For a discussion of this case, see Franken 1953: 87-96 and Schoeman 2002a: 156-58. Schoeman provides an Afrikaans translation of Van der Heijden’s evidence.
 
@@ -52,4 +52,4 @@ With my cognisance, \[signed\] A. Poulle, secretary.
 
 [^8]:  This sentence at first read ‘Waerop Ari seijde geen vuur’, but was amended to the current reading with the insertion of the verb phrase ‘Ik heb’.
 
-[^9]:  Latin abbreviation for ‘son of Nicholaas’, instead of the Dutch equivalent ‘Nicholaaszoon’. 
+[^9]:  Latin abbreviation for ‘son of Nicholaas’, instead of the Dutch equivalent ‘Nicholaaszoon’.

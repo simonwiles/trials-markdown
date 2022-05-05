@@ -230,10 +230,10 @@ Stellenbosch, 20 June 1729,
 
 \[signed\] Js. Cl. Schabort.
 
-[^1]: The other burgher was Jan Steenkamp, who claimed that he had only allowed his slave Hector to be whipped for ‘niet langer als een pijp tobacq rookens’ (no longer than it takes to smoke a pipe of tobacco). He was fined 50 rixdollars, CJ 11, ff. 49-50. See Schoeman 2004: 204-6 for a discussion of the Steenkamp case. 
+[^1]: The other burgher was Jan Steenkamp, who claimed that he had only allowed his slave Hector to be whipped for ‘niet langer als een pijp tobacq rookens’ (no longer than it takes to smoke a pipe of tobacco). He was fined 50 rixdollars, CJ 11, ff. 49-50. See Schoeman 2004: 204-6 for a discussion of the Steenkamp case.
 
 [^2]: See 1740 Daniel Lourich, n. 8 for evidence of this opinion.
 
 [^3]: CJ 11, ff. 48-9. There is no *sententie* for this case. The *eijsch* recommended that Botma be banished from the Cape for ten years as an example to others (CJ 333, f. 267), but this was not upheld by the court. The fiscal argued that Botma, as former *heemraad*, should have known better. For comments on this case, see Biewenga 1999: 58.
 
-[^4]: Only two years later, in 1731, a *plakkaat* was issued against the maltreatment of slaves, which commented on recent cases in which owners had murdered their slaves, *Kaapse Plakkaatboek* II: 149-50. The immediate cause of this was a horrific case of sadistic abuse of a slave by his owner, Christiaan Gottlieb Opperman (Shell 1994: 208), but clearly the authorities also had cases like that of Jan Botma in mind. For discussion of punishment of owners for the murder of their slaves, see 1707 Jan de Thuilot.  
+[^4]: Only two years later, in 1731, a *plakkaat* was issued against the maltreatment of slaves, which commented on recent cases in which owners had murdered their slaves, *Kaapse Plakkaatboek* II: 149-50. The immediate cause of this was a horrific case of sadistic abuse of a slave by his owner, Christiaan Gottlieb Opperman (Shell 1994: 208), but clearly the authorities also had cases like that of Jan Botma in mind. For discussion of punishment of owners for the murder of their slaves, see 1707 Jan de Thuilot.

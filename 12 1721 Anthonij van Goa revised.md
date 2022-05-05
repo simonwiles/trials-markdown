@@ -346,11 +346,11 @@ As delegates, \[signed\] Ns. Heijning, M. Bergstedt.
 
 In my presence, \[signed\] Dl. Thibault, secretary.
 
-[^1]: Sales were relatively frequent, since the Dutch laws of inheritance, which often divided up estates amongst a large number of heirs, frequently led to the break-up of slaveholdings, and auctions of household goods (which included slaves) were regular occurrences. Sometimes slaves were bought by relatives, but they were still usually transferred to new locations and separated from the other slaves with whom they had lived, worked and formed relationships, Worden 1985: 49-50 and Shell 1994: 104-21. 
+[^1]: Sales were relatively frequent, since the Dutch laws of inheritance, which often divided up estates amongst a large number of heirs, frequently led to the break-up of slaveholdings, and auctions of household goods (which included slaves) were regular occurrences. Sometimes slaves were bought by relatives, but they were still usually transferred to new locations and separated from the other slaves with whom they had lived, worked and formed relationships, Worden 1985: 49-50 and Shell 1994: 104-21.
 
-[^2]: Slave marriage was not made legal until 1823. Only freed slaves were allowed to marry before then, Shell 1994: 320. Nonetheless, some slaves formed permanent partnerships which were often referred to by the authorities as ‘concubinage’. See 1749 Reijnier van Madagascar n. 1 for a discussion of this. 
+[^2]: Slave marriage was not made legal until 1823. Only freed slaves were allowed to marry before then, Shell 1994: 320. Nonetheless, some slaves formed permanent partnerships which were often referred to by the authorities as ‘concubinage’. See 1749 Reijnier van Madagascar n. 1 for a discussion of this.
 
-[^3]: The *eijsch* recommended that Anthonij be executed by hanging with a knife displayed over his head, CJ 325, ff. 76-7. There is no record of this case in the *regtsrollen*, CJ 7 \[1721\], but it is apparent from the statement at the end of the *sententie* that the milder sentence here proposed was carried out on 29 March 1721. 
+[^3]: The *eijsch* recommended that Anthonij be executed by hanging with a knife displayed over his head, CJ 325, ff. 76-7. There is no record of this case in the *regtsrollen*, CJ 7 \[1721\], but it is apparent from the statement at the end of the *sententie* that the milder sentence here proposed was carried out on 29 March 1721.
 
 [^4]:  On Beatrix Verweij, an aged widow who lived alone on a frontier farm with her ten slaves, see Schoeman 2004: 232-35.
 
@@ -362,4 +362,4 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 
 [^8]:  In addition to their main, residential farm many Cape farmers, especially in the earlier decades of the eighteenth century, also owned one or more cattle posts in the interior. These farms tended to be loan farms, used exclusively for grazing.
 
-[^9]:  The original is also in this mixture of the first and third person, direct and indirect speech. 
+[^9]:  The original is also in this mixture of the first and third person, direct and indirect speech.

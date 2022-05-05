@@ -142,7 +142,7 @@ The 23^rd^ of April 1746.
 
 Honourable Lord.[^13]
 
-[^1]: By this they meant the region of the Eastern Cape. For other examples of runaway slaves aiming to reach this area, outside the reach of the Cape authorities, see 1751 Januarij van Boegies et al. and 1760 Achilles van de West Cust et al. 
+[^1]: By this they meant the region of the Eastern Cape. For other examples of runaway slaves aiming to reach this area, outside the reach of the Cape authorities, see 1751 Januarij van Boegies et al. and 1760 Achilles van de West Cust et al.
 
 [^2]: A slave appointed as an overseer over other slaves. For more details on this system, see 1768 Frans van Madagascar, n. 2.
 
@@ -166,4 +166,4 @@ Honourable Lord.[^13]
 
 [^12]:  Pieces of wood cut in the form of a bent knee, which support horizontal planks (Gawronski 1996: 133).
 
-[^13]:  See note 4 above. 
+[^13]:  See note 4 above.

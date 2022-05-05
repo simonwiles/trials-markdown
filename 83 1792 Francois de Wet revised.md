@@ -144,4 +144,4 @@ In my presence, \[signed\] J.P. Faure, secretary.
 
 [^9]:  In this case it was probably produced by mixing water and ash.
 
-[^10]:  That is, South African arum lilies, still called *varkore* or *varkblomme* in Afrikaans. 
+[^10]:  That is, South African arum lilies, still called *varkore* or *varkblomme* in Afrikaans.

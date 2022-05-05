@@ -48,7 +48,7 @@ In my presence, \[signed\] J.P. Faure, secretary.
 
 [^1]: For a similar example of the refusal of a slave to greet a burgher, see 1794 Abraham van Macassar.
 
-[^2]: This was equally the case in early modern Europe where status was clearly displayed through symbolic and ritual acts (Muir 1997), but was particularly marked in a colonial slave society (Ross 1999). 
+[^2]: This was equally the case in early modern Europe where status was clearly displayed through symbolic and ritual acts (Muir 1997), but was particularly marked in a colonial slave society (Ross 1999).
 
 [^3]: The case was not sent to the Council of Justice, and there is no record of further action by the Stellenbosch authorities.
 
@@ -56,4 +56,4 @@ In my presence, \[signed\] J.P. Faure, secretary.
 
 [^5]:  The word in the original is almost illegible – the most likely possibility is *Christ*, an abbreviation for *Christen*. In the course of the eighteenth century this word came to refer specifically to white people (see examples in Scholtz 1972: 117-18), although the question of whether the oppositional terms ‘christian’and ‘heathen’ were completely co-terminous with racial identities during this period is somewhat controversial (see Newton-King 1999: 1-2 and Biewenga 1999: 276-78). What is clear is that Roos was upset here because a slave did not answer him, a colonist.
 
-[^6]:  The meaning of this sentence is very opaque. The translation presumes that the word ‘door’ was left out before ‘hem Mentor’. 
+[^6]:  The meaning of this sentence is very opaque. The translation presumes that the word ‘door’ was left out before ‘hem Mentor’.

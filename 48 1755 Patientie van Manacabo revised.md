@@ -50,9 +50,9 @@ Let the execution be done, \[signed\] R. Tulbagh.
 
 In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-[^1]: Slaves were prohibited from carrying guns, see 1742 Jan Hendrik Hop, n. 1. 
+[^1]: Slaves were prohibited from carrying guns, see 1742 Jan Hendrik Hop, n. 1.
 
-[^2]: Other documentation for the case included the *eijsch* and testimonies of Patientie van Mannacabo \[*sic*\], December van Boegies, Barend Janssen van Steenderen and April van Palembang, CJ 365, ff. 694-719. 
+[^2]: Other documentation for the case included the *eijsch* and testimonies of Patientie van Mannacabo \[*sic*\], December van Boegies, Barend Janssen van Steenderen and April van Palembang, CJ 365, ff. 694-719.
 
 [^3]:  An alternative spelling for Menengkabo (now Menangkabu) in Sumatra (Bradlow and Cairns 1978: 128).
 
@@ -66,4 +66,4 @@ In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^8]:  A thick, woollen coat, also called a *buffeltje* (Gawronski 1996: 202).
 
-[^9]:  Patientie van Manacabo and December van Boegies were charged with running away, theft of guns and ‘publicq geweld’ (public violence). They claimed that they had not meant to cause mischief by their possession of guns but had only shot wildlife from time to time for subsistence. The sentence followed that recommended in the *eijsch*, CJ 37, ff. 104-6. See also Heese 1994: 79-80 for a discussion of this case as an example of the Council of Justice taking mitigating circumstances into account: if these slaves had used their weapons or had not willingly surrendered, they would have received the death penalty. 
+[^9]:  Patientie van Manacabo and December van Boegies were charged with running away, theft of guns and ‘publicq geweld’ (public violence). They claimed that they had not meant to cause mischief by their possession of guns but had only shot wildlife from time to time for subsistence. The sentence followed that recommended in the *eijsch*, CJ 37, ff. 104-6. See also Heese 1994: 79-80 for a discussion of this case as an example of the Council of Justice taking mitigating circumstances into account: if these slaves had used their weapons or had not willingly surrendered, they would have received the death penalty.

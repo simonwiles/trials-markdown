@@ -44,8 +44,8 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^1]: The *opgaaf* for Hercules Adrian Malan for 1769 records that he owned twelve adult male, two adult female and one boy slaves on his mixed wine, cattle, sheep and grain farm (J 173, Stellenbosch district, f. 8). Gerrit Hartog was listed separately in the same *opgaaf* as having only a horse, and was seemingly without a farm of his own, although it is not clear in what capacity he was living on the Malan farm (J 173, Stellenbosch district, f. 2). There is no record of a *knecht* on the Malan farm in the *opgaaf *and he might have been a *bijwoner*.
 
-[^2]: The case does not appear in the records of the Council of Justice for 1769 (CJ 51 and CJ 396) and so was evidently not considered important enough to be sent to Cape Town. 
+[^2]: The case does not appear in the records of the Council of Justice for 1769 (CJ 51 and CJ 396) and so was evidently not considered important enough to be sent to Cape Town.
 
 [^3]:  The phrase between angled brackets is crossed out; however, the rest of the sentence only makes sense if the preceding *niet* is also crossed out, which the scribe probably forgot to do.
 
-[^4]:  This testimony was taken three days after the event, and on the farm, which suggests that Malan may have acted on this complaint. 
+[^4]:  This testimony was taken three days after the event, and on the farm, which suggests that Malan may have acted on this complaint.

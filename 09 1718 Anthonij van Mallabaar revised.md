@@ -200,4 +200,4 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 
 [^8]:  See note 5 above.
 
-[^9]:  This sentence was also recorded in the *regtsrollen* CJ 7 \[1718\], ff. 59-60. 
+[^9]:  This sentence was also recorded in the *regtsrollen* CJ 7 \[1718\], ff. 59-60.

@@ -30,11 +30,11 @@ Thus related at the residence Welgevallen, situated across the Eerste River at S
 
 Which I declare, \[signed\] J. Wege, secretary.
 
-[^1]: Abraham is referred to as ‘van Macassar’ in the report of the Stellenbosch landdrost, CJ 449, f. 395, but as ‘van Madagascar’ in the report of Abraham’s cross-examination and in the *regtstrollen* of the Council of Justice, CJ 449, f. 423 and CJ 76, f. 74. This was doubtless a transcription error, but it does indicate how slave toponyms could be readily confused. 
+[^1]: Abraham is referred to as ‘van Macassar’ in the report of the Stellenbosch landdrost, CJ 449, f. 395, but as ‘van Madagascar’ in the report of Abraham’s cross-examination and in the *regtstrollen* of the Council of Justice, CJ 449, f. 423 and CJ 76, f. 74. This was doubtless a transcription error, but it does indicate how slave toponyms could be readily confused.
 
-[^2]: Compare with the demand made for verbal greeting in 1792 Mentor van Mosambique. 
+[^2]: Compare with the demand made for verbal greeting in 1792 Mentor van Mosambique.
 
-[^3]: Abraham was wounded on his recapture and the surgeon reported that he was unlikely to live much longer. He confessed to causing the fire, in order to force his owner out of the house and to kill him. Taking precedent from a case in 1728 (the details of which were forwarded to the Council of Justice), the Stellenbosch landdrost then decided to have Abraham immediately executed outside the Stellenbosch prison, CJ 449, ff. 395-96 and CJ 76, f. 74. For this principle of *periculum in mora*, see 1760 Achilles van de West Cust, n. 12. Other records sent to the Council of Justice included the testimonies of Matthiam Hoffman, Josias Hoffman, a surgeon’s report on Abraham’s wounds and a record of his cross-examination, CJ 449, ff. 397-435. 
+[^3]: Abraham was wounded on his recapture and the surgeon reported that he was unlikely to live much longer. He confessed to causing the fire, in order to force his owner out of the house and to kill him. Taking precedent from a case in 1728 (the details of which were forwarded to the Council of Justice), the Stellenbosch landdrost then decided to have Abraham immediately executed outside the Stellenbosch prison, CJ 449, ff. 395-96 and CJ 76, f. 74. For this principle of *periculum in mora*, see 1760 Achilles van de West Cust, n. 12. Other records sent to the Council of Justice included the testimonies of Matthiam Hoffman, Josias Hoffman, a surgeon’s report on Abraham’s wounds and a record of his cross-examination, CJ 449, ff. 397-435.
 
 [^4]:  The original contains no main verb of which ‘the testifier’ could be the subject, but presumably something like that supplied is meant.
 
@@ -42,4 +42,4 @@ Which I declare, \[signed\] J. Wege, secretary.
 
 [^6]:  For his tobacco pipe, according to the testimony of Matthiam Hofman, CJ 449, f. 406.
 
-[^7]:  *Sic*. The brother’s name was Josias. 
+[^7]:  *Sic*. The brother’s name was Josias.

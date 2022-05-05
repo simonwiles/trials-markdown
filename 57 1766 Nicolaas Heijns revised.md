@@ -122,7 +122,7 @@ Which I declare, \[signed\] L.S. Faber, sworn clerk.
 
 [^1]:  Heijns was brought before the court on 13 February 1766, and claimed both that Flora ‘seer brutaal teegens mij geweest’ (was most insolent towards me) and that his wife had done everything in her power to oppose him, including inciting his slaves against him and encouraging Flora van Bengalen to make her complaint to the authorities. He produced a letter written to him by his wife, which was full of insults and curses (printed in Ponelis 1993: 79 and, in Afrikaans translation, in Schoeman 2002a: 76; Raidt 1994: 196 and 202 discusses its linguistic features). The court stated that this had nothing to do with the case, which was concerned with whether or not Heijns had maltreated Flora. Heijns admitted that he had hit her, ‘dog dat het in sijne drift geweest, en daarin door de assurantie dier slavin gebragt was’ (but that this was in anger and that he had been brought to it because of the insolence of this slave). The court held the case over, but there is no record that it came before them again, CJ 48, f. 25.
 
-[^2]: See the discussion of *koeli geld* in 1718 Doulat van Balij, n. 6. 
+[^2]: See the discussion of *koeli geld* in 1718 Doulat van Balij, n. 6.
 
 [^3]:  A *gijzelkamer* is not a prison cell: *gijzelen* means to keep under arrest for a short period, usually in civil cases (e.g. until a debt has been paid); in effect a place where one was kept under guard (see Diederiks 1992: 30-1). It is not known where this was situated, presumably within the Castle and perhaps close to where the fiscal had his offices.
 
@@ -130,4 +130,4 @@ Which I declare, \[signed\] L.S. Faber, sworn clerk.
 
 [^5]:  Flora’s statement is that transcribed here. In addition to what is printed here, the documentation in this case also includes the evidence of Hendrick Heijns, Nicolaas Heijns’s son, and a surgeon’s report on Flora’s wounds, CJ 387, ff. 135-37.
 
-[^6]:  The fiscal is referring to legislation which permitted slave-owners to punish their slaves ‘domestically’ but not to maltreat them or cause their death, see *Kaapse Plakkaatboek* I: 36-7 (1658) and II: 149-50 (1731). See Shell 1994: 207-11 on the effectiveness of this, and compare 1707 Jan de Thuilot for another example. 
+[^6]:  The fiscal is referring to legislation which permitted slave-owners to punish their slaves ‘domestically’ but not to maltreat them or cause their death, see *Kaapse Plakkaatboek* I: 36-7 (1658) and II: 149-50 (1731). See Shell 1994: 207-11 on the effectiveness of this, and compare 1707 Jan de Thuilot for another example.

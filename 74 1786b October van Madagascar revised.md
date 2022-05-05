@@ -112,9 +112,9 @@ Let the sentence be done, \[signed\] C.J. van de Graaff.
 
 In my presence, \[signed\] C. van Aersen, secretary.
 
-[^1]: Ross 1983: 54-72. See 1737 Aron van Madagascar and 1786 Job van Madagascar. 
+[^1]: Ross 1983: 54-72. See 1737 Aron van Madagascar and 1786 Job van Madagascar.
 
-[^2]: The documentation in this case is voluminous, including the *eijsch* and the testimonies of all the accused, CJ 423, ff. 363-501 as well as further charges against Carolus van Madagascar, Damon van Bougies and October van Nias, CJ 423, ff. 503-29. 
+[^2]: The documentation in this case is voluminous, including the *eijsch* and the testimonies of all the accused, CJ 423, ff. 363-501 as well as further charges against Carolus van Madagascar, Damon van Bougies and October van Nias, CJ 423, ff. 503-29.
 
 [^3]:  An island off the northwestern coast of Sumatra.
 
@@ -136,4 +136,4 @@ In my presence, \[signed\] C. van Aersen, secretary.
 
 [^12]:  Left blank in the original.
 
-[^13]:  These sentences were recorded in the *regtsrollen*, CJ 68, ff. 134-36. They were somewhat less severe than the recommendations of the *eijsch* that Cupido and October be displayed under the gallows with a rope around their necks, be branded and sent in chains to Robben Island for life and that Pieter, Felix and Jan be beaten with rods and placed in chains on Robben Island for three years, CJ 423, ff. 386-88. 
+[^13]:  These sentences were recorded in the *regtsrollen*, CJ 68, ff. 134-36. They were somewhat less severe than the recommendations of the *eijsch* that Cupido and October be displayed under the gallows with a rope around their necks, be branded and sent in chains to Robben Island for life and that Pieter, Felix and Jan be beaten with rods and placed in chains on Robben Island for three years, CJ 423, ff. 386-88.

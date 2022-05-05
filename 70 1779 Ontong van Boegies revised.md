@@ -174,4 +174,4 @@ Stellenbosch, 8 May 1779.
 
 [^7]:  The case was first brought to the Council of Justice on 22 April 1779. Ontong said he did not deserve punishment, and the case was held over for further consideration until 6 May when the sentence above was passed, CJ 61, ff. 22-3. However, Adonis’s change of testimony, received on the same day, probably delayed the execution, which only took place on 15 May.
 
-[^8]:  An intriguing indication of the concept that the spilling of ‘innocent blood’ (including that of slaves) could bring misfortune not only to the perpetrator, but also to his descendants. It echoes Matthew 27:25, and may show how some Biblical injunctions were part of the mental world of Cape burghers. 
+[^8]:  An intriguing indication of the concept that the spilling of ‘innocent blood’ (including that of slaves) could bring misfortune not only to the perpetrator, but also to his descendants. It echoes Matthew 27:25, and may show how some Biblical injunctions were part of the mental world of Cape burghers.

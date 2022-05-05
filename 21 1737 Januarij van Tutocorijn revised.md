@@ -76,10 +76,10 @@ Exhibit in court, 12 September 1737.
 
 \[signed\] D. van den Henghel.
 
-[^1]: Modern Tuticorin in South India. The VOC had a trading post there which was under the aegis of the Ceylon government. 
+[^1]: Modern Tuticorin in South India. The VOC had a trading post there which was under the aegis of the Ceylon government.
 
-[^2]: See 1718 Doulat van Balij, n. 5 on the *koeli geld* system. Maria van der Poel was the widow of Melt van der Spuij, one of the most important and successful alcohol *pachters* of the 1720s. She was therefore left quite well off, which puts her actions in this case in an interesting light. 
+[^2]: See 1718 Doulat van Balij, n. 5 on the *koeli geld* system. Maria van der Poel was the widow of Melt van der Spuij, one of the most important and successful alcohol *pachters* of the 1720s. She was therefore left quite well off, which puts her actions in this case in an interesting light.
 
-[^3]: See 1736 Table Valley slaves, for his insistence on stricter controls over slaves in the town. There appears to have been a general scare in and around the town about illicit slave activities in the mid-1730s (see also 1735 Company slaves and 1737 Aron van Madagascar). Certainly the fiscal, Daniel van den Henghel, was particularly earnest about the need to assert tighter control over them. 
+[^3]: See 1736 Table Valley slaves, for his insistence on stricter controls over slaves in the town. There appears to have been a general scare in and around the town about illicit slave activities in the mid-1730s (see also 1735 Company slaves and 1737 Aron van Madagascar). Certainly the fiscal, Daniel van den Henghel, was particularly earnest about the need to assert tighter control over them.
 
-[^4]:  In fact Januarij was sentenced to be whipped by the *caffers* but then to be returned to his owner with costs, without having to work for the Company, CJ 19, ff. 119-20. 
+[^4]:  In fact Januarij was sentenced to be whipped by the *caffers* but then to be returned to his owner with costs, without having to work for the Company, CJ 19, ff. 119-20.

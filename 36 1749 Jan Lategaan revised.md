@@ -88,4 +88,4 @@ With my cognisance, \[signed\] J.B. d’Aillij, secretary.
 
 [^2]:  *Sic*. Should read: ‘van competenten ouderdom’.
 
-[^3]:  When Khoikhoi were employed on farms, they tended to work as stock herders (although they were also used as field workers), but it is unusual to find a woman in this position. Usually Khoi women were used for domestic service or as child minders, especially in the interior (Elphick & Malherbe 1989: 28-9; Biewenga 1999: 105-8). 
+[^3]:  When Khoikhoi were employed on farms, they tended to work as stock herders (although they were also used as field workers), but it is unusual to find a woman in this position. Usually Khoi women were used for domestic service or as child minders, especially in the interior (Elphick & Malherbe 1989: 28-9; Biewenga 1999: 105-8).

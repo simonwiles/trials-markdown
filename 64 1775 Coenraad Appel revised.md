@@ -140,4 +140,4 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^4]:  *Sic*. Should be *comparants*.
 
-[^5]:  Perhaps *swernoot*, considered a terrible curse in the eighteenth century, hence the ellipsis. It is derived from German *schwerenöter* and was probably introduced at the Cape by German soldiers (Boshoff & Nienaber 1967: 629 and Scholtz 1972: 169-70). 
+[^5]:  Perhaps *swernoot*, considered a terrible curse in the eighteenth century, hence the ellipsis. It is derived from German *schwerenöter* and was probably introduced at the Cape by German soldiers (Boshoff & Nienaber 1967: 629 and Scholtz 1972: 169-70).

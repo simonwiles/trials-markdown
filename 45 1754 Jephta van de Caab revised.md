@@ -42,12 +42,12 @@ In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^1]: Jephta was the slave of Bartho de St. Jean, long-standing chief surgeon of the Company who had arrived at the Cape in 1719 and served there until his death in 1763 (VOC 5732, ff. 22, 27, 30-9). Unlike the burgher slaves or the Company slaves housed in the Lodge, the slaves of Company officials were usually not listed in the records and almost nothing is known about them (Shell 1994: 149-51).
 
-[^2]: See on this, Ross 1999. 
+[^2]: See on this, Ross 1999.
 
-[^3]: CJ 36, ff. 72-4. He begged forgiveness and said he would never do such a thing again. 
+[^3]: CJ 36, ff. 72-4. He begged forgiveness and said he would never do such a thing again.
 
 [^4]: CJ 848, ff. 67-8 and 74-5; CJ 1069, ff. 227-33.
 
 [^5]:  Jephta had the misfortune of getting in the way of Baron Pieter van Reede van Oudshoorn, who came to the Cape as independent fiscal with the rank of *opperkoopman* in 1741. This office was the third highest position at the Cape. In 1768 he became the successor to Governor Rijk Tulbagh, but died before he could take up office (DSAB II: 795). People left (and entered) the church according to rank, with the governor going out first.
 
-[^6]:  The *eijsch* had recommended that Jephta also be sent to work in chains at the public works for five years, CJ 363, f. 331. 
+[^6]:  The *eijsch* had recommended that Jephta also be sent to work in chains at the public works for five years, CJ 363, f. 331.

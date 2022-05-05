@@ -64,4 +64,4 @@ Kuijlenburgh, 6 September 1741.
 
 [^4]:  This case illustrates the gendered nature of slave labour on the farm: while the male slaves were working outside in the garden, the women were inside the house doing sewing. On the use of slave women for needlework, see Shell 1994: 51-2 and 161. Unlike the plantation slave societies of the Americas, female slaves at the Cape did not usually do regular field work, although there were exceptions, especially during the harvesting season (Worden 1985: 21 and 88).
 
-[^5]:  This was the usual punishment for slave suicides, though other ones were also known. For mention of this case in this regard, see De Kock 1950: 184. 
+[^5]:  This was the usual punishment for slave suicides, though other ones were also known. For mention of this case in this regard, see De Kock 1950: 184.

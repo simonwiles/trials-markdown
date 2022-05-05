@@ -52,9 +52,9 @@ As witnesses, \[signed\] C. Berkman, J.M. Smalbergen.
 
 With my cognisance, \[signed\] A. Faure, secretary.
 
-[^1]: The presence of *knechten* as overseers of slaves was typical either of farms with a large workforce or, as in this case, on secondary farms or cattle posts where the owner was absent. Disputes between them and slaves were often, as here, over day-to-day working issues. *Knechten* were in a vulnerable position as supervisors but without the ultimate authority of the owner, Ross 1983: 31-2 and Worden 1985: 108-9. Shell (1994: 10-26) argues that *knechten* were in a more temporary and insecure labour position than slaves, although this refers to *knechten* who were supplemenatary labourers, a role that they played especially in the earlier decades of the colony when slaves were in short supply (for examples in this volume, see 1719 Jonas van Manado and 1764 Jan Olivier). For other cases involving *knecht* overseers, see 1726 Scipio van de Cust; 1745 Cupido van Bengal; 1774 Michiel Radijn; and 1779 Ontong van Boegies. 
+[^1]: The presence of *knechten* as overseers of slaves was typical either of farms with a large workforce or, as in this case, on secondary farms or cattle posts where the owner was absent. Disputes between them and slaves were often, as here, over day-to-day working issues. *Knechten* were in a vulnerable position as supervisors but without the ultimate authority of the owner, Ross 1983: 31-2 and Worden 1985: 108-9. Shell (1994: 10-26) argues that *knechten* were in a more temporary and insecure labour position than slaves, although this refers to *knechten* who were supplemenatary labourers, a role that they played especially in the earlier decades of the colony when slaves were in short supply (for examples in this volume, see 1719 Jonas van Manado and 1764 Jan Olivier). For other cases involving *knecht* overseers, see 1726 Scipio van de Cust; 1745 Cupido van Bengal; 1774 Michiel Radijn; and 1779 Ontong van Boegies.
 
-[^2]: It is not clear whether Johan Spring in ’t Veld was taking him to his owner or to the judicial authorities in Stellenbosch for chastisement. Either way, Hermanus realised that he would receive severe punishment for attacking a *knecht*. 
+[^2]: It is not clear whether Johan Spring in ’t Veld was taking him to his owner or to the judicial authorities in Stellenbosch for chastisement. Either way, Hermanus realised that he would receive severe punishment for attacking a *knecht*.
 
 [^3]:  Usually spelled *maaijfoedie* in Cape sources, this is derived from Creole Portuguese: *mai*, ‘mother’ and *fodér*, ‘to have sex’, hence modern ‘motherfucker’. A fairly common term of abuse at the Cape from the seventeenth century onwards (Franken 1953: 44-5 and Scholtz 1972: 141).
 
@@ -78,4 +78,4 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^13]:  On the use of this term to refer to Europeans, see 1792 Mentor van Mosambique.
 
-[^14]:  See note 4 above. 
+[^14]:  See note 4 above.

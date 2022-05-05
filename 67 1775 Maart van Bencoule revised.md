@@ -102,13 +102,13 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^1]: The case is mentioned in Penn 1999: 91. For discussion of the linguistic complexity of Cape slave society, see also 1763 Christina Strang and 1775 Moses van Bengalen.
 
-[^2]: It is significant that while the farmer is capable of addressing them in Portuguese, he does not understand Malay. Although no detailed study of this has yet been done, it seems from the available evidence that Portuguese was more commonly used as a lingua franca amongst the slaves and that settlers were more likely to know this language than Malay (see, for example, the data in Franken 1953: 41-79). Although these slaves ignored the farmer’s questions, they undoubtedly knew some Portuguese, as is confirmed by their utterances, which are in both these languages. 
+[^2]: It is significant that while the farmer is capable of addressing them in Portuguese, he does not understand Malay. Although no detailed study of this has yet been done, it seems from the available evidence that Portuguese was more commonly used as a lingua franca amongst the slaves and that settlers were more likely to know this language than Malay (see, for example, the data in Franken 1953: 41-79). Although these slaves ignored the farmer’s questions, they undoubtedly knew some Portuguese, as is confirmed by their utterances, which are in both these languages.
 
-[^3]: See 1744 Barkat van Timor for this phenomenon. As in *amok* cases, one of them wanted to commit suicide. 
+[^3]: See 1744 Barkat van Timor for this phenomenon. As in *amok* cases, one of them wanted to commit suicide.
 
 [^4]: Bencoule (present-day Bengkulu) on the western coast of Sumatra. The port was an English East India Company trading post from the late seventeenth century, although it was largely unsuccessful in tapping into the VOC-dominated trade in the East Indies and it faded into insignificance after the founding of Singapore in 1819.
 
-[^5]: In addition to those transcribed here, the testimonies collected by the Stellenbsoch landdrost included those of Kuijper van Macassar, Gideon van Zijl and the *Bastaard-Hottentot* Gerrit Obie, 1/STB 3/11, unpaginated. 
+[^5]: In addition to those transcribed here, the testimonies collected by the Stellenbsoch landdrost included those of Kuijper van Macassar, Gideon van Zijl and the *Bastaard-Hottentot* Gerrit Obie, 1/STB 3/11, unpaginated.
 
 [^6]:  There is no record of the case in the *regtsrollen*, CJ 57.
 
@@ -124,4 +124,4 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^12]:  It was common in the eighteenth century to refer to somebody by a shortened version of their job title. *Fabriek* probably refers in this way to the *fabriekmeester, *the head of the Company public works. Martinus van Oorden had arrived at the Cape in 1773 and was appointed supervisor for the building of the new Company hospital, in charge of 89 builders (VOC 5222, f. 65 and VOC 6576, f. 197). The slaves appear to have been his personal property, not the Company slaves who worked in the warehouses.
 
-[^13]:  On the special meaning of this term, see 1739 Jurgen Scholts, n. 8. 
+[^13]:  On the special meaning of this term, see 1739 Jurgen Scholts, n. 8.

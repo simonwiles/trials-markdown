@@ -66,13 +66,13 @@ Let the execution be done, \[signed\] R. Tulbagh.
 
 In my presence, \[signed\] C.L. Neethling, secretary.
 
-[^1]: CJ 397, f. 38v, interrogation of Thomas van Tutocorijn, article 2. 
+[^1]: CJ 397, f. 38v, interrogation of Thomas van Tutocorijn, article 2.
 
 [^2]: In addition to the *sententie* given here, the documentation in the case includes the *eijsch*, testimonies of Adriana Debits, Gedult van Ceijlon and Eva van de Caab, notes from the questioning of the slave Abraham and the interrogation of Thomas van Tutocorijn, CJ 397, ff. 1-57.
 
 [^3]: There were eleven slaves altogether, ten males and one female, CJ 397, f. 38v, interrogation of Thomas van Tutocorijn, article 3. It seems that only Gedult and Eva slept in the main house, although it is not clear from the evidence whether this was a sexual relationship or merely one of common sleeping arrangements. It was quite common for female slaves to sleep in the kitchen (there were usually only one or two on many farms) but it was more unusual for men. Since in this case only one man was allowed to do this, it seems to have been a special privilege.
 
-[^4]: For example, Genovese 1970: 327-65 on the United States and Worden 1985: 90 on the Cape. Examples, in this collection, of house slaves on Cape farmsteads are Hector van de Caab (in 1786 Augustus van de Caab et al.), Adam (in 1786 October van Madagascar et al.) and possibly also Alij (in 1776 Julij van Timor). This case is rather ambiguous. Thomas’s scornful reference to Gedult as ‘een oude huijsjongen’ (an old house *jongen*) shows a perceived distinction, while his expectation that Gedult should prevent fighting between the others slaves suggests that Gedult had a supervisory role over them. This might have been because his age gave him authority (as with September in 1760 Achilles van de West Cust et al.). However, the fact that Gedult is ordered by his owner to clay the threshing floor with Thomas shows that work was not strictly partitioned between them. The separation of sleeping places is a more striking divide. 
+[^4]: For example, Genovese 1970: 327-65 on the United States and Worden 1985: 90 on the Cape. Examples, in this collection, of house slaves on Cape farmsteads are Hector van de Caab (in 1786 Augustus van de Caab et al.), Adam (in 1786 October van Madagascar et al.) and possibly also Alij (in 1776 Julij van Timor). This case is rather ambiguous. Thomas’s scornful reference to Gedult as ‘een oude huijsjongen’ (an old house *jongen*) shows a perceived distinction, while his expectation that Gedult should prevent fighting between the others slaves suggests that Gedult had a supervisory role over them. This might have been because his age gave him authority (as with September in 1760 Achilles van de West Cust et al.). However, the fact that Gedult is ordered by his owner to clay the threshing floor with Thomas shows that work was not strictly partitioned between them. The separation of sleeping places is a more striking divide.
 
 [^5]:  The lending or hiring of slaves to help out with the harvest on other farms was a common occurrence, especially, as in this case, between kin, Worden 1985: 25-6 and 87-8. See 1745 Cupido van Bengalen for another instance of this.
 
@@ -84,4 +84,4 @@ In my presence, \[signed\] C.L. Neethling, secretary.
 
 [^9]:  Thomas denied this, saying that Eva’s claims ‘sijn leugens’ (are lies). Under interrogation he claimed that he had only wanted to frighten his mistress, CJ 397, f. 54, interrogation of Thomas van Tutocorijn, articles 94 and 96.
 
-[^10]:  This sentence was recorded in the *regtsrollen*, CJ 52, ff. 6-8. The court rejected the recommendation of the *eijsch* that Thomas van Tutocorijn be hanged, CJ 397, ff. 13v-14. 
+[^10]:  This sentence was recorded in the *regtsrollen*, CJ 52, ff. 6-8. The court rejected the recommendation of the *eijsch* that Thomas van Tutocorijn be hanged, CJ 397, ff. 13v-14.

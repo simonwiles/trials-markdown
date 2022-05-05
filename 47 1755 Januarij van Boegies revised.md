@@ -70,7 +70,7 @@ Thus confessed, through interpretation from Portuguese, in the Castle of Good Ho
 
 Verification
 
-   There appears before us, the undersigned delegates from the honourable Council of Justice of the Castle of Good Hope, aforementioned, Januarij van Boegies, who, after this, his given confession, had been read out word by word, clearly and plainly, declares to persist fully with it, therefore not desiring that anything more be added to or taken from it.
+There appears before us, the undersigned delegates from the honourable Council of Justice of the Castle of Good Hope, aforementioned, Januarij van Boegies, who, after this, his given confession, had been read out word by word, clearly and plainly, declares to persist fully with it, therefore not desiring that anything more be added to or taken from it.
 
 Thus verified at the Cape of Good Hope on 13 November 1755 before the honourables Cl. Brand and Js. Hs. Blankenberg, members of the aforementioned honourable Council of Justice, who have properly signed the original of this, together with the confessant and me, the secretary.[^10]
 
@@ -82,7 +82,7 @@ Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^3]: Notably in Januarij’s words to Clara: ‘Jij hebt een ziel en ik heb een ziel’ (you have a soul and I have a soul).
 
-[^4]: Schindelaar arrived at the Cape in 1731 as a soldier, but worked himself up through the ranks until he became lieutenant-captain in 1750. He then married Johanna Delitzsch, who was the widow of the previous incumbent of that post (Hoge 1946: 361-2). An inventory of his large and prosperous house on the Heerengracht was taken in August 1755 when Johanna Delitzsch died (MOOC 8/8, document 34½). 
+[^4]: Schindelaar arrived at the Cape in 1731 as a soldier, but worked himself up through the ranks until he became lieutenant-captain in 1750. He then married Johanna Delitzsch, who was the widow of the previous incumbent of that post (Hoge 1946: 361-2). An inventory of his large and prosperous house on the Heerengracht was taken in August 1755 when Johanna Delitzsch died (MOOC 8/8, document 34½).
 
 [^5]:  *Sic*. Clara van Macassar is not a *confessant*, but a *relatant* in this document.
 
@@ -94,4 +94,4 @@ Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^9]:  Literally ‘flat house’. The 1755 inventory describes these as ‘drie aparte huur huijsjes’ (three small separate houses for rent), MOOC 8/8, document 34½ . They were clearly hired out, one to a Chinese tenant. This detail provides rare evidence of the mixed nature of property in one of the most properous streets in the town, with a wealthy household on the outside of the block and poorer rented buildings at the rear. We are grateful to Antonia Malan for this information.
 
-[^10]:  Januarij van Boegies was found guilty on 4 December of ‘opset gepleegde moordadige quetsing’ (deliberately committed murderous wounding). Clara was examined by surgeons who declared that the wounds inflicted by Januarij on her head were potentially fatal, CJ 365, f. 732. Januarij admitted guilt and asked forgiveness, CJ 37, ff. 106-7. The death sentence by hanging was more lenient than that recommended in the *eijsch* of breaking on the cross with the *coup de grâce*, CJ 365, ff. 725v-26. 
+[^10]:  Januarij van Boegies was found guilty on 4 December of ‘opset gepleegde moordadige quetsing’ (deliberately committed murderous wounding). Clara was examined by surgeons who declared that the wounds inflicted by Januarij on her head were potentially fatal, CJ 365, f. 732. Januarij admitted guilt and asked forgiveness, CJ 37, ff. 106-7. The death sentence by hanging was more lenient than that recommended in the *eijsch* of breaking on the cross with the *coup de grâce*, CJ 365, ff. 725v-26.

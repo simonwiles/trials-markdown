@@ -74,6 +74,6 @@ As witnesses, \[signed\] Bastiaen Cevaal, Roloff Jonasse.
 
 With my cognisance, \[signed\] E. Fk. de Swart, secretary.
 
-[^1]: According to Batavian legislation, a slave purchaser could claim back his costs if the slave was proved to be permanently sick, mentally incapacitated or ‘mad’, but there is no evidence that this happened in this case. See Biewenga 1999: 108-9. 
+[^1]: According to Batavian legislation, a slave purchaser could claim back his costs if the slave was proved to be permanently sick, mentally incapacitated or ‘mad’, but there is no evidence that this happened in this case. See Biewenga 1999: 108-9.
 
-[^2]: Biewenga (1999: 108) sees this detail, and the concern over Anthonij’s health, as a sign that slaves, though possessions, were treated ‘like humans’. Concern for the health of a newly purchased slave may have indicated more about the owners’ desire to ensure that the investment in their purchase would be worthwhile. 
+[^2]: Biewenga (1999: 108) sees this detail, and the concern over Anthonij’s health, as a sign that slaves, though possessions, were treated ‘like humans’. Concern for the health of a newly purchased slave may have indicated more about the owners’ desire to ensure that the investment in their purchase would be worthwhile.

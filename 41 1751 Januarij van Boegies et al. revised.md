@@ -84,9 +84,9 @@ Let the sentence be done, \[signed\] R. Tulbagh.
 
 In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-[^1]: The group originally consisted of thirteen, but two were shot dead during capture, so only eleven were prosecuted in the end. 
+[^1]: The group originally consisted of thirteen, but two were shot dead during capture, so only eleven were prosecuted in the end.
 
-[^2]: An old Dutch colonial word meaning a community, or village, of black people. 
+[^2]: An old Dutch colonial word meaning a community, or village, of black people.
 
 [^3]: The documentation in this case also includes the *eijsch* and the testimonies of each of the accused, as well as that of *veldcorporaal* Burgert Van Dijk junior and the burgher Willem Pool, CJ 359, ff. 118-62. For a similar example of ethnic links among slave runaways, see 1760 Achilles van de West Cust et al.
 
@@ -102,4 +102,4 @@ In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^9]:  Since all of these slaves came from the Indonesian archipelago it is not surprising that they used Malay amongst themselves. On the use of contact languages at the Cape, see 1763 Christina Strang and 1775 Moses van de Caab.
 
-[^10]:  These sentences were those recommended in the *eijsch* (CJ 359, ff. 124v-25v) and were recorded in the* regtsrollen* after a week’s delay while the documentation was read by the Council, CJ 33, ff. 43-5 and 48-52. 
+[^10]:  These sentences were those recommended in the *eijsch* (CJ 359, ff. 124v-25v) and were recorded in the* regtsrollen* after a week’s delay while the documentation was read by the Council, CJ 33, ff. 43-5 and 48-52.

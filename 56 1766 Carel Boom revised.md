@@ -30,8 +30,8 @@ In my presence, \[signed\] C.L. Neethling, secretary.
 
 [^2]: On the Slave Lodge, see* *Geyser 1958: 6-41; Shell 1994: 172-205; Vollgraaff 1997; and Schoeman 2001: 542-72.
 
-[^3]: There is no record of Cornelia van Piloane in the death registers of Company slaves, as recorded in the *Attestatiën *of the Council of Policy (Duvenage et al. 2000). 
+[^3]: There is no record of Cornelia van Piloane in the death registers of Company slaves, as recorded in the *Attestatiën *of the Council of Policy (Duvenage et al. 2000).
 
 [^4]:  This was a particularly dishonourable end for Boom since association with the executioner was considered highly polluting, and burial below the gallows a fate for criminals (see 1719 Jonas van Manado, n. 13). It is not clear whether this was because he had committed suicide or because of his attack on one of the Company’s slaves. The description of Boom as a ‘wreed en boosaardig schepsel’ (cruel and malicious creature) suggests both. Upham 2001b argues that suicides by Europeans were not punished judicially, yet this particular case was considered important enough for an emergency meeting of the Council to be held on a Sunday.
 
-[^5]:  The slaves in the Lodge got weekly rations which they cooked themselves (Geyser 1958: 24 and Schoeman 2001: 531-32). 
+[^5]:  The slaves in the Lodge got weekly rations which they cooked themselves (Geyser 1958: 24 and Schoeman 2001: 531-32).

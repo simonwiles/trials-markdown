@@ -50,11 +50,11 @@ It is then, honourable Lord and honourable Lords, because of these two reasons, 
 
 Which I do, etc.[^8]
 
-[^1]: This was relatively rare, since most farmers did not possess enough slaves to warrant a special building for them. Slave ‘houses’ are only recorded on the largest farms, Worden 1985: 92-3; Markell 1993:74-6; Shell 1994: 257-58; and Schoeman 2001: 586-88. Note that Francina, the female slave, slept in the main farmhouse, separate from the men. 
+[^1]: This was relatively rare, since most farmers did not possess enough slaves to warrant a special building for them. Slave ‘houses’ are only recorded on the largest farms, Worden 1985: 92-3; Markell 1993:74-6; Shell 1994: 257-58; and Schoeman 2001: 586-88. Note that Francina, the female slave, slept in the main farmhouse, separate from the men.
 
 [^2]: For the use of *knechten* as overseers, see 1761 Johan Spring in ’t Veld, n. 1.
 
-[^3]: Cupido van Bengalen was owned by *Sieur* Andries Grové, Brink’s father-in-law, and so knew the Khoi workers on Brink’s farm. There is no evidence that he killed Francina for any reason other than that she got in his way when he was stealing from Brink’s farmhouse (Louis stated in his later deposition that Cupido had merely said to him, ‘ik heb de meijd vermoord’ \[I have killed the *meijd*\] without referring to her by name, CJ 352, f. 689v). 
+[^3]: Cupido van Bengalen was owned by *Sieur* Andries Grové, Brink’s father-in-law, and so knew the Khoi workers on Brink’s farm. There is no evidence that he killed Francina for any reason other than that she got in his way when he was stealing from Brink’s farmhouse (Louis stated in his later deposition that Cupido had merely said to him, ‘ik heb de meijd vermoord’ \[I have killed the *meijd*\] without referring to her by name, CJ 352, f. 689v).
 
 [^4]: A charge was brought against Louis by the Council of Justice, but the fiscal stated in his *eijsch* that he was ‘zinneloos’ (senseless) and therefore could not be held responsible for his actions and so he was subsequently released, CJ 27, f. 75 and CJ 352, f. 671. Testimonies in this case include those of Andries Brink, Jan Nieuwenhuijsen, the Khoi Louis and Piet, and the slaves Dramma van Timor and Pieter van Mallebaar, CJ 352, ff. 679-94, with the originals in 1/STB 3/9.
 
@@ -64,4 +64,4 @@ Which I do, etc.[^8]
 
 [^7]:  Cupido van Bengalen, like Pieter van Malabar, was working on the farm of his owner’s son-in-law, presumably to help with the ploughing that was taking place. Hiring of slaves, or their loan by kin, during peak labour periods was a common practice, Worden 1985: 25 and 87-8.
 
-[^8]:  See note 6 above. 
+[^8]:  See note 6 above.

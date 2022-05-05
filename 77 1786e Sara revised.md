@@ -48,10 +48,10 @@ Your honour’s obedient servant,
 
 Swellendam, 28 December 1786.
 
-[^1]: Unfortunately there is no mention of November’s death in the surviving Council of Justice or the Swellendam archival records. 
+[^1]: Unfortunately there is no mention of November’s death in the surviving Council of Justice or the Swellendam archival records.
 
 [^2]: See Jan 1710, n. 1 and 1741 Andries van Bengalen, n. 1.
 
 [^3]:  These have not been found and may never have been written, so we know no more of the circumstances of November’s death.
 
-[^4]:  Van Reenen’s letters were enclosed with this dispatch, CJ 2489, ff. 62-4. There are two copies of these dispatches, but no further correspondence on this matter in the file. 
+[^4]:  Van Reenen’s letters were enclosed with this dispatch, CJ 2489, ff. 62-4. There are two copies of these dispatches, but no further correspondence on this matter in the file.

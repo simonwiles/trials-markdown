@@ -26,4 +26,4 @@ Your honourable lord’s obedient servant, \[signed\] H. L. Bletterman.
 
 Stellenbosch, 22 April 1790.
 
-[^1]: There is no further documentation for this case, so the precise reasons for Cloete’s request are unknown. However, as head of the burgher militia he might have felt the need to be especially law-abiding in order to set an example. Moreover, if September had been found guilty of desertion, Cloete would not only have had to pay the considerable ‘costs and expenditure of justice’, but might even have lost his labour, had he been banished to Robben Island for a time.  
+[^1]: There is no further documentation for this case, so the precise reasons for Cloete’s request are unknown. However, as head of the burgher militia he might have felt the need to be especially law-abiding in order to set an example. Moreover, if September had been found guilty of desertion, Cloete would not only have had to pay the considerable ‘costs and expenditure of justice’, but might even have lost his labour, had he been banished to Robben Island for a time.

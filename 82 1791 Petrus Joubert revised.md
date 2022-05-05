@@ -68,9 +68,9 @@ As delegates, \[signed\] J.B. Hoffman, P.G. Wium.
 
 In my presence, \[signed\] J.P. Faure, secretary.
 
-[^1]: Nothing about the background to this case is known, but Joubert might have contended the use of the grazing land. The statement that he had beaten the herder before implies that this was a long-standing dispute. 
+[^1]: Nothing about the background to this case is known, but Joubert might have contended the use of the grazing land. The statement that he had beaten the herder before implies that this was a long-standing dispute.
 
-[^2]: These are the only two documents concerning this case in the Stellenbosch records. There is no mention of it in the criminal *regtsrollen*. 
+[^2]: These are the only two documents concerning this case in the Stellenbosch records. There is no mention of it in the criminal *regtsrollen*.
 
 [^3]:  The part between angled brackets was written above the line here.
 
@@ -78,4 +78,4 @@ In my presence, \[signed\] J.P. Faure, secretary.
 
 [^5]:  A *sjambok* used to beat the hind oxen of a wagon, perhaps meaning a *sjambok* shorter than a normal one.
 
-[^6]:  A tributary of the Berg River, between Stellenbosch and Franschhoek. 
+[^6]:  A tributary of the Berg River, between Stellenbosch and Franschhoek.

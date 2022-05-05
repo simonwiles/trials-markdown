@@ -38,12 +38,12 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^1]: Radijn was presumably investigated by the Stellenbosch landdrost for assault, but there is no record that he was punished and the case was not forwarded to the Council of Justice. The case strikingly demonstrates the lack of *potestas *(legal authority or power) that slaves had over their own children. These were instead the possessions of their owners (De Kock 1950: 114; Botha 1962, vol. II: 171-72; and Schoeman 2001: 583-84).
 
-[^2]: See 1761 Johan Spring in ’t Veld, n. 1 for a discussion of the role of *knechten* on farms. 
+[^2]: See 1761 Johan Spring in ’t Veld, n. 1 for a discussion of the role of *knechten* on farms.
 
-[^3]: For example, 1749 Reijnier van Madagascar, who attacked his owners and ran away when his daughter was whipped by them. One of the causes of resentment by Galant van de Caab, who led the Bokkeveld uprising in 1825, was that he was forbidden to discipline his own child. Van der Spuy (1996) argues that this challenge to his masculinity was one of the gendered aspects of the revolt. 
+[^3]: For example, 1749 Reijnier van Madagascar, who attacked his owners and ran away when his daughter was whipped by them. One of the causes of resentment by Galant van de Caab, who led the Bokkeveld uprising in 1825, was that he was forbidden to discipline his own child. Van der Spuy (1996) argues that this challenge to his masculinity was one of the gendered aspects of the revolt.
 
 [^4]:  *Sic*. In the other testimonies her name is spelled ‘Candace’.
 
 [^5]:  It is intriguing that in this case all the slaves mentioned are ‘van de Caab’ and seemingly conversing in a form of Dutch with one another, and not making use of one of the contact languages common amongst slaves at the Cape during this time (see 1775 Moses van Bengalen). This may be indicative of the fact that more and more slaves were locally born at the Cape by this stage (although full creolisation did not take place until the nineteenth century). But even though Candace seems to have grown up at the Cape, she still does not pronounce Dutch ‘correctly’, at least in the eyes of the young boy (according to her testimony, he teased her every time ‘onder het spreeken van een Duits woord door haar niet wel uitgebragt’ \[when she said a Dutch word not well pronounced by her\], 1/STB 3/11, testimony of Candace van de Caab, 2 August 1774, unpaginated). This may reflect something of the nature of the variety of Dutch used by Cape-born slaves, although very little is known about this topic.
 
-[^6]:  It was of course Radijn who had hit him from behind with a piece of firewood, as reported in the testimonies of both Dina van de Caab and Candace van de Caab, 1/STB 3/11, 2 August 1774, unpaginated, the only other documentation for this case. 
+[^6]:  It was of course Radijn who had hit him from behind with a piece of firewood, as reported in the testimonies of both Dina van de Caab and Candace van de Caab, 1/STB 3/11, 2 August 1774, unpaginated, the only other documentation for this case.

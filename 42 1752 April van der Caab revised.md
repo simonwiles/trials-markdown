@@ -52,4 +52,4 @@ In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^4]:  An interesting indication that a locally born slave knew (some) Malay and could therefore communicate with a slave from the Indonesian archipelago. On the use of Malay as a contact language between slaves, along with Creole Portuguese, see 1775 Moses van de Caab.
 
-[^5]:  This was the sentence recommended in the *eijsch*, CJ 360, f. 242. At his sentencing, April van de Caab claimed that he had not intended to kill Willem. He was nonetheless found guilty of murder and sentenced as above, CJ 34, ff. 43-5. 
+[^5]:  This was the sentence recommended in the *eijsch*, CJ 360, f. 242. At his sentencing, April van de Caab claimed that he had not intended to kill Willem. He was nonetheless found guilty of murder and sentenced as above, CJ 34, ff. 43-5.

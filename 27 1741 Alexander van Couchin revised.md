@@ -176,7 +176,7 @@ There being nothing more to declare, the deponent asserts to be convinced of the
 
 Which I declare, \[signed\] A. Schephausen, secretary.
 
-Verification  
+Verification
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, the soldier Christoffel Jansz, who, after this, his given deposition, had been read out word for word, clearly and plainly, declares to fully persist by it, therefore not desiring that anything more be added to or taken from it, and testifies in the presence of the slave Alexander van Coutschien all of the above to be the whole truth, and uttered, as confirmation of the truth of this, the solemn words: “Truly so, help me, Almighty God”.
 
@@ -294,7 +294,7 @@ Which I declare, \[signed\] D.G. Carnspek, secretary.
 
 [^2]: The landrost called for the death sentence by hanging, on the grounds that the Statutes of the Indies mandated death for all slaves who laid hands on their owners. He recognised that Alexander had not actually attacked his master, but pointed out that he had threatened to do so with a knife, being a ‘verwoedenend mensch’ (enraged person) and that such ‘booswigten’ (villains) were widespread in the colony and could not be tolerated, CJ 346, ff. 112v-13.
 
-[^3]: The court decided after perusing the evidence that Alexander be freed and returned to his owner, but gave no reasons, CJ 23, ff. 38-9. The documentation included the material transcribed here, as well as the evidence of three of the other slaves on the farm, Silvia van Madagascar, Pieter van de Cust Coromandel and Isaac van de Cust Coromandel, CJ 346, ff. 117-28. Alexander was still on the farm in 1746 when he gave testimony in another case on Daniel van der Lith’s farm concerning the maltreatment of the Khoi worker Claas by another *knecht*, Christoffel Esterhuijsen Willemsz, 1/STB 3/8, 24 January 1746. 
+[^3]: The court decided after perusing the evidence that Alexander be freed and returned to his owner, but gave no reasons, CJ 23, ff. 38-9. The documentation included the material transcribed here, as well as the evidence of three of the other slaves on the farm, Silvia van Madagascar, Pieter van de Cust Coromandel and Isaac van de Cust Coromandel, CJ 346, ff. 117-28. Alexander was still on the farm in 1746 when he gave testimony in another case on Daniel van der Lith’s farm concerning the maltreatment of the Khoi worker Claas by another *knecht*, Christoffel Esterhuijsen Willemsz, 1/STB 3/8, 24 January 1746.
 
 [^4]:  Sic. Should be *relatant*.
 
@@ -302,4 +302,4 @@ Which I declare, \[signed\] D.G. Carnspek, secretary.
 
 [^6]:  The reference here is unclear. Perhaps Jansz had been stationed on one of his employer’s other properties, possibly in the Overberg region.
 
-[^7]:  On separate sleeping quarters for slaves, see 1745 Cupido van Bengalen, n. 1. 
+[^7]:  On separate sleeping quarters for slaves, see 1745 Cupido van Bengalen, n. 1.

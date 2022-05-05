@@ -70,8 +70,8 @@ Your right honour’s humble and obedient servant,
 
 Swellendam, 11 October 1750.
 
-[^1]: David’s complaint and the surgeon’s report accompanied the letter, CJ 2485, ff. 121-2 and 126. He was punished by the local authorities and the case did not come before the Council of Justice. 
+[^1]: David’s complaint and the surgeon’s report accompanied the letter, CJ 2485, ff. 121-2 and 126. He was punished by the local authorities and the case did not come before the Council of Justice.
 
-[^2]: On the *plakkaat* concerning this, see 1718 Anthonij van Mallabaar, n. 2. 
+[^2]: On the *plakkaat* concerning this, see 1718 Anthonij van Mallabaar, n. 2.
 
-[^3]:  This report was written in October 1750. When Swellengrebel announced in 1749 that he wished to step down as governor, the Council of Policy suggested Tulbagh as his successor to the Heren XVII. However, Tulbagh officially took over from Swellengrebel only in February 1751, probably the time it took for the answer from the Heren XVII to arrive, DSAB II: 726. This may explain the use of ‘nominated’ here, indicating that Tulbagh had been proposed, but not yet confirmed, as governor. 
+[^3]:  This report was written in October 1750. When Swellengrebel announced in 1749 that he wished to step down as governor, the Council of Policy suggested Tulbagh as his successor to the Heren XVII. However, Tulbagh officially took over from Swellengrebel only in February 1751, probably the time it took for the answer from the Heren XVII to arrive, DSAB II: 726. This may explain the use of ‘nominated’ here, indicating that Tulbagh had been proposed, but not yet confirmed, as governor.
