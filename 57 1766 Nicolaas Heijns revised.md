@@ -9,11 +9,11 @@ seemed to back Flora’s claims. The fiscal was sympathetic, calling for
 Heijn’s punishment with a fine. But Heijns’s claims to the Court of
 Justice that his wife had put Flora up to making the complaint gave them
 pause for thought and Heijns does not appear to have been
-penalised.*^[^1]^
+penalised.*[^1]
 
 *The case contains some incidental details of interest, such as Flora’s
 job of selling almonds in the streets of Cape Town, a task at which she
-had little success,*^*[^2]*^* and her role of serving at table in the
+had little success,[^2] and her role of serving at table in the
 Heijns household. *
 
 **CJ 387** Criminele Process Stukken, 1766, ff. 127-28.
@@ -46,7 +46,7 @@ bloedde, daarin was verhindert geworden. Omstandiger te zien bij het,
 Flora.
 
 Weshalven den eijsscher raadsaamst heeft g’oordeelt deze meijd naar de
-ghijzelkamer^[^3]^ te zenden, en dezelve aldaar door een opperchirurgijn
+ghijzelkamer[^3] te zenden, en dezelve aldaar door een opperchirurgijn
 uijt ’s edele Compagnies hospitaal te laten verbienden \[*sic*\]. Als
 wanneer, uijtwijsens de, onder *littera* D, hierbij gevoegde,
 chirurgicale verklaaring van den tweeden oppermeester bevonden is dat
@@ -231,7 +231,7 @@ As verification of this dictum the *eijscher* has the honour, in his
 official capacity, to inform your honours that, on the 10^th\ ^of the
 previous month January, a slave *meijd*, by the name of Flora van
 Bengale, bondswoman of the defendant, the burgher Nicolaas Godfried
-Heijns,^[^4]^ brought a complaint to the *eijscher*, viz. that, shortly
+Heijns,[^4] brought a complaint to the *eijscher*, viz. that, shortly
 before noon, her said owner suddenly came into the kitchen from the room
 where he, without her being aware of this, had been lying asleep, when
 he, not only without any cause and merely under the pretext of saying:
@@ -247,7 +247,7 @@ was, however, prevented from doing this through the intervention of his
 son, Hendrik, who said that she, Flora, was already bleeding heavily
 from the first blow she had received. Which can be seen in greater
 detail in the statement of the wounded slave Flora, attached herewith
-under the letter A.^[^5]^
+under the letter A.[^5]
 
 For which reason the *eijscher* considered it prudent to send this
 *meijd* to the guardroom and to have her wounds dressed there by one of
@@ -277,7 +277,7 @@ have caused a mortal wound, or at least that death, through an
 additional accident such as that it may not have been attended to in
 time, could easily have resulted from it, seeing that the blood which
 flowed from the wound could hardly be stanched, and that fainting had
-already followed it.^[^6]^ For this reason the *eijscher*, in his
+already followed it.[^6] For this reason the *eijscher*, in his
 official capacity, presumes to conclude with good justice against the
 defendant, as follows:
 

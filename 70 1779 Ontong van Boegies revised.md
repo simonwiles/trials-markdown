@@ -7,7 +7,7 @@ for time by holding a knife to his own throat, but later threatened both
 his owner and the *knecht* with it. *
 
 *The case is typical of conflicts in the court records over the
-authority of *knechten*.*^*[^1]*^* But it is also interesting for the
+authority of *knechten*.[^1] But it is also interesting for the
 actions of Ontong’s fellow slave, Adonis van de Caab. He attempted to
 use this episode to his own advantage, by changing his original evidence
 of what happened and by telling the authorities that Ontong was innocent
@@ -16,7 +16,7 @@ cross-examination he confessed that he did this to spite his owner, and
 it was revealed that he had made plans to escape. Adonis was punished by
 the landdrost, rather than by the Council of Justice, but the case shows
 how slaves could try to use the legal system of the Company to their own
-advantage against their owners.*^*[^2]*^
+advantage against their owners.*[^2]
 
 **CJ 2487** Inkoomende Brieven, 1776-1780, Deel 3, f. 125.
 
@@ -341,14 +341,14 @@ from them, asked the said Engelbregt whether he, Ontong, too should be
 cutting, and when Engelbregt answered to this that he should just
 continue with the carrying and that he, Engelbregt, would finish cutting
 the row, this *jongen* immediately cursed the aforementioned Engelbregt
-for a *moervreeter*^[^3]^ and a child of a whore, and then asked whether
+for a *moervreeter*[^3] and a child of a whore, and then asked whether
 Engelbregt, had anything else to order as well, while adding: “Come, try
 and beat me!”, whereupon the said Engelbregt took up a piece of fire
 wood and gave this *jongen* some blows with it; while in the meantime
 the deponent’s aforesaid owner called to Engelbregt: “Go on, hit him!”,
 which is when the aforementioned Engelbregt dealt the prisoner some more
 blows. Meanwhile, the said Ontong made some movements with his arm, in
-which he held a *boslemmer* knife,^[^4]^ in the direction of the said
+which he held a *boslemmer* knife,[^4] in the direction of the said
 Engelbregt, but the said Engelbregt dealt this *jongen* a blow on his
 arm with a piece of wood so that he let it drop on the ground, and when
 the aforementioned Ontong again wanted to pick up the knife with his
@@ -361,7 +361,7 @@ not listen?” the said Ontong suddenly put his knife to his \[own\]
 throat, and said to his owner: “Come on, motherfucker! Try and beat me!”
 
 That as the deponent’s owner returned to the house again, the said
-Ontong went after him for some paces with a \[carrying\] pole^[^5]^ and
+Ontong went after him for some paces with a \[carrying\] pole[^5] and
 a knife in his hand, but immediately returned to the said Engelbrecht
 and the deponent, when Engelbregt and the deponent, from fear that they
 might be attacked by this *jongen*, walked backwards some way, but when
@@ -474,10 +474,10 @@ his bare back, thereupon to be branded and then to be put into chains,
 in which to labour his whole life on the honourable Company’s public
 works on Robben Island, with sentencing to the costs and expenditures of
 justice; and denying the otherwise drawn up *eijsch* of the
-officer.^[^6]^
+officer.[^6]
 
 Thus done and sentenced in the Castle of Good Hope on 6 May 1779, as
-also pronounced and executed on the 15^th^ thereupon.^[^7]^
+also pronounced and executed on the 15^th^ thereupon.[^7]
 
 Let the sentence be done, \[signed\] Jm. van Plettenberg.
 
@@ -554,7 +554,7 @@ slave Ontong would have caused, he would have polluted himself by giving
 a false statement, in accordance with the deposition of the
 aforementioned Adonis, and doing it under oath, through which, as he
 himself expresses it, he would have brought innocent blood on him and
-his children.^[^8]^ For which reason I then also request your most
+his children.[^8] For which reason I then also request your most
 honourable, taking into consideration all of this, to please allow, in
 accordance with the supplication of the said Nieuwout and to prevent
 further damage and manifold expences, the aforementioned Adonis to be

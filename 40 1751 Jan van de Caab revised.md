@@ -11,7 +11,7 @@ Cape Town slave grapevine.*
 *They provide intriguing examples of innovative methods used by slaves
 to escape. Their mistake was to enrol in the Company as sailors once
 they had reached the Netherlands, presumably in the hope that they would
-be sent to the East Indies and not be caught at the Cape.*^*[^1]*^
+be sent to the East Indies and not be caught at the Cape.*[^1]
 
 **CJ 33** Crimineele Regtsrolle des Casteels de Goede Hoop, 1751, ff.
 31-3.
@@ -84,10 +84,10 @@ Jan van de Caab, currently their honours’ prisoner and defendant in this
 case, because he did not scruple to brazenly leave his master, the
 farmer Hendrick Ecksteen, and, during the month of May of the past year
 1750, to flee on the ship the Hof d’ Uno from here to the
-fatherland,^[^2]^ where he remained until he recently arrived here again
+fatherland,[^2] where he remained until he recently arrived here again
 as a sailor, under the name of Jan Harmensz Grutter of St. Helena, on
 the ship Middelburg, whereupon he was delivered into the hands of
-justice.^[^3]^
+justice.[^3]
 
 The honourable *eijscher*, having delivered his action orally, to the
 purport of what is mentioned in the presentation \[i.e. *eijsch*\],

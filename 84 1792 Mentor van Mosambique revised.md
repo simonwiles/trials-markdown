@@ -3,10 +3,10 @@
 *A fight broke out between Mentor and the burgher Tielman Roos because
 Mentor refused to greet Tielman, saying he was only obliged to greet his
 owner and wife. This episode is a rare example of verbal resistance by
-slaves, although it also led to physical conflict.*^*[^1]*^* It also
+slaves, although it also led to physical conflict.[^1] It also
 illustrates the importance attached to symbolic acts in the maintenance
-of social distinctions between masters and servants.*^*[^2]*^* It
-appears as if no further action was taken.*^*[^3]*^
+of social distinctions between masters and servants.[^2] It
+appears as if no further action was taken.*[^3]
 
 **1/STB 3/12** Criminele Verklaringen, 1786-1793, unpaginated.
 
@@ -78,11 +78,11 @@ Tieleman Roos Jansz, of competent age, which goes as follows:
 
 That yesterday afternoon, when the testifier, who lives with his uncle,
 the burgher Francois Roos, was going from the house to the fields, he
-found the slave Mentor van Mosambique,^[^4]^ belonging to the burgher
+found the slave Mentor van Mosambique,[^4] belonging to the burgher
 Stephanus Francois Joubert, about 100 paces from the house, and to whom
 the testifier said in essence: “Good day, *jongen*”, while the same did
 not want to greet him, whereupon the testifier asked him if he, Mentor,
-did not greet a Christian?^[^5]^ which the slave answered by saying no,
+did not greet a Christian?[^5] which the slave answered by saying no,
 because he was not obliged to greet the testifier but only his owner and
 mistress. That, because of the insolent behaviour of this slave, the
 testifier dealt him a blow with the light *kirrij* he had in his hands,
@@ -96,7 +96,7 @@ That after this, the aforementioned slave Mentor tried to take up one
 end of a bamboo stick, that the testifier tried to beat him to it, which
 is when the aforementioned slave pushed the testifier away and lifted up
 the end of the bamboo stick. The testifier was then given a blow on his
-head, causing his hat to fall off, by him, Mentor,^[^6]^ who tried to
+head, causing his hat to fall off, by him, Mentor,[^6] who tried to
 retreat backwards; and while the testifier was following this slave, the
 same tried to give him yet another blow, which the testifier evaded,
 though, by jumping sideways.

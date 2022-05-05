@@ -1,16 +1,16 @@
 1726 SCIPIO VAN DE CUST
 
-*This testimony by Scipio van de Cust*^*[^1]*^* is part of the
+*This testimony by Scipio van de Cust[^1] is part of the
 voluminous records of the trial of a group of slaves who had escaped
 from their owners and hid out in the Blaauwberg, Tygerberg and Koeberg
 areas, from where they raided several farms over a period of six months,
-and other slaves who had aided them in the process.*^*[^2]*^* It vividly
+and other slaves who had aided them in the process.[^2] It vividly
 describes their night attack on the widow Ten Damme’s farmhouse and the
 responses of the slaves and the *knecht* who lived there. Scipio felt no
 affinity with the slave runaways, whom he describes as ‘bad
-men’.*^*[^3]*^* The chief target of the slave attackers was the *knecht*
+men’.[^3] The chief target of the slave attackers was the *knecht*
 Adam van Dijk who, to their frustration, escaped into the
-night.*^*[^4]*^
+night.*[^4]
 
 **CJ 330** Criminele Process Stukken, 1726, ff. 939-44.
 
@@ -71,7 +71,7 @@ heeft: Jongens, ik moet vlugten, laat zij neemen wat zij willen, en
 waarop die knegt, enkel een blauw hembd aanhebbende, uijt de gebrookene
 deur door etlijke slaven, die voor die deur stonden en fugativen waren,
 de vlugt heeft genoomen, werdende immediaat vervolgt door alle die
-slaven onder het geroep van: Pege, pege^[^5]^, ofte wel anders: Vat hem,
+slaven onder het geroep van: Pege, pege[^5], ofte wel anders: Vat hem,
 vat hem.
 
 Dat alle de jongens kort naar dato daar weder ten huijse zijn gekomen,
@@ -92,7 +92,7 @@ scheepel rijst, ses brooden, twee snaphaanen, twee pistoolen, vier tinne
 tafelborden, en dat vervolgens van de knegt Adam van Dijk de meeste,
 ofte wel alle de, goederen zijn ontstoolen, dewelke in een bondel
 gewonden zijnde door de fugativen ten deure uijtgedragen zijn, sonder
-dat hij comparant^[^6]^ weet te zeggen waar \[*onleesbaar*\] de selve
+dat hij comparant[^6] weet te zeggen waar \[*onleesbaar*\] de selve
 hebben bestaan, maar wel te weeten dat de knegt goude en zilveren hembd
 en hembrok knoopjes heeft gehad.
 
@@ -157,7 +157,7 @@ Schipper, with the order to watch carefully that nobody entered the
 house or fired at them.
 
 That a certain slave Floris, also belonging to *Juffrouw* Ten Damme, who
-slept in a lean-to room,^[^7]^ woke up from the aforesaid noise and,
+slept in a lean-to room,[^7] woke up from the aforesaid noise and,
 (according to his own story) being surprised, tried to run away, to
 which end he opened a window in the aforesaid lean-to room, and when he
 noticed that there were two persons armed with muskets and who were

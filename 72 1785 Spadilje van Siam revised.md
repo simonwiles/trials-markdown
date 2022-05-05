@@ -1,9 +1,9 @@
 1.  SPADILJE VAN SIAM
 
 *Spadilje was an unusual slave for two reasons: he came from
-Thailand,*^*[^1]*^* and he was owned by a free black.*^*[^2]*^ *He also
+Thailand,[^1] and he was owned by a free black.*[^2] *He also
 was a deserter, and met up with other runaways in the Hangklip
-area*^*[^3]*^* with whom he carried out a robbery on the Company
+area[^3] with whom he carried out a robbery on the Company
 *slagthuijs* in Simon’s Town. He attracted suspicion of being a runaway
 when he tried to use some of the stolen money at a nearby tavern.*
 
@@ -82,7 +82,7 @@ misen van justitie.
 
 Aldus gedaan en gesententieerd aan Cabo de Goede Hoop den 22^e^
 September 1785, mitsgaders gepronuntieerd en g’executeerd den 1^e^ der
-daaraanvolgende maand October en geëxecuteerd ten selven dage.^[^4]^
+daaraanvolgende maand October en geëxecuteerd ten selven dage.[^4]
 
 Fiat Executie, \[get.\] C.J. van de Graaff.
 
@@ -103,13 +103,13 @@ That the prisoner became a fugitive now fully three months ago and
 maintained himself both here and elsewhere in the rural areas, as well
 as in the region of Hanglip, where a certain runaway slave by the name
 of Job, belonging to the widow of the late burgher lieutenant Jan
-Hendrik Ekkert,^[^5]^ and yet another runaway slave, whose name the
+Hendrik Ekkert,[^5] and yet another runaway slave, whose name the
 prisoner says he does not know, came to join him.
 
 That the prisoner and his aforementioned comrades set out to the
-mountains of False Bay^[^6]^ and stayed in the region of Kalk Bay, which
+mountains of False Bay[^6] and stayed in the region of Kalk Bay, which
 is where the aforesaid Job forged the plan to break into the
-*slagthuijs*^[^7]^ of the honourable Company in Baaij Fals and to commit
+*slagthuijs*[^7] of the honourable Company in Baaij Fals and to commit
 theft. So that, after the said Job had made that plan known to the
 prisoner and the other *jongen*, they all went together during the night
 of the 22^nd\ ^of the past month August, to the aforesaid Baaij Fals,
@@ -121,7 +121,7 @@ keeping watch.
 
 That the aforesaid Job, after having broken open a chest in the said
 *slagthuijs*, stole from it a sum of three hundred and fifty rixdollars
-and four *schellingen*, consisting both of paper money^[^8]^ and a
+and four *schellingen*, consisting both of paper money[^8] and a
 variety of silver coins, and among which there was also a guinea, as
 well as a black velvet jacket, a brown silk frock and a white shirt.
 
@@ -133,7 +133,7 @@ some other place with the rest of the money and clothes, while the
 prisoner remained in Baaij Fals.
 
 That on a certain night, a day or three afterwards, the prisoner went
-into the tavern of Baaij Fals^[^9]^ to have a drink, but that the people
+into the tavern of Baaij Fals[^9] to have a drink, but that the people
 there, when they saw that the prisoner had some money with him, took him
 for a deserter and, moreover, also suspected him to have committed the
 aforesaid theft. So that he was taken prisoner by these people,
@@ -158,11 +158,11 @@ gallows, further to be tied to a stake and to be severely scourged with
 rods on his bare back, as well as to be branded, then to be riveted in
 chains in which to labour without payment on the public works of the
 honourable Company on Robben Island for the duration of his life, with
-sentencing to the costs and expenditure of justice.^[^10]^
+sentencing to the costs and expenditure of justice.[^10]
 
 Thus done and sentenced at the Cape of Good Hope on 22 September 1785,
 as also pronounced and executed on the 1^st^ of the following month
-October and executed on the same day.^[^11]^
+October and executed on the same day.[^11]
 
 Let the execution be done, \[signed\] C.J. van de Graaff.
 

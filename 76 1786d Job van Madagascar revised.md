@@ -1,14 +1,14 @@
 1786 JOB VAN MADAGASCAR ET AL.
 
 *This case provides details of the ways in which a group of runaways
-hiding out on Table Mountain were able to sustain themselves.*^*[^1]*^*
-They had links with the runaway community at Hangklip,*^*[^2]*^* as well
+hiding out on Table Mountain were able to sustain themselves.[^1]
+They had links with the runaway community at Hangklip,[^2] as well
 as with slaves in Cape Town, who provided them with food and a hiding
 place. They moved between the mountain and the town, raiding houses and
 farms, and at one stage brought captured cattle to the mountain. That
 such a network existed in the vicinity of the town as late as the 1780s
 shows how tentative was the Company’s control over its slave population,
-even in the heart of the colony.*^*[^3]*^
+even in the heart of the colony.*[^3]
 
 **CJ 795** Sententiën, 1782-1789, ff. 407-23.
 
@@ -244,7 +244,7 @@ That fully two years ago now, the first prisoner, Job, joined a certain
 gang of slaves – among whom were two of the honourable Johannes van
 Echten, by the names of Said and Daniel, who were already punished at
 the beginning of the year 1785 for their misdemeanours, in accordance
-with the sentence of this Council^[^4]^ – with the intention to go and
+with the sentence of this Council[^4] – with the intention to go and
 steal sheep from the garden of the repatriated honourable Adriaan van
 Schoor, but at the barking of the dogs had to retreat again from there.
 
@@ -299,7 +299,7 @@ be put on his account, and that he would then perhaps be in danger of
 being hanged or broken on the wheel. During this time the first prisoner
 was able to go now and then to his gang, which stayed on Table Mountain
 during the day, but at night roamed around the gardens of Rondebosje and
-Roode Bloem^[^5]^ to look for food since he was never able to bring as
+Roode Bloem[^5] to look for food since he was never able to bring as
 much food as would be sufficient for them all from the said garden
 \[i.e. Van Echten’s\].
 
@@ -412,14 +412,14 @@ of three consecutive years and to be sent home to their owners like
 this, further the sixth prisoner, after having witnessed the
 aforementioned execution, to be whipped by the *caffers* and to be sent
 home to his owner and the seventh prisoner, after also having witnessed
-the execution, to be sent from here to the Indies;^[^6]^ with sentencing
+the execution, to be sent from here to the Indies;[^6] with sentencing
 all the prisoners to the costs and expenditure of justice, and denying
 the further or otherwise drawn-up *eijsch* and the *conclusie* taken by
 the Officer.
 
 Thus done and sentenced at the Cape of Good Hope on 18 December 1786, as
 also pronounced in the Castle of Good Hope on the 23^rd\ ^of the same
-month and executed on the same day.^[^7]^
+month and executed on the same day.[^7]
 
 Let the sentence be done, \[signed\] C.J. van Graaff.
 

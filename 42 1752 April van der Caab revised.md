@@ -2,7 +2,7 @@
 
 *April van de Caab ran away from his master but was obliged after some
 time to take up employment on another farm, passing himself off as a
-*Bastaard-Hottentot*.*^*[^1]*^* He was recognised by Khoi workers and
+*Bastaard-Hottentot*.[^1] He was recognised by Khoi workers and
 returned to his master, but on the way back escaped and stabbed one of
 the Khoi. *
 
@@ -11,9 +11,9 @@ complexity of their interactions with Khoi and other slaves whom they
 met when on the run. It is striking that April, as a locally born slave,
 did not attempt to leave the colony, as did many slaves who had known
 another life before being brought to the Cape, but rather stayed in the
-only region with which he was familiar.*^*[^2]*^* *
+only region with which he was familiar.[^2] *
 
-**CJ 788** Sententiën, 1750-1755, ff. 103-8.^[^3]^
+**CJ 788** Sententiën, 1750-1755, ff. 103-8.[^3]
 
 Aangesien April van de Caab, lijfeijgen van den landbouwer Pieter
 Therron \[*sic*\], oud naar gissing 20 jaaren, thans ’s heeren gevangen,
@@ -136,7 +136,7 @@ the aforesaid Fortuijn and, after having scraped off the mould from the
 bread with a knife and after they had finished their meal, the
 aforementioned Willem filled a pipe with tobacco. While doing so, the
 prisoner, who was sitting close to the aforesaid shepherd and had asked
-him in Malay^[^4]^ for a knife to cut the bread with, and after having
+him in Malay[^4] for a knife to cut the bread with, and after having
 received the knife from him, said: “There is a wagon, but it is riding
 off the road”, which was denied by the said Willem and Jantje, who
 claimed that the wagon was not off but actually on the road, and about
@@ -178,7 +178,7 @@ over to the executioner, and to be punished with the rope on the gallows
 so that death will follow; further that his dead body be dragged to the
 outer place of execution and there, yet again, hanged upon the gallows,
 to remain thus until being consumed by the air and the birds of heaven,
-with sentencing to the costs and expenditure of justice.^[^5]^
+with sentencing to the costs and expenditure of justice.[^5]
 
 Thus done and sentenced in the Castle of Good Hope on 8^\ ^June 1752, as
 well as pronounced and executed on the 10^th^ thereupon.

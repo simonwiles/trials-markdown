@@ -2,11 +2,11 @@
 
 *This group of runaway slaves (which unusually included a female) joined
 the community of runaways at Hangklip which had been in existence since
-at least the 1720s.*^*[^1]*^* They seem to have been fugitives for a
+at least the 1720s.[^1] They seem to have been fugitives for a
 long time and to have eluded several commandos, indicative of how well
 they knew the terrain. They were finally captured when they were given
 away by a Khoi who had been forced to join them when he accidentally
-came across them.*^*[^2]*^
+came across them.*[^2]
 
 The composition of the group was constantly changing; this was not a
 band of people who ran away together and stayed together. Groups divided
@@ -25,7 +25,7 @@ slaaf van voornoemde burger brandmeester, sieur Arend van Wielig, Maij
 van Mosambicque, slaav van den burger Jan Krige, ieder oud na gissing 25
 jaaren, Carolus van Madagascar, slaav van den burger Jacobus Louw, oud
 na gissing 30 jaren, Damon van Bougies, slaav van den burger Jacobus
-Bierman, oud na gissing 40 jaaren, en October van Nias^[^3]^, lijfeijgen
+Bierman, oud na gissing 40 jaaren, en October van Nias[^3], lijfeijgen
 van den burger, Jan Bierman, oud na gissing 25 jaar, thans ’s heeren
 gevangens, vrijwillig beleeden hebben, en den edelachtbaare Raad van
 Justitie evident gebleeken is:
@@ -119,7 +119,7 @@ zoeken.
 Dat alstoen, door de gevangens Cupido, October van Madagascar en Jan, ’t
 kistje opengebrooken zijnde, daarin bevonden was: een zilvere vrouwe
 beugel tas, een paar dito schoegespen, een paar goude oorkrabben, een
-swarte zeijde gon en tabillée,^[^4]^ een geel chitz jakje en rok, een
+swarte zeijde gon en tabillée,[^4] een geel chitz jakje en rok, een
 wit dito dito dito, een dito chitze rok, een dito dito met een rand,
 drie vrouwe hemden, drie mans dito, ses witte doeken, een hoed, een
 swarte broek, een dito hemdrok, twee gebreijde mutzen, twee scheermessen
@@ -178,7 +178,7 @@ hem Hottentot als een meedemakker aangenomen had.
 
 Dat de gevangens Cupido, October van Madagascar, Jan en Maij hem
 Hottentot meede neemende van de plaats van gemelde Krige na die van den
-burger ...^[^5]^ Naude zig hadden begeeven om aldaar een schaap te
+burger ...[^5] Naude zig hadden begeeven om aldaar een schaap te
 steelen, ’tgeen hun, vermits de dageraat doorbrak, was mislukt.
 
 Dat de gevangens de geheele nagt doorgeloopen hebbende, en gevolgelijk
@@ -290,10 +290,10 @@ there a fellow runaway slave, Cupido van Ternaten of the widow of the
 late burgher Thomas Dreijer, who had since become ill in the prison and
 moreover died and, on account of the manifold thefts committed by him,
 was dragged to the outer place of execution and buried there under the
-gallows.^[^6]^
+gallows.[^6]
 
 That the prisoner Carolus went with the aforementioned Cupido and the
-still-fugitive slave Job of the widow Eckhard^[^7]^ to the farm of the
+still-fugitive slave Job of the widow Eckhard[^7] to the farm of the
 burgher Jan Otto and stole there two horses from the stable, and were
 pursued the following morning by the aforesaid Otto and the burgher Jan
 Wilkens.
@@ -362,12 +362,12 @@ Hottentots sleeping under it, in spite of which the prisoners Cupido and
 Jan had the audacity to steal the small back chest from the wagon and to
 take it to the prisoners October van Madagascar, Anthonij and Maij, who
 in the meantime had been looking for fruit and vegetables in the slaves’
-garden.^[^8]^
+garden.[^8]
 
 That when the little chest was broken open by the prisoners Cupido,
 October van Madagascar and Jan, the following were found in it: one
 woman’s purse with silver clasps, one pair of silver shoe buckles, one
-pair of gold ear-rings, one black silk skirt *en tablier*,^[^9]^ one
+pair of gold ear-rings, one black silk skirt *en tablier*,[^9] one
 small jacket and dress of yellow chintz, one small jacket and dress of
 white chintz, one dress of white chintz, one dress of white chintz with
 a border, three women’s shifts, three men’s nightshirts, six white
@@ -375,9 +375,9 @@ kerchiefs, one hat, one pair of black trousers, one black jacket, two
 knitted bonnets, two razors and some clean linen; while all the
 prisoners claim not to have found any paper money in it, which, if it
 had been there, they presume must have been in a packet which they,
-thinking it to be letters, had torn up^[^10]^ and, together with a large
+thinking it to be letters, had torn up[^10] and, together with a large
 part of the woman’s clothes, hid amongst the bushes and stones, without
-the prisoner Jan being able to point it out or to find it again.^[^11]^
+the prisoner Jan being able to point it out or to find it again.[^11]
 The prisoners Cupido and October took a small part and the prisoner Jan
 a large part of the aforesaid goods for themselves, whereas the
 prisoners Anthonij and Maij did not receive any of it.
@@ -424,7 +424,7 @@ instead accepted him as a fellow comrade.
 
 That the prisoners Cupido, October van Madagascar, Jan and Maij took the
 Hottentot with them off the farm of the said Krige, and proceeded to the
-farm of the burgher ...^[^12]^ Naude, where they wanted to steal a
+farm of the burgher ...[^12] Naude, where they wanted to steal a
 sheep, but failed to do this as day was breaking.
 
 That as the prisoners had been walking throughout the whole night and
@@ -490,7 +490,7 @@ punishment, whereafter they are to be whipped by the *caffers* and to be
 riveted in chains for a period of one year, thus to be sent home
 forthwith to their owners; with sentencing them to the costs and
 expenditure of justice, and denying the further or otherwise drawn-up
-*eijsch* and delivered *conclusie* of the officer.^[^13]^
+*eijsch* and delivered *conclusie* of the officer.[^13]
 
 Thus done and sentenced at the Cape of Good Hope on 24 Augustus 1786, as
 also pronounced in the Castle of Good Hope on the 2^nd\ ^of the

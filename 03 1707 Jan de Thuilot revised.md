@@ -7,22 +7,22 @@ them of stealing his keys. This was despite the advice of a visiting
 farmer, that errant slaves should be reported to the authorities rather
 than being punished severely by their owner: in the early eighteenth
 century, Company authority was only slowly extending into the world of
-masters and their slaves.*^*[^1]*^
+masters and their slaves.*[^1]
 
 *De Thuilot’s letter to the court (written in French) tried to shift the
 blame for the deaths onto a neighbour who had assisted him in the
 punishment, but he clearly realised his guilt and fled before he could
-be arrested. The Council of Justice tried him in absentia,*^*[^2]*^* and
-sentenced him to be shot. *^[^3]^
+be arrested. The Council of Justice tried him in absentia,[^2] and
+sentenced him to be shot. *[^3]
 
 *This was not the first time a Cape burgher had been sentenced to death
 for murdering a slave, but it was the last time such a sentence was
-passed in the VOC period.*^*[^4]*^* The fact that this was a double
+passed in the VOC period.[^4] The fact that this was a double
 murder, carried out mainly by De Thuilot himself (rather than the result
 of a whipping ordered by him, but administered by someone else) and
 including a (nominally) free Khoi servant as victim, may explain its
 severity. In any event, De Thuilot was not captured and the execution
-was never carried out.*^*[^5]*^* *
+was never carried out.[^5] *
 
 **CJ 782** Sententiën, 1705-1713, ff. 136-141.
 
@@ -34,7 +34,7 @@ gemaakt aan twee abominable manslagen aan een zijner slaaven Andries, en
 van bij hem in dienst zijnde Hottentot, Caffer genaamd, waarop hem
 landdrost, t’ zijner verzoeken, vermits zijn aufugie, is verleend
 provisie, beneevens een eerste, tweede en derde citatie bij edicte,
-mitsgaders een vierde mandament *ex superabundanti*,^[^6]^ met een
+mitsgaders een vierde mandament *ex superabundanti*,[^6] met een
 premie van vijfentwintig rijxdaalders voor degeene die hem mog te komen
 te apprehendeeren en in handen van de justitie te leeveren, beneevens
 een interdictie penaal voor alzulke die hem opgehouden, helpen verbergen
@@ -124,7 +124,7 @@ mijn indispositie is ’t mij onmogelijk en dierhalve heb ick nodigh
 geacht mijne redenen bij geschrifft te senden aen de heer d’Ableing en
 sijne achtbare Raad – mijn redenen sijn dese:
 
-Dat op Woensdagh, den 4^e^ deser maand, omtrent den avond,^[^7]^ ick
+Dat op Woensdagh, den 4^e^ deser maand, omtrent den avond,[^7] ick
 verstaan heb dat mijn sleutels waren wegh genomen, dien selve dagh
 hebben mijn slaven en Hottentots koren gesneden bij Louis le Riche,
 soodat ick niet eer als ’s avonts naer mijn sleutels konde vragen, als
@@ -162,7 +162,7 @@ ram, die ick haer beloofft had, en als ick die gegeven had, soo heb ick
 mijn affscheijt van Philip Menar genomen omme mijn schapen te gaen
 keren, die in ’t coorn liepen. Philip Menar was in mijn huijs, en segt
 gesien te hebben dat Pomerijntje haer een brandend hout onder de neus
-stack en haer de baerd affbrande, ick thuij\[s\]^[^8]^ comende, soo
+stack en haer de baerd affbrande, ick thuij\[s\][^8] comende, soo
 seijde mijn slaav: Meester, ontbind mij, en ick sal de sleutels gaen
 soeken; daerop heb ick hem losgemaek\[t\] en ick gaff twe Hottentots met
 hem om de sleutels te gaen soeken. Sij komen weder sonder sleutels,
@@ -194,9 +194,9 @@ living in the Wagemaakers Valeij in the district of Drakenstein, had
 made himself guilty in his own house of two abominable homicides to one
 of his slaves, Andries, and to a Hottentot working for him, named
 Caffer. The landdrost was then, at his own request and because of his
-\[De Thuilot’s\] flight, granted the right to act in anticipation,^[^9]^
+\[De Thuilot’s\] flight, granted the right to act in anticipation,[^9]
 together with a first, second and third writ of summons, as well as a
-fourth mandate in superabundance,^[^10]^ with a premium of twenty-five
+fourth mandate in superabundance,[^10] with a premium of twenty-five
 rixdollars for whoever may apprehend him and deliver him into the hands
 of justice, besides a penal prohibition against all who support, help to
 hide or may provide him with any provisions; that if he did not appear
@@ -255,10 +255,10 @@ which their honours have to take into account in this, practising
 justice in the name and on behalf of the high and mighty Lords States
 General of the free United Netherlands and, having judged the defaulter
 Jan du Thuilot, is sentencing him with this: that when he will have come
-into the hands of justice here, to be shot with an arquebus^[^11]^ so
+into the hands of justice here, to be shot with an arquebus[^11] so
 that death will follow, with confiscation of all his goods with, after
 the costs and expenditure of justice had been deducted, the one half for
-the *eijscher* and the other half for the Chamber.^[^12]^
+the *eijscher* and the other half for the Chamber.[^12]
 
 Thus done and sentenced in the Castle of Good Hope on 5 July 1708.
 
@@ -286,7 +286,7 @@ had been reaping wheat at Louis le Riche so that I could not ask for my
 keys until the evening, which is when they came home and I discovered
 that my slaves and a Hottentot had been drinking, so that I did not
 doubt that they were the ones who had taken my keys. I first asked the
-said slave^[^13]^ who had been drinking where my keys were, to which he
+said slave[^13] who had been drinking where my keys were, to which he
 answered that he knew nothing of it; I then asked the Hottentot, who
 answered me the same. Therefore, not believing that anybody but them had
 taken it, I immediately tied them up to make them confess, and after I
@@ -295,7 +295,7 @@ want to, this forced me to take a rope and to beat them with it, and
 during this beating the one said to the other: “You give the keys”,
 while the other one said: “You give them”, from which I realised that
 they had taken the keys. With this confession I doubled the lashes and
-gave them some more with the same rope. Pomerijntje^[^14]^ and Skinny
+gave them some more with the same rope. Pomerijntje[^14] and Skinny
 Barent came to visit me, whereupon Pomerijntje took Skinny Barent’s cane
 and also beat \[them\] with it. Upon this Skinny Barent said: “Leave
 them be, and take them to Stellenbosch tomorrow”, at the same time I
@@ -304,7 +304,7 @@ nonetheless still trussed so that they would not run away, in order to
 take them to Stellenbosch the following day. I ordered my other slave
 that he should take care of the tied-up ones and, at about midnight, I
 went to sleep, leaving Pomerijntje and Skinny Barent still up. Skinny
-Barent said good night to me, but I did not understand it^[^15]^ and
+Barent said good night to me, but I did not understand it[^15] and
 then only Pomerijntje remained up and he, according to the report of the
 slaves and Hottentots, trampled with his foot several times on their
 chests and did this, so it is said, because of a hatred which he had had

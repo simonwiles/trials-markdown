@@ -19,10 +19,10 @@ some were fearful of being shot at by ‘Dutchmen’ but were intimidated by
 one of their number who threatened them with the kind of whipping that
 an owner usually gave, and that slaves did not usually wear white
 shirts. Dress, as much as gun ownership, defined status in the
-colony.*^*[^1]*^* *
+colony.[^1] *
 
 *There is no record that this case was taken further, but doubtless Hop
-was given a warning by the landdrost.*^*[^2]*^* *
+was given a warning by the landdrost.[^2] *
 
 **1/STB 3/9** Criminele Verklaringen, 1740-1746, unpaginated.
 
@@ -41,7 +41,7 @@ dier tijd niet anders als slaaven van gemelten sieur Hop laagen.
 
 Dat hij comparant alsdoen, in een camer die open stond, gesien heeft,
 eenige schietgeweeren, alsmeede stelroers, waarbij insgelijk een
-bandelier met een kruijthooren en kogel\[…\]^[^3]^ was, hebbende hij
+bandelier met een kruijthooren en kogel\[…\][^3] was, hebbende hij
 comparant verscheijde maalen tevooren gesien aldaar ook kruijt en kogels
 waren.
 
@@ -220,7 +220,7 @@ of *Sieur* Hop’s slaves, who were waiting there to ride into the veld to
 shoot game, having with them two guns and a bandolier.
 
 That the deponent asked one of these slaves, who was the keeper of this
-post and named Alexander:^[^4]^ “Where do you want to go to with this
+post and named Alexander:[^4] “Where do you want to go to with this
 wagon”, to which the same answered: “I want to ride into the veld to
 shoot game”, to which the deponent replied: “You may not do that; after
 all, it is forbidden”, to which this slave answered the deponent most
@@ -228,7 +228,7 @@ impudently: “What? I shall ride into the veld”.
 
 That thereupon the deponent heard, while riding away, that the other
 slaves said to the aforementioned Alexander: “We don’t want to ride into
-the veld, there is that Dutchman^[^5]^ who has seen us, and who would no
+the veld, there is that Dutchman[^5] who has seen us, and who would no
 doubt chase after us and would shoot us dead in the veld”, to which the
 aforementioned Alexander replied: “What, you will go with me, or I shall
 tie you onto the ladder and beat you”, but the deponent could not hear

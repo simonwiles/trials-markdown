@@ -1,21 +1,21 @@
 1.  MICHIEL DANIEL LOURICH
 
 *Slaves were often caught up in the domestic disputes of their owners.
-Michiel Lourich*^[^1]^* was clearly a violent man who both beat his wife
+Michiel Lourich[^1] was clearly a violent man who both beat his wife
 and ordered his slave January to whip his female slave Diana, causing
 the latter’s death. The reasons for his abuse of Diana are not clear,
 but they may have been linked to his dispute with his wife, whom he had
-thrown out of the house*^*[^2]*^*. Fabricius, the Company soldier who
-was lodging at Lourich’s house,*^*[^3]*^* was clearly shocked by his
+thrown out of the house[^2]. Fabricius, the Company soldier who
+was lodging at Lourich’s house,[^3] was clearly shocked by his
 behaviour, towards both his wife and Diana, and left the household. *
 
 *The fiscal did not recommend a sentence, but the court decided that
 Lourich should be banished from the Cape ‘as soon as possible’ and sent
-back to the Netherlands at his own cost ‘as a useless subject’.*^*[^4]*^
+back to the Netherlands at his own cost ‘as a useless subject’.*[^4]
 
 *Included here are two testimonies, those of the lodger soldier Jan
 Fabricius, and that of one of Lourich’s slaves, Januarij, both of whom
-witnessed the events, as well as a report on the autopsy.*^*[^5]*^
+witnessed the events, as well as a report on the autopsy.*[^5]
 
 **CJ 345** Criminele Process Stukken, 1740, ff. 581-83.
 
@@ -284,7 +284,7 @@ this time, the wife of said Lorich, for which reason, he asked her:
 “Lorich had locked the door of the room”. The deponent then went into
 his bedroom where he dressed himself, during which time the said burgher
 Lorich came from his room, whereupon the said wife of Lorich asked her
-husband, when they were both in the *voorhuijs*,^[^6]^ if she might go
+husband, when they were both in the *voorhuijs*,[^6] if she might go
 out, to which the same answered her: “No, you will stay at home”, which
 is when she stood up from the chair on which she had sat down just a
 moment before, saying: “I am going out”. Upon this, the aforementioned
@@ -295,7 +295,7 @@ whereafter this woman indeed left the house with her child on the arm.
 That the deponent also went out, returning home in the evening at about
 six o’clock and found them sitting with abovementioned Lorich in the
 room, the boatswain of the ship’s yard \[at the Cape\], Laurens
-Staff,^[^7]^ who – as the deponent could hear – was doing his utmost to
+Staff,[^7] who – as the deponent could hear – was doing his utmost to
 persuade Lorich, who was uttering several swearing words, to take back
 again into his house his aforementioned wife. Hearing this, the deponent
 went to the stoep where he walked up and down, and shortly hereafter the
@@ -491,7 +491,7 @@ external sharp instrument, and also wounds on numerous places over the
 whole body, with bruises on the skin, to outward appearances caused by
 *sjambok* lashes, but which are not mortal wounds; also being unable to
 determine if death was caused by them, or rather by suddenly drinking
-\[something\] cold on a heated and wholly agitated body,^[^8]^ or
+\[something\] cold on a heated and wholly agitated body,[^8] or
 because of the cold, since the corpse was found totally naked on the
 first inspection.
 

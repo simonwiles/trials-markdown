@@ -2,17 +2,17 @@
 
 *This case reveals the problems that slaves faced in forming permanent
 emotional and sexual relationships when they could be separated by sale
-at any time.*^*[^1]*^* Anthonij’s attempts to get back to the farm from
+at any time.[^1] Anthonij’s attempts to get back to the farm from
 which he had been sold were caused by his separation from Jannetie, the
 slave whom he refers to as his ‘wife’, although VOC law did not
-recognise the right of slaves to marry.*^*[^2]*^* His discovery that she
+recognise the right of slaves to marry.[^2] His discovery that she
 had taken another partner after his permanent and forced departure led
 to his attack on her and his subsequent attempted suicide – whether from
 despair at her infidelity, or from fear of punishment for his attack, is
 unclear. *
 
 *It is noteworthy that the court imposed a milder sentence than the
-death penalty recommended in the *eijsch*,*^*[^3]*^* presumably having
+death penalty recommended in the *eijsch*,[^3] presumably having
 some sympathy for Anthonij’s predicament. Nonetheless, he was still
 whipped, branded, forced to work in chains and returned to his new
 owner. Given his attempted suicide, it is questionable which fate he
@@ -29,7 +29,7 @@ through the scribe of the court.*
 **CJ 784** Sententiën, 1717-1725, ff. 164-69.
 
 Alsoo Anthoni \[*sic*\] van Goa, oud naar gissing dertig jaren,
-lijfeijgen van de burgeresse Beatrix Verweij,^[^4]^ althans ’s heeren
+lijfeijgen van de burgeresse Beatrix Verweij,[^4] althans ’s heeren
 gevangen, buijten pijn of dwang van banden, van ijsers, ofte eenige de
 minste bedrijging van dien, vrijwillig heeft geconfesseert, en den
 edelagtbare Raad van Justitie deeses gouvernements evident en ten vollen
@@ -328,7 +328,7 @@ the honourable Council of Justice of this government:
 That the prisoner was sold by the burgher Jan Oberholster on his public
 auction to the aforementioned Beatrix Verweij and, having rendered his
 services there for a period of about two months, obtained (as he
-asserts) a permission letter^[^5]^ from his said owner to collect his
+asserts) a permission letter[^5] from his said owner to collect his
 things, which were being taken care of by the slaves of the farmer Jan
 Jurgen Roos, from there, on which occasion he took along a blanket.
 
@@ -358,8 +358,8 @@ shown him in court, inflicted a wound in the abdomen of the
 aforementioned slave, Jannetie, underneath the stomach, about three
 fingers above the navel, penetrating internally to a depth of five
 fingers and externally three fingers in length, so that the
-omentum^[^6]^ hung from the wound a quarter of the way and, moreover,
-that the inner membrane of the tissue was perforated;^[^7]^ confessing
+omentum[^6] hung from the wound a quarter of the way and, moreover,
+that the inner membrane of the tissue was perforated;[^7] confessing
 to have done this with the intention to take her life.
 
 That the prisoner after having perpetrated this atrocious wounding, went
@@ -449,7 +449,7 @@ Answer: The final time to have stayed at Abraham Cloete.
 
 Article 7: How long he remained there and elsewhere?
 
-Answer: That on that evening, after he had gone from the post^[^8]^ of
+Answer: That on that evening, after he had gone from the post[^8] of
 his mistress, he slept a night on the post of his former master, the
 second night on the post of the aforementioned Abraham Cloete and the
 day thereafter the *knecht* of his mistress came to get him from there.
@@ -509,7 +509,7 @@ Article 18: In what way he performed this?
 Answer: This *meijd* had sworn I will never take another man for as long
 as you live, yet when he saw that she was lying with another man, then
 my heart ached, I then pushed away the *jongen* and I stabbed her with a
-knife in the abdomen.^[^9]^
+knife in the abdomen.[^9]
 
 Article 19: Why he had did this?
 

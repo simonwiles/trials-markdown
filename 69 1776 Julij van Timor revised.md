@@ -1,15 +1,15 @@
 1.  JULIJ VAN TIMOR
 
-*Julij van Timor*^[^1]^*stole items from his owner’s bedroom at night
+*Julij van Timor[^1] stole items from his owner’s bedroom at night
 and then attacked other members of the family, slaves and a *knecht* who
 tried to apprehend him. He had been recently purchased in order to do
 blacksmith work on the farm, under the unusual arrangement that he could
-be returned if he did not prove satisfactory.*^*[^2]*^* *
+be returned if he did not prove satisfactory.[^2] *
 
 *Julij fled after these events and was only recaptured several days
-later on the beach in Cape Town.*^*[^3]*^* Although the events took
+later on the beach in Cape Town.[^3] Although the events took
 place in April, some of the testimonies were only collected several
-weeks later and sentence was not passed until August.*^*[^4]*^* *
+weeks later and sentence was not passed until August.[^4] *
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
 
@@ -29,7 +29,7 @@ Gemelde slaaf Julij zig bij den relatant wel gedragen had, tot laatst
 gepasseerde Zondag, den 31^e^ der even afgeweekene maand Maart, als
 wanneer den relatant, des avonds ten half negen uuren, naar bed gegaan
 zijnde, zonder eenig ’t minste onraad op zijn plaats te hebben vernomen,
-en zig met zijn voorsoontje, Jacobus Dafel^[^5]^ (als zijnde ’s
+en zig met zijn voorsoontje, Jacobus Dafel[^5] (als zijnde ’s
 relatants huijsvrouw toen niet t’ huijs geweest), te slapen nedergelegd
 had, des nagt omtrent 12 uuren wakker was geworden, horende eenige
 beweeging alsof er iets in de kamer gesleept wierd, dat den relatant zig
@@ -47,7 +47,7 @@ geborgene sleutels weggenomen waren, mitsgaders dat er een nieuwe velg
 tot een wagen wiel in ’t gemelde vertrek op den vloer leggende was;
 waarop hij relatant den, bij hem wonenden, wagenmaker, Jan Wagemakers
 \[*sic*\] genaamt, die in een buijtenkamer slapende was, geroept en hem
-sulx aangeweesen had,^[^6]^ zij vervolgens naar ’t slaven^[^7]^ waren
+sulx aangeweesen had,[^6] zij vervolgens naar ’t slaven[^7] waren
 gegaan om visitatie te doen, als zijnde den relatant in mening geweest
 dat de slavinne Eva van de Caab, die des avonds in de kamer het bed
 opgemaakt had, van dit geval iets weten, of zelfs handdadig weesen
@@ -67,7 +67,7 @@ had, wie daar was, dog geen antwoord gekregen, nog iemand gesien had; op
 ’twelke den relatant binnen gekomen en de deur toegeslooten hebbende, na
 verloop van een quartier uurs wederom op de deur, als voren, hoorende
 slaan, had gevraagd, wie daar was, ten antwoord bequam (s.v.):
-Moern.^[^8]^, maak open!, waarop den relatant weder had gevraagd: Wie
+Moern.[^8], maak open!, waarop den relatant weder had gevraagd: Wie
 ben jij dan?, wierd g’antwoord: Hondejongen, maak open!, dat hij
 relatant daarop zijne kinders \[*sic*\] toegeroepen hebbende: Neemd een
 roer en schiet dat hem de damp de keel uitkomt! hij verder geen gewag
@@ -276,7 +276,7 @@ The said slave Julij behaved himself well at the testifier’s until last
 Sunday, the 31^st^ of the just passed month of March, on which occasion
 the testifier went to bed at half past eight in the evening, without
 having noticed anything wrong on his farm and lay down to sleep with his
-little *voorzoon*^[^9]^ Jacobus Dafel (since the testifier’s wife was
+little *voorzoon*[^9] Jacobus Dafel (since the testifier’s wife was
 not at home at this time), until he was awakened at about twelve o’clock
 that night, hearing a movement as if something was being dragged in the
 room. That the testifier kept silent and shortly thereafter heard
@@ -334,7 +334,7 @@ four times, but then took off in flight very swiftly, without him being
 caught up with during the chase and hunt. Further, that on the following
 morning they found on the ground, at the place where the aforementioned
 Julij had stabbed Christoffel Dafel with the *assegaaij*, the knife of
-Julij, still in its sheath.^[^10]^
+Julij, still in its sheath.[^10]
 
 Finally, that yesterday morning, the third of this month, the
 testifier’s wife found the keys, which were missing from the cabinet, in
@@ -430,7 +430,7 @@ at that moment, the aforesaid Jan Wagenmakers – who, thinking that there
 might have been runaway slaves on the farm, had picked up a pitchfork –
 also came outside, when the said Tafel, while the prisoner was running
 towards this man \[Wagenmakers\], called to him: “Beware, it is little
-Julij,^[^11]^ who has an *assegaaij* in his hands, and who has stabbed
+Julij,[^11] who has an *assegaaij* in his hands, and who has stabbed
 at me with it!”
 
 That the wagonmaker then asked the prisoner: “Julij! what have you done
@@ -449,7 +449,7 @@ cabinet above the prisoner’s bed amongst the wood piled on top of the
 beams there. In the meantime, the prisoner had set out to the Cape where
 he, after having roamed around for a couple of days, was taken prisoner
 on the beach by a servant of justice, and thus was taken into
-arrest.^[^12]^
+arrest.[^12]
 
 Now, although the prisoner did not at all want to confess during the
 judicial enquiry that it was with the intention to steal that he had
@@ -478,7 +478,7 @@ his neck on one of the posts of the gallows, further to be tied to a
 stake and be severely scourged with rods on his bare back, thereupon to
 be branded, then to be riveted in chains, in which to labour on the
 public works on Robben Island for the remainder of his life, with
-sentencing to the costs and expenditure of justice.^[^13]^
+sentencing to the costs and expenditure of justice.[^13]
 
 Thus done and sentenced in the Castle of Good Hope on the first of
 August 1776, as also pronounced and executed on the tenth thereupon.

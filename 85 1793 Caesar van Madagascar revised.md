@@ -3,11 +3,11 @@
 *Caesar van Madagascar told his owner that he had a ‘right to speak’ his
 own mind on how best to do his farm work and organise his time – a rare
 indication in the Cape records of the overt assertion of psychological
-independence by a slave.*^*[^1]*^* Caesar’s owner retaliated with blows,
+independence by a slave.[^1] Caesar’s owner retaliated with blows,
 which Caesar finally resisted, not by attacking his master, but by
 breaking the sjambok. This was sufficient to ensure his sentence of 25
 years’ hard labour in chains. Caesar’s refusal to be totally subservient
-was a threat to the hierarchy of control in a slave society.*^*[^2]*^
+was a threat to the hierarchy of control in a slave society.*[^2]
 
 **CJ 796** Sententiën, 1790-1794, ff. 279-284.
 
@@ -138,7 +138,7 @@ silent, and I must retain my right to speak”, while adding: “*Baas* must
 stop beating me like this”.
 
 That hereupon the prisoner’s owner fetched a so-called hind oxen
-*sjambok*^[^3]^ and gave the prisoner a lash with it. That finally the
+*sjambok*[^3] and gave the prisoner a lash with it. That finally the
 prisoner did not scruple to give such free rein to his disobedient
 behaviour as to hold the *sjambok* tight with his left hand and then to
 cut it with a knife, which he claimed to have taken off his bed, yet,
@@ -171,7 +171,7 @@ thus to serve for the period of 25 successive years without wages on the
 honourable Company’s public works on Robben Island, or elsewhere, with
 sentencing of the prisoner to the costs and expenditure of justice, and
 denying the further or otherwise drawn-up *eijsch* or delivered
-*conclusie* of the officer.^[^4]^
+*conclusie* of the officer.[^4]
 
 Thus done and sentenced at the Cape of Good Hope on 7 October 1793, as
 also published on 9 November and executed on the same day.

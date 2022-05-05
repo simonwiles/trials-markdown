@@ -1,11 +1,11 @@
 1775 JEPHTA VAN MADAGASCAR
 
 *Jephta tried to poison his mistress’s cooking pot by placing a snake
-head in it.*^*[^1]*^* This was a specific retaliation since he resented
+head in it.[^1] This was a specific retaliation since he resented
 having to fetch ingredients for her from a neighbouring farm on a
 Sunday, and not a sign of general slave resistance. When the head was
 found, he tried to transfer the blame onto Carolina, his fellow Malagasy
-slave cook.*^*[^2]*^* *
+slave cook.[^2] *
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
 
@@ -120,8 +120,8 @@ That during the forenoon on Sunday of the previous week, when her
 mistress had ordered the slave Jephta van Madagascar to go and collect
 some cabbages on the farm of the former *heemraad*, *Monsieur* Jacobus
 Conterman, the same said, while turning around and leaving the kitchen:
-“Your *moer*,^[^3]^ can’t another *jongen* go to collect the cabbages! I
-have to plant my onions”,^[^4]^ which the testifier, who was at this
+“Your *moer*,[^3] can’t another *jongen* go to collect the cabbages! I
+have to plant my onions”,[^4] which the testifier, who was at this
 time alone in that room, heard very clearly. That the said Jephta then
 departed and again got home at midday with some cabbage in a bag; that
 in the afternoon the testifier’s mistress herself prepared a pot full of

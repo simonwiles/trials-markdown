@@ -4,7 +4,7 @@
 insight into the desperation to which some slaves were reduced. Slave
 suicides were relatively common and were of concern to their owners and
 the authorities, not least because they were thus deprived of valuable
-property.*^*[^1]*^* *
+property.[^1] *
 
 **1/STB 18/155** Notariële Verklaringen, 1706-1714, unpaginated.
 
@@ -41,7 +41,7 @@ Jan. Thus it is that we declare, after a proper inspection, that the
 said slave had a wound on his head, going upwards to the temple of the
 head, which he said he himself had inflicted with a knife, because he
 did not wish to live any longer, saying besides, in essence: “I wish to
-die or to be sold, because I cannot keep up with working.”^[^2]^
+die or to be sold, because I cannot keep up with working.”[^2]
 
 Thus investigated and done at the aforesaid place and day.
 

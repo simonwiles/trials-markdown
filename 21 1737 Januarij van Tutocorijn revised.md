@@ -1,8 +1,8 @@
 1.  JANUARIJ VAN TUTOCORIJN
 
-*Januarij van Tutocorijn*^*[^1]*^* was maltreated by his owner, the
+*Januarij van Tutocorijn[^1] was maltreated by his owner, the
 widow Van der Spuij, for failing to bring home sufficient koeli
-geld.*^*[^2]*^* He was beaten and sent out again without being fed, and
+geld.[^2] He was beaten and sent out again without being fed, and
 so secretly slept over in the house of another burgher, being discovered
 there by the slaves and sent to the authorities. *
 
@@ -17,7 +17,7 @@ houseowner would be legally entitled to kill a strange ‘swarte jongen’
 whom he found in his house at night. This was in the year of a general
 panic by the authorities that slaves in and around Cape Town were
 getting out of control, which might explain the fiscal’s
-concern.*^*[^3]*^* Widow Van der Spuij’s maltreatment was, in his
+concern.[^3] Widow Van der Spuij’s maltreatment was, in his
 opinion, irrelevant. The court was, however, more merciful and imposed a
 lesser sentence. *
 
@@ -232,7 +232,7 @@ this, with certain judgment by your honours, be sentenced to be tied to
 a stake, to be severely whipped by the *caffers*, and further to be
 riveted in chains, in which to serve for nothing on the honourable
 Company’s public works for a period of 18 successive months, with the
-costs, or to any similar end as your honours deem fitting.^[^4]^
+costs, or to any similar end as your honours deem fitting.[^4]
 
 Exhibit in court, 12 September 1737.
 

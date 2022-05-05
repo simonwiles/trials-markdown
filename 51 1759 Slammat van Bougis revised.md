@@ -1,12 +1,12 @@
 1.  SLAMMAT VAN BOUGIS
 
 *This is a rare example of a slave who answers back when told to get on
-with his work.*^*[^1]*^* When his owner tried to hit him with a spade,
+with his work.[^1] When his owner tried to hit him with a spade,
 Slammat attacked him. Slammat now had nothing to lose, and set fire to
 his owner’s house and workplace before fleeing with a gun. Arson was a
 relatively common means by which slaves got their own back on their
-owners by destroying their property.*^*[^2]*^* Slammat was not captured
-and so we have no record of what happened to him.*^*[^3]*^
+owners by destroying their property.[^2] Slammat was not captured
+and so we have no record of what happened to him.*[^3]
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
 
@@ -108,7 +108,7 @@ not to be working, whereupon the same Slammat at last stood upright,
 answering the testifier: “I am always working, I also have to rest a
 bit”, adding to this: “If *baas* wants to sell me, go ahead and do it”,
 whereupon the testifier took an old spade, which was in the garden, in
-his hand and, while saying: “*Canalje*,^[^4]^ how dare you say that to
+his hand and, while saying: “*Canalje*,[^4] how dare you say that to
 me”, gave the said Slammat with the top part or the handle of the spade
 a blow on his left arm. Hereupon the said Slammat immediately stormed
 towards the testifier and grabbed him by his left leg, thereby pulling
@@ -132,7 +132,7 @@ the aforementioned young man, Christiaen Smal, who was with the flock of
 sheep, to go and call the farmer Abraham Peltzer, who lived close by,
 and to warn him that he should bring a musket with him. That hereupon,
 while the testifier was busy catching his horse which was going
-knee-haltered^[^5]^ close by the house, he saw that his house was
+knee-haltered[^5] close by the house, he saw that his house was
 standing alight, and that the aforementioned Slammat came running out of
 it, having in his hand some burning shrubs or straw, with which he first
 went to the tan-yard and then to the horse stable, both of which

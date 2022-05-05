@@ -2,12 +2,12 @@
 
 *Sexual contacts between slaves and their owners were viewed with
 disfavour by the authorities, and sometimes, as in this case, by other
-slaves as well.*^*[^1]*^* The 26-year-old Lindor van Mallebaar was
+slaves as well.[^1] The 26-year-old Lindor van Mallebaar was
 reported to his owner by a fellow slave who saw him with the 22-year-old
 daughter of his owner in highly compromising circumstances. Although
 Lindor avoided the death penalty by his claim that it was her incitement
 that led to the incident, he was sentenced to life on Robben Island for
-his actions.*^*[^2]*^
+his actions.*[^2]
 
 **1/STB 3/12** Criminele Verklaringen, 1786-1793, unpaginated.
 
@@ -63,7 +63,7 @@ TRANSLATION
 There appears before the undersigned deputised *heemraden*, the
 honourables Dirk Wouter Hofman and Jacob Eksteen, Jephta van Batavia,
 bondsman of the former chief surgeon of the honourable Company’s
-hospital at the Cape, the honourable Pieter Domus,^[^3]^ who declares,
+hospital at the Cape, the honourable Pieter Domus,[^3] who declares,
 on the requisition of the landdrost here, the honourable Hendrik
 Lodewijk Bletterman, it to be true:
 

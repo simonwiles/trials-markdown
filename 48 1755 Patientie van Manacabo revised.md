@@ -1,7 +1,7 @@
 1755 PATIENTIE VAN MANACABO AND DECEMBER VAN BOEGIES
 
 *This is a case of two Cape Town slaves who stole guns and ammunition
-from their owners and ran away.*^*[^1]*^* They survived in the False Bay
+from their owners and ran away.[^1] They survived in the False Bay
 area with the aid of a slave shepherd who brought them food. They were
 seen by a Company soldier, who was subdued by their brandishing their
 guns at him, but were eventually caught when one of them decided to sell
@@ -10,7 +10,7 @@ Company slaves of the False Bay outpost at Simon’s Bay. The case again
 demonstrates the difficulties of survival for runaway slaves in the
 (relatively) settled regions of the colony and graphically illustrates
 the obsessive fear Cape society had of armed and uncontrolled
-slaves.*^*[^2]*^* *
+slaves.[^2] *
 
 **CJ 788** Sententiën, 1750-1755, ff. 212-19.
 
@@ -149,7 +149,7 @@ Mij present, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
 
 TRANSLATION
 
-Since Patientie van Manacabo,^[^3]^ bondsman of the burgher Jan Brouwer,
+Since Patientie van Manacabo,[^3] bondsman of the burgher Jan Brouwer,
 30 \[years\] old at a guess, and December van Bougies, slave of the
 burgher Frederick Simon Plaagman, about 26 years old, currently their
 honours’ prisoners, voluntarily confessed, without torture or coercion
@@ -171,8 +171,8 @@ first loaded a pistol with loose gunpowder, undertook their flight
 during the night; the first prisoner carrying the musket, one pistol and
 the cartridge case, and the second prisoner the other pistol and the
 broadsword, marching thus through the night, reaching Baas Harmens
-Craal^[^4]^ by daylight and, during the following night, arrived at
-Baaij Fals.^[^5]^ At which place they stayed for about a month in the
+Craal[^4] by daylight and, during the following night, arrived at
+Baaij Fals.[^5] At which place they stayed for about a month in the
 mountains, sustaining themselves, according to them, with food which the
 shepherd of the burgher Hendrik Feerssen, named April, and who was known
 to the first prisoner, would occasionally give them from his knapsack,
@@ -184,7 +184,7 @@ pistol with cartridges, and then loaded it once more.
 That after some time, on a certain evening at nightfall, in fact at the
 beginning of the past month October, when the prisoners were on the
 slopes of the mountain, they were discovered by the soldier assigned to
-Baaij Fals, Barent Janssen,^[^6]^ who was looking for horses, and who,
+Baaij Fals, Barent Janssen,[^6] who was looking for horses, and who,
 thinking that they were the slaves of the burgher Jan Munnick, called
 out to them when he got within about five or six paces of them, and
 asked them if they had seen any horses; at which they suddenly turned
@@ -196,7 +196,7 @@ because he was not equipped with any gun and, moreover, noticed that one
 of the prisoners had a musket as well, and the other one also something
 else on his shoulder, which he could not see properly because of the
 darkness, got very frightened. He then said to the prisoners:
-“*Paaij*,^[^7]^ do not harm me, I am not looking for you, because I have
+“*Paaij*,[^7] do not harm me, I am not looking for you, because I have
 lost horses”, to which the prisoners then, after having told Janssen:
 “If you are looking for horses, it is fine, don’t come closer, but go
 backwards and let us not see you going to the Baaij” and, after having
@@ -208,7 +208,7 @@ set out to Baaij Fals where he gave a report of this to the postholder,
 while the prisoners were meanwhile also on their way to Baaij Fals.
 
 That later, after about four days, the first prisoner, since he thought
-it fit to set out to the Cape in order to sell his *duffeltje*^[^8]^ and
+it fit to set out to the Cape in order to sell his *duffeltje*[^8] and
 bring back food for it, handed over to the second prisoner the musket,
 one pistol and the cartridge case and went to the Cape. However, along
 the way he repented and did not return again, but proceeded to his
@@ -257,7 +257,7 @@ scourged with rods on their bare backs, thereupon to be branded, further
 each to be riveted in chains for a period of ten consecutive years, thus
 to be sent back home to their owners, provided they pay the costs and
 expenditure of justice; with the Council denying the further or
-differently drawn up *eijsch* of the honourable Officer.^[^9]^
+differently drawn up *eijsch* of the honourable Officer.[^9]
 
 Thus done and sentenced in the Castle of Good Hope on 4 December 1755,
 as also pronounced and executed on the 6^th^ thereupon.

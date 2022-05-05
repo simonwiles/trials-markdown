@@ -1,11 +1,11 @@
 1.  ABRAHAM VAN MACASSAR
 
 *This case of conflict between a slave and his owners, leading to arson,
-was provoked by the demand that Abraham van Macassar*^*[^1]*^* should
+was provoked by the demand that Abraham van Macassar[^1] should
 acknowledge and greet his owner after returning from a day’s work.
 Clearly there was more behind Abraham’s discontent and an apparently
-minor demand such as this may have been the final straw.*^*[^2]*^*
-Abraham was captured and executed immediately in Stellenbosch.*^*[^3]*^
+minor demand such as this may have been the final straw.[^2]
+Abraham was captured and executed immediately in Stellenbosch.*[^3]
 
 **CJ 449** Criminele Process Stukken, 1792-1794, ff. 419-21.
 
@@ -75,10 +75,10 @@ Hendrik Lodewijk Bletterman, by the burgher Dirk Hoffman, of competent
 age, which goes as follows:
 
 That the testifier, who lives with his father, the lieutenant of the
-burgher militia, Matthiam Hoffman, \[witnessed the following:\]^[^4]^
+burgher militia, Matthiam Hoffman, \[witnessed the following:\][^4]
 last night, the time being about half past eight, the bondsman of his
 father, by the name of Abraham, came home, having worked that day at the
-deacon, *Sieur* Jacobus Roux,^[^5]^ and was asked by his father why he,
+deacon, *Sieur* Jacobus Roux,[^5] and was asked by his father why he,
 Abraham, could not say “Good evening” when he got home, who in essence
 answered him: “If I do my work during the day and come home in the
 evening, that is enough”, upon which his father dealt the aforementioned
@@ -86,12 +86,12 @@ Abraham some blows with his fist. The aforesaid Abraham asked his
 father: “Why do you hit me?”, and then repaired to the slave house, but
 returned almost at once to the kitchen. When the said Abraham was asked
 by the father of the testifier: “What are you doing here?”, and was
-answered by the aforementioned Abraham: “I want fire!”,^[^6]^ who then
+answered by the aforementioned Abraham: “I want fire!”,[^6] who then
 again repeated his question to the father of the testifier: “Why did you
 hit me?” Hereupon his father gave the aforesaid Abraham some strokes
 with a cane of quince, during which the aforesaid Abraham repeatedly
 said to the father of the testifier: “Stop it, Stop it”. The testifier’s
-brother, by the name of Jesais^[^7]^, noticing that the aforementioned
+brother, by the name of Jesais[^7], noticing that the aforementioned
 Abraham had hidden a knife between his jacket and shirt, grabbed Abraham
 with his left hand and, with his right hand, tried to get possession of
 the knife. The aforesaid Abraham pulled himself loose, while the

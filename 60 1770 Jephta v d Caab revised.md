@@ -6,16 +6,16 @@ of Justice how to proceed in this unusual case. The incident is of note
 for several reasons. The fight, involving slaves and a Khoi worker,
 broke out over disputed ownership of bamboo canes that were growing in
 garden plots assigned to individual slaves, and the court seems here to
-have recognised their claims to its produce.*^*[^1]*^* Moreover, the
+have recognised their claims to its produce.[^1] Moreover, the
 case unusually shows an elderly slave and his adult son on the same
 farm, and gives a rare insight into family relationships amongst
-slaves.*^*[^2]*^* *
+slaves.[^2] *
 
 *Jephta’s attempt to defend his father led to his accidental killing of
 the old man. The fiscal was uncertain how to proceed with such strongly
 mitigating circumstances and although the court could not definitively
 say what had happened, it did not see fit to punish any of the
-participants.*^*[^3]*^
+participants.*[^3]
 
 **CJ 397** Criminele Process Stukken, 1770, ff. 172-81v.
 
@@ -315,7 +315,7 @@ said Caesar had already raised the bamboo and wanted to hit the said
 Dirk with it, had prevented this blow, and that he had said to the
 aforementioned Caesar: “What are you doing? You mustn’t hit!” The said
 Jephta denied everything in his interrogation, saying that Pandek was
-the *auctor rixae*^[^4]^ and had challenged him, Jephta, with a knife
+the *auctor rixae*[^4] and had challenged him, Jephta, with a knife
 when he was busy weeding the bamboo on the order of his father, Caesar;
 see the answers to articles 5 and 7; as also that when Pandek had
 finally left him, the Hottentot Dirk, who has always ganged up with
@@ -370,7 +370,7 @@ father, as appears from the course of all the particulars of the
 disagreement in question, could certainly only have been done by
 accident; so that it would be best if he confesses the whole matter,
 since one, as said before, can comprehend clearly from the circumstances
-that he had, if not *animo doloso*,^[^5]^ nonetheless done it; but this
+that he had, if not *animo doloso*,[^5] nonetheless done it; but this
 was all in vain, since he absolutely continued to deny having dealt the
 blow with the bamboo stick, alleging in his answer to the 17^th^
 question of his interrogation: That the Hottentot Dirk had tried to deal
@@ -426,7 +426,7 @@ certainly must have perpetrated the manslaughter beyond his will and
 expectation, and certainly not with evil and cunning. According to the
 statement of the district’s surgeon, Georg Carel Lodewijk Geering, the
 blow to the left side of the head penetrated through the skull to the
-*dura* and *pia mater*,^[^6]^ whereupon apoplexy and death must have
+*dura* and *pia mater*,[^6] whereupon apoplexy and death must have
 followed. Since the undersigned, on the one hand, is uncertain, due to
 the mutually produced accusations of the Hottentot Dirk and the slave
 Jephta, about which one of the two he should act against as guilty in

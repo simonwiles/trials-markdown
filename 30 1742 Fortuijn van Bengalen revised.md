@@ -4,7 +4,7 @@
 the slave’s owner, but against whom he held a particular grudge. The
 case is revealing for what it shows about the difficulties in the
 formation of personal bonds or relationships by slaves, and the links
-between the slaves and Khoi workers in the area.*^*[^1]*^
+between the slaves and Khoi workers in the area.*[^1]
 
 *Fortuijn was captured by slaves on the farm of Pieter Venter, a place
 to which he had escaped from his owner. He knew the farm well, since he
@@ -14,7 +14,7 @@ him back to his owner, but he was allowed to go free by the Khoi who was
 ordered to accompany him. He later returned, supposedly in search of
 tobacco, but also to see Christijn. She now rejected him, partly because
 she had another man, but also because, as she stated, her owners did not
-‘understand’ such a relationship, or did not approve of it.*^*[^2]*^*
+‘understand’ such a relationship, or did not approve of it.[^2]
 His attempt to set fire to Venter’s house was motivated by this obstacle
 to their continued relationship, and by Venter and his wife’s previous
 capture and beating of him. *
@@ -173,7 +173,7 @@ allen tijden, des gerequireert werdende, nader te sullen gestand doen.
 
 Dat aldus passeerde op de plaats van den burger Pieter van Taak,
 geleegen aan Riebeeks Casteel, genaamt Klovenburg, ten overstaan van den
-soldaat Jan Philipsz Ploegsteert van Osnabrug^[^3]^ ende den mattroos
+soldaat Jan Philipsz Ploegsteert van Osnabrug[^3] ende den mattroos
 Borchart Wenke van Delmenhorst, als getuijgen van geloove hiertoe
 versogt, die de minute deeses, beneevens de compte ende mij, secretaris,
 meede behoorlijk hebben onderteekent.
@@ -251,7 +251,7 @@ end a little flue from an old cloth which was lying by the pump, and
 having set the same on fire with his pipe, he went with it to the said
 house, where he stuck the burning flue under the roof, which is quite
 low, into the thatch. After the roof was in flames for up to a width of
-nearly one and a half fathoms,^[^4]^ the fire was extinguished by the
+nearly one and a half fathoms,[^4] the fire was extinguished by the
 said Pieter Venter and some other people, who, together with his wife
 and children, were lying asleep in the very room where the prisoner had
 started the fire, and amongst whom the *heemraad* Pieter Laubser woke up
@@ -287,7 +287,7 @@ and to be burnt alive; the remains of the corpse burnt to death are to
 be taken to the outside place of execution, there to be placed upon a
 wheel with an iron pot above the head (denoting the arson), to remain
 like this until being consumed entirely; with sentencing to the costs
-and expenditure of justice.^[^5]^
+and expenditure of justice.[^5]
 
 Thus done and sentenced in the Castle of Good Hope on 4 January 1742, as
 also pronounced and executed on the 6^th^ thereupon.
@@ -336,7 +336,7 @@ so required.
 
 Thus recorded on the farm of the burgher Pieter van Taak, named
 Kloovenburg, situated at Riebeek-Kasteel, in the presence of the soldier
-Jan Philipsz Ploegsteert from Osnaburg^[^6]^ and the sailor Borchart
+Jan Philipsz Ploegsteert from Osnaburg[^6] and the sailor Borchart
 Wenke from Delmenhorst, requested hereto as witnesses of the faith, who
 have properly signed the original of this, together with the deponent
 and me, the secretary.

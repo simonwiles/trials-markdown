@@ -1,7 +1,7 @@
 1.  CHRISTINA STRANG
 
 *This is an unusual and insightful case for a number of
-reasons.*^*[^1]*^* It concerns complaints by the labourers on a remote
+reasons.[^1] It concerns complaints by the labourers on a remote
 Roggeveld farm that their mistress, Christina Strang, had killed a
 slave. They only had the opportunity to do this when they accompanied
 their master, Jacobus Kruger, to Cape Town two years after the event.
@@ -10,7 +10,7 @@ own rather improbable version of what had happened. The Council of
 Justice fined her 50 rixdollars and ordered that Januarij van Ceijlon,
 the slave who had brought the complaint, be sold, with the stipulation
 that he should never again come into her possession or that of her
-children.*^*[^2]*^* *
+children.[^2] *
 
 *The case shows how the owners of a frontier farm, male and female,
 could act with impunity, both by killing a slave and by intimidating the
@@ -37,7 +37,7 @@ Dat, soo den relatant vermeijnd, nu meer dan twee jaaren, ofte twee,
 drie tijden voorleeden, wanneer des relatants lijfheer, woonagtig op
 sijn plaats geleegen in ’t Bocke Veld, van huijs weggereeden was en, soo
 den relatant gelooft, naar Stellenbosch om te drillen sig begeeven had,
-den relatant en sijn meede slaaf, August^[^3]^ genoemd, sonder dat den
+den relatant en sijn meede slaaf, August[^3] genoemd, sonder dat den
 relatant positief weet van wat natie denselven geweest is, dog
 sustineert een Batavische jongen te sijn alsoo geel van couleur geweest
 was, met hulpe van eenige Hottentots had moeten arbeijden aan ’t
@@ -345,12 +345,12 @@ Drakensteijn, *Sieur* Johannes le Sueur, by Januarij van Ceijlon, slave
 of the farmer Jacobus Kruger, of competent age, going as follows:  
   
 That, as the testifier believes, more than two years, or two or three
-times,^[^4]^ ago, when the testifier’s owner, who resides on his farm
+times,[^4] ago, when the testifier’s owner, who resides on his farm
 situated in the Bocke Veld, rode away from his house and, as the
-testifier supposes, set out to Stellenbosch to drill,^[^5]^ the
+testifier supposes, set out to Stellenbosch to drill,[^5] the
 testifier and his fellow slave called Augustus – without the testifier
 knowing for sure of what nation he was but he suspects that he must have
-been a Batavian *jongen* as he was yellow in colour^[^6]^ – had to
+been a Batavian *jongen* as he was yellow in colour[^6] – had to
 labour, with the help of some Hottentots, on the building of a stone
 corral, the stones for which they had to search for in the vicinity and
 had to drag them there with oxen, while the aforesaid Augustus moreover
@@ -384,7 +384,7 @@ and again start working, but as he was unable to do so, the testifier’s
 mistress, who thought that this *jongen* was doing it from obstinacy,
 had his hands tied together with a *riem* by the testifier and then,
 while saying: “The fiscal doesn’t know as well as I do how to set you
-lot right”,^[^7]^ had him lie down backwards, and thus with his back on
+lot right”,[^7] had him lie down backwards, and thus with his back on
 a heap of stones, which had been brought together for the building of
 the corral, so that the protruding sharp edges of these stones caused
 this *jongen* pain, and had the aforesaid Augustus covered with a
@@ -423,7 +423,7 @@ That two or three days thereafter, when a slave *jongen* of Jacob
 Cloete, the son-in-law of the testifier’s owner, by the name of Carel,
 came to the farm of his owner with a message, this *jongen* asked the
 testifier where Augustus was and, since they were of the same
-nation,^[^8]^ the testifier narrated to this *jongen* how the said
+nation,[^8] the testifier narrated to this *jongen* how the said
 Augustus was so beaten by his mistress that he came to die of it, while
 adding that he wanted to go and complain about this.
 
@@ -499,7 +499,7 @@ but he does know that the same Augustus passed away that night in the
 slave house. The testifier also declares that the aforesaid Augustus had
 always been rather sickly, or that he was suffering from swollen legs,
 and also: that on the very same night when Augustus died, there had been
-at the farm of his owner a strange man, being tall of person^[^9]^ and
+at the farm of his owner a strange man, being tall of person[^9] and
 having arrived by horse, who stayed over that night and departed again
 early in the following morning.
 
@@ -542,8 +542,8 @@ reason the testifier went to him and gave him one or two blows on his
 hands with a little piece or splinter of a stick, while saying: “Why do
 you not hold that rope properly and lead nicely?” After which she again
 went from there; saying that the aforementioned slave Augustus was still
-very *baar*^[^10]^ and unskilled, and also being unable to speak a word
-of Portuguese but only Malay.^[^11]^
+very *baar*[^10] and unskilled, and also being unable to speak a word
+of Portuguese but only Malay.[^11]
 
 Further – without knowing whether or not it had been on the same day
 that the testifier had given the aforementioned Augustus the aforesaid
@@ -575,7 +575,7 @@ been in the habit of hanging his blanket over his one arm, even though
 he had no shortage of clothes, and when it was cold or bad weather, he
 would drape it around his body) was inclined to sleep and asked him, as
 best as she was able to bring forth in an imperfect manner in Malay and
-Portuguese,^[^12]^ if he would like to go and sleep, to which he
+Portuguese,[^12] if he would like to go and sleep, to which he
 answered: “Yes”; which she permitted this *jongen*, who then lay down
 close to or perhaps just besides a pile of stones and used a stone as
 pillow for his head and covered himself with his aforesaid blanket,

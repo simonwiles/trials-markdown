@@ -2,16 +2,16 @@
 
 *This brief note in the Stellenbosch notarial records provides a rare
 example in the judicial records of slaves who refuse to run away because
-they are well treated by their owners.*^*[^1]*^* A further revealing
+they are well treated by their owners.[^1] A further revealing
 factor is that several are from Madagascar. It is not stated where
-Samel,*^*[^2]*^* the slave who wanted to entice them to escape, came
+Samel,[^2] the slave who wanted to entice them to escape, came
 from, but the comment that he wanted them to go to ‘their’ country might
 suggest that he too was from Madagascar and was making an appeal to them
-on the grounds of their common place of origin.*^*[^3]*^* *
+on the grounds of their common place of origin.[^3] *
 
 *There is no mention of Samel in the Court of Justice records – he might
 not have been captured, or else may have been killed before he could be
-brought to trial.*^*[^4]*^* *
+brought to trial.[^4] *
 
 **1/STB 18/155** Notariële Verklaringen, 1706-1714, unpaginated.
 
@@ -54,7 +54,7 @@ Mij present, \[get.\] Jan Mahieu, secretaris.
 TRANSLATION
 
 There appears before the undersigned delegates from the *Collegie van
-landdrost en heemraden*^[^5]^ the slaves: Coridon van Batavia, bondsman
+landdrost en heemraden*[^5] the slaves: Coridon van Batavia, bondsman
 of the farmer in Drakenstein, Daniel Hugo, about 30 years old; Pieter
 van Madagascar, bondsman of the farmer Louis Heuris, who is about 22
 years old; and Damon van Madagascar, bondsman of the farmer Francois

@@ -9,9 +9,9 @@ middle of January and it seems as if the encounter with the commando
 took place around 2 February.*
 
 *News of all this reached the slaves in Cape Town, because on 13
-February the second group of twelve slaves and a *bandiet^*[^1]*^* fled,
+February the second group of twelve slaves and a *bandiet[^1]* fled,
 inspired by the news that ‘recently a group of slaves had taken flight
-and had already arrived safely in a free negerij’.*^*[^2]*^* This group
+and had already arrived safely in a free negerij’.[^2] This group
 did not get very far, as they were all recaptured three days later, not
 far from Cape Town.*
 
@@ -27,7 +27,7 @@ town. *
 leader. Their plot was foiled when they were cornered by a commando, but
 their organisation was demonstrated by their spirited defence in what
 amounted to a pitched battle, with use of Southeast Asian weapons and
-war cries.*^*[^3]*^* *
+war cries.[^3] *
 
 **CJ 2485** Inkoomende Brieven, 1729-1759, Deel 1, ff. 130-33.
 
@@ -135,7 +135,7 @@ ook immediaat Caabwaarts vervoegt hebben, alwaar gekoomen zijnde, heeft
 den vijfde aan den elfde gevangen, van den ontfangene vijf schellingen,
 een schelling tot den inkoop van brood afgegeeven, waarmeede hij elfde
 gevangen sig egter van hem heeft geabsenteert en naar huijs gegaan is,
-sonder sig wederom het complot^[^4]^ te bemoeijen, oversulx hij vijfde
+sonder sig wederom het complot[^4] te bemoeijen, oversulx hij vijfde
 gevangen voor een schelling brood, en drie schellingen vis gekogt
 hebbende, zich daarmeede weederom op weg naar buijten bij het complot
 begeeven heeft, sonder egter den seevende gevangen, die in het Casteel
@@ -150,7 +150,7 @@ begeeven, en aldaar in der minne kost en andere benoodigtheeden te
 vraagen; dog in gevalle hun deselve geweijgert wierden, als dan alles
 wat hun voorquam te sullen vermoorden en wegneemen, met bijvoeging van
 den eerste gevangen dat indien ijmand van hun gevangens niet meede doen
-wilde, hij eerste gevangen denselven rampocken^[^5]^ ofte vermoorden
+wilde, hij eerste gevangen denselven rampocken[^5] ofte vermoorden
 soude, ende sij gevangens met dit, hun quaad voorneemen, sig
 daaromstreeks nog opgehouden hebbende tot Dingsdag, den 16 Februarij
 jongstleeden, sijn sijlieden, ’s agtermiddags in de ruijgte te slaapen
@@ -288,12 +288,12 @@ TRANSLATION
 
 Since, from the voluntary, verified confessions of Tallone van Boegies,
 who used to be assigned as convict to the honourable Company’s slave
-lodge^[^6]^, age about 40, Jason van Boegies, bondsman of the captain
+lodge[^6], age about 40, Jason van Boegies, bondsman of the captain
 lieutenant Wijnand Willem Muijs, age 36, Jephta van Boegies and Baatjoe
 van Balij, both slaves of the chief prison warder Hermanus Hermansz.,
 the one aged 25 and the other 22, Fortuijn van Boegies, belonging to the
 Chinese Limpsinko, age 24, Pomade van Macassar, slave of the soldier
-Nicolaas van Blerk, age 30, September van Padang,^[^7]^ bondsman of the
+Nicolaas van Blerk, age 30, September van Padang,[^7] bondsman of the
 chief servant of the armoury Joachim Kannemeijer, age 25, Maij van
 Sambouwa, belonging to the burgher Roelof Ruijgrok, age 30, Baatjoe van
 Boegies, bondsman of the burgher Gijsbert Rogiers, age 40, Baatjoe van
@@ -317,7 +317,7 @@ time that some of the prisoners were still arriving, after which the
 prisoners – except for the seventh prisoner who, since, according to
 what he asserts, the right person to show the way was not there, turned
 back again – all went together across Salt River to the side of Jan
-Biesjes Kraal,^[^8]^ from where the first prisoner, being their first
+Biesjes Kraal,[^8] from where the first prisoner, being their first
 head and captain, sent back again the fifth and eleventh prisoners to
 the Cape with orders to not only fetch food for them, for the buying of
 which the first prisoner gave the second prisoner five *schellingen* to
@@ -351,7 +351,7 @@ by a commando of Europeans and were eventually forced to surrender,
 which the prisoners were at first by no means prepared to do, as the
 first prisoner, since being their first captain, leaped up with a large
 knife or *parrang* in his hand and encouraged them to defend themselves
-by shouting in Malay: *Lavang*, that is: “Defend yourself”,^[^9]^ which
+by shouting in Malay: *Lavang*, that is: “Defend yourself”,[^9] which
 order the prisoners for the most part also faithfully tried to follow,
 and especially the second prisoner, being their second head and captain,
 since he not only sought to encourage his gang to resistance by waving
@@ -405,7 +405,7 @@ period of five years, and the eleventh prisoner, April van Boegies, for
 three consecutive years to be riveted in chains, to be thus sent back
 home again to their masters, on condition that they pay the costs and
 expenditure of justice; with the sentencing of all the other prisoners
-to the costs and expenditure of justice.^[^10]^
+to the costs and expenditure of justice.[^10]
 
 Thus done and sentenced in the Castle of Good Hope on 18 March 1751, as
 also pronounced and executed on the 20^th^ thereupon.

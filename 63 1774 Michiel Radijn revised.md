@@ -2,17 +2,17 @@
 
 *This dispute between a slave and a *knecht* reveals the ways in which
 slaves could be denied any authority, including that over their own
-children.*^*[^1]*^* Julij van de Caab was hit by the *knecht* Michiel
+children.[^1] Julij van de Caab was hit by the *knecht* Michiel
 Radijn for giving his own son a boxing on the ears. He argued that his
 owner (who was away at the time) would have approved. Radijn resented
 this challenge to his control over the farm’s slaves in his employer’s
-absence.*^*[^2]*^
+absence.*[^2]
 
 *The limiting of a slave father’s ability to care for or to control his
 own children was a cause of resentment and resistance in a number of
 recorded cases. Male slaves could not be ‘masters’ of their own families
 and were so prevented from developing the gendered role which was
-customary for other fathers at the time.*^*[^3]*^
+customary for other fathers at the time.*[^3]
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
 
@@ -24,7 +24,7 @@ volgenden inhoud, namentlijk:
 Dat nu eenigen tijd geleden, zonder dat den relatant dies wist te
 bepalen, zijnde op eenen Zondag avond, wanneer zijn lijfheer aan de
 Caab, en lijfvrouw reeds te bed gegaan was, terwijl hij relatant nevens
-de slavinnen Cadace^[^4]^ en Dina, mitsgaders des relatants zoontje
+de slavinnen Cadace[^4] en Dina, mitsgaders des relatants zoontje
 Februarij, zig in de combuijs ter hunner lijfheers woonplaats bevonden,
 en gemelde Februarij de slavinne Cadace over haar krom Duijtsch spreeken
 bespot en uitgelagt had, waarover den relatant hem bestrafd en twee
@@ -69,7 +69,7 @@ able to specify when, when his owner was at the Cape and the mistress
 had already gone to bed, while the testifier, as also the women slaves
 Cadace and Dina, as well as the testifier’s little son Februarij, were
 in the kitchen on their owner’s farm, the said Februarij ridiculed and
-laughed at the slave Cadace because of her speaking broken Dutch,^[^5]^
+laughed at the slave Cadace because of her speaking broken Dutch,[^5]
 over which the testifier punished him and gave him two clouts on the
 ears. The *knecht*, Michiel Radijn, who was there, intervened, asking
 the testifier why he was beating this little *jongen* and the testifier
@@ -82,7 +82,7 @@ until he was picked up by the *meijden* and taken into a room next to
 the kitchen, which is when he again came to, but was still unaware of
 how this blow was given to him or with what; of which, as well as his
 transport to the aforesaid room, the testifier was eventually informed
-by aforementioned Dina and Cadace.^[^6]^
+by aforementioned Dina and Cadace.[^6]
 
 There being nothing further to relate, the testifier asserts to be
 convinced of the accuracy of his statement as in the text, being

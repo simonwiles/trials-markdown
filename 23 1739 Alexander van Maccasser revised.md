@@ -2,13 +2,13 @@
 
 *This incident one evening in the house of Abraham Decker is a good
 example of how circumstantial detail about slave life can be gleaned
-from the criminal records.*^*[^1]*^* Alexander van Maccasser was brought
+from the criminal records.[^1] Alexander van Maccasser was brought
 to trial for threatening his owner and the other slaves in the household
 with a knife. The evidence from the case is full of insights into the
 role slaves played in a wealthy Cape Town household: cooking, serving
 meals, fetching water from the pump, transporting the owner in a sedan
 chair, as well as giving some information about the arrangement of rooms
-and their functions.*^*[^2]*^* Also of particular note are the
+and their functions.[^2] Also of particular note are the
 relationships between, and the hierarchy among, Decker’s slaves:
 Alexander is unwelcome serving at table and is ordered to the kitchen by
 a slave who is evidently in a more privileged position. *
@@ -112,7 +112,7 @@ droncken was.
 Ende gemerkt diergelijke enorme daaden, van soo een vile slaaf, in een
 land daar de justitie stiptelijk geadministreerd word geensints te
 tolereren, maar ter contrarie tot een afschrik van andere diergelijke
-booswigten op het rigourenste \[*sic*\] moeten \[wor\]den^[^3]^
+booswigten op het rigourenste \[*sic*\] moeten \[wor\]den[^3]
 gestraft.
 
 Soo is het, dat den edelagtbare Raad \[van\] Justitie deeses
@@ -150,7 +150,7 @@ Mij praesent, \[get.\] D.G. Carnspek, secretaris.
 TRANSLATION
 
 Since Alexander van Maccasser, 30 years old at a guess, bondsman of the
-*onderkoopman* and *negotie overdrager*,^[^4]^ the honourable Abraham
+*onderkoopman* and *negotie overdrager*,[^4] the honourable Abraham
 Decker, currently their honours’ prisoner, has voluntarily confessed
 without torture or force of bonds, of irons, or even the least threat of
 suchlike, and it appeared evident:
@@ -199,7 +199,7 @@ seeing him standing there, asked him what he came to do: “I’ve come to
 serve *sinjeur*”, upon which the prisoner’s owner again ordered him to
 go and sleep, saying: “I am not used to you doing this, coming from you
 it can’t be good, you are usually too lazy to go and fetch half an
-aum^[^5]^ of water from the pump”. He then got up from his chair and
+aum[^5] of water from the pump”. He then got up from his chair and
 went to sit on the *rustbank* where his sword was lying and which he
 took into his hands. Hereupon the prisoner then indeed went from there,
 muttering along, to the *galderij*, and after he had walked up and down
@@ -258,7 +258,7 @@ follow, further that the same’s dead body be dragged to the outer place
 of execution, there again to be hanged up, to remain thus until being
 consumed by the air and the birds of heaven, with sentencing to the
 costs and expenditure of justice, and denying the further or otherwise
-demanded *eijsch* of the honourable officer.^[^6]^
+demanded *eijsch* of the honourable officer.[^6]
 
 Thus done and sentenced in the Castle of Good Hope on 3 December 1739,
 as well as being pronounced and executed on the 5^th^ thereafter.

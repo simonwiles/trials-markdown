@@ -3,17 +3,17 @@
 *In the aftermath of the arson attempts in Cape Town in 1735—6, the
 authorities attempted to clamp down on the number of slave runaways in
 the vicinity, and in particular those linked to the maroon community
-based at Hangklip on False Bay, led by Leander Boegis.*^*[^1]*^*
+based at Hangklip on False Bay, led by Leander Boegis.[^1]
 Commandos sent out to Hangklip were unsuccessful, but a number of
 runaways were caught on Table Mountain and in the region of present-day
 Fish Hoek. Aron van Madagascar confessed to several encounters with
 them, including providing Leander Boegis and his group with
-flint-stones, and meeting up with others near Fish Hoek.*^*[^2]*^* He
+flint-stones, and meeting up with others near Fish Hoek.[^2] He
 did not stay with them – he was particularly disgusted by the fact that
-they ate snakes*^*[^3]*^* – but rather roamed around the area with other
+they ate snakes[^3] – but rather roamed around the area with other
 runaways before he was caught. The case gives an insight into the
 runaways’ underworld of the Cape Peninsula in these decades, and the
-contacts between runaways and slaves in the town.*^*[^4]*^* *
+contacts between runaways and slaves in the town.[^4] *
 
 **CJ 786** Sententiën, 1736-1743, ff. 88-93.
 
@@ -100,7 +100,7 @@ the widow Admiraal, was searching for wood on Table Mountain with a
 bondsman, by the name of Jannuarij. The same Jannuarij had told the
 prisoner that Leander Boegis, head of the rogues who resided at Vishoek,
 was present on Table Mountain and had given him, Jannuarij, two
-*dubbeltjes*^[^5]^ with which to buy flint-stones; which two
+*dubbeltjes*[^5] with which to buy flint-stones; which two
 *dubbeltjes* that slave Jannuarij then handed over to the prisoner, with
 the request to buy the flint-stones for him, which the prisoner
 undertook to do; buying, as soon as he had come down from Table
@@ -112,10 +112,10 @@ two bondsmen, whom the prisoner did not know. As they were coming
 towards him, Leander, took aim at them, but seeing, as they came closer,
 who they were, he kept off. The prisoner later recognised the slave
 Joumat in Vishoek as having been one of the two *jongens* who
-accompanied Leander Boegis.^[^6]^
+accompanied Leander Boegis.[^6]
 
 That the prisoner, more than a full year ago, ran away from his master’s
-house and, taking off with some *jongens* from Rio de la Goa^[^7]^ in
+house and, taking off with some *jongens* from Rio de la Goa[^7] in
 the direction of the beach, eventually arrived above Vishoek, where they
 took their residence. Which is where the prisoner saw his comrades
 eating snakes, because of which, as he asserts, he was moved to leave
@@ -145,7 +145,7 @@ over to the executioner, to be thoroughly scourged on the bare back and
 to be branded, thereafter to be riveted in chains, in which to labour
 for a period of ten years on the honourable Company’s public works
 without payment, with further sentencing by the Council to the costs and
-expenditure of justice.^[^8]^
+expenditure of justice.[^8]
 
 Thus done and sentenced in the Castle of Good Hope on 28 March 1737, as
 well as pronounced and executed on the 30^th^ thereupon in the month of

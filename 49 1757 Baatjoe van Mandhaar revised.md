@@ -1,14 +1,14 @@
 1.  BAATJOE VAN MANDHAAR
 
 *This concerns an attic siege at the Cape Town house of the burgher
-blacksmith Jan Broderik, where the slave Baatjoe van Mandhaar*^*[^1]*^*
-had barricaded himself.*^*[^2]*^* Baatjoe’s desperate resistance bore
+blacksmith Jan Broderik, where the slave Baatjoe van Mandhaar[^1]
+had barricaded himself.[^2] Baatjoe’s desperate resistance bore
 similarities to amok cases, including lashing out at anyone who came
-near him and attempted suicide.*^*[^3]*^* His use of Portuguese as a
+near him and attempted suicide.[^3] His use of Portuguese as a
 means of concealing his true intention from his owners is an intriguing
 indication of complexity of language usage in the colony, and the case
 is especially revealing for the details it gives of the police force of
-the VOC town, the *geweldiger^*[^4]*^* and *caffers* who attempted to
+the VOC town, the *geweldiger[^4]* and *caffers* who attempted to
 break into the roof from outside. Baatjoe’s sentence of breaking alive
 on the wheel was one of the most severe punishments that the court could
 give, perhaps reflecting its alarm at the number of amok cases and of
@@ -175,10 +175,10 @@ That towards the evening of Friday the 21^st^ of the just passed month
 October, the prisoner, after having pretended to be ill for some days,
 refused to come down, in accordance with the order of his owner, from
 the attic of the kitchen, where he had kept the whole day, in order to
-eat something.^[^5]^ Not only was he unwilling to do this but, what is
+eat something.[^5] Not only was he unwilling to do this but, what is
 more, at about nine o’clock that evening, when one of the two youths who
 were contracted with the prisoner’s owner for learning the smith’s
-trade,^[^6]^ by the name of Jan Karsten, wanted to enter the aforesaid
+trade,[^6] by the name of Jan Karsten, wanted to enter the aforesaid
 attic with the intention to go to sleep there, as per usual, the
 prisoner not only did not scruple to push down from above, unexpectedly
 and without even the least warning, this apprentice when he was going up
@@ -203,10 +203,10 @@ should come up since it was the prisoner’s birthday, while at the same
 time adding in Portuguese that he would murder his owner, which last was
 made known through interpretation by his other slaves to the
 aforementioned Broderik who, since he did not understand
-Portuguese,^[^7]^ was already busy climbing up the ladder, but was held
+Portuguese,[^7] was already busy climbing up the ladder, but was held
 back by the slaves and prevented from ascending further.
 
-That upon this some of the neighbours came to help,^[^8]^ while at the
+That upon this some of the neighbours came to help,[^8] while at the
 same time they sent for their honours’ *geweldiger* in order to capture
 the prisoner, who did not want to come down from the attic at all, with
 his assistance. The aforesaid *geweldiger* presently rushed in with
@@ -227,7 +227,7 @@ That in the meantime the *burgerwacht* also came to help and it was then
 agreed that, in order to capture the prisoner, the aforesaid attic had
 to be entered from outside the house, to which end some ladders were
 fetched. These were first put to the attic windows above the house door
-in the fire-gable,^[^9]^ and then also to the roof, and at the same time
+in the fire-gable,[^9] and then also to the roof, and at the same time
 they attempted to enter the attic through one of these windows, and even
 through making an opening in the roof. However, as soon as the prisoner
 noticed that the aforesaid windows were being broken open, he swiftly
@@ -288,7 +288,7 @@ remain lying thus on the cross until he has given up the ghost,
 thereafter his dead body to be dragged to the outer place of execution,
 there again to be placed upon a wheel and to remain thus until being
 consumed by the air and the birds of heaven; with sentencing to the
-costs and expenditure of justice.^[^10]^
+costs and expenditure of justice.[^10]
 
 Thus done and sentenced in the Castle of Good Hope on 3 November 1757,
 as well as pronounced and executed on the 5^th\ ^thereupon.

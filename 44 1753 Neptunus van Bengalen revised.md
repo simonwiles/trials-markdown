@@ -3,7 +3,7 @@
 *This murder case reveals the conflicts and tensions that could arise
 between slaves working under difficult circumstances. Neptunus was sent
 to look after his master’s cattle post, on the isolated frontier of the
-colony, without shelter or adequate clothing.*^*[^1]*^* He was accused
+colony, without shelter or adequate clothing.[^1] He was accused
 of negligence, not only by his owner, who beat him, but also by an older
 slave, Claas van Macassar, who taunted him with his inadequacies as a
 cattle herder. The humiliated and resentful Neptunus then killed him. *
@@ -134,7 +134,7 @@ livestock and to upbraid him in all manner about it, and also since he,
 Claas, because of his filthy nature, had collected and arranged along
 the walls the horns of cattle, which had been lying around there and had
 long ago died and been accounted for; they started to disagree about
-these matters^[^2]^ and eventually came to blows; during which the
+these matters[^2] and eventually came to blows; during which the
 aforementioned Claas, being already old and decrepit, came to lie down,
 at which point the prisoner freed him and let him loose. Yet, when Claas
 took up his *kirrij* and hit in the direction of the prisoner, he warded
@@ -184,7 +184,7 @@ birds of heaven, with sentencing to the costs and expenditure of
 justice.
 
 Thus done and sentenced in the Castle of Good Hope on 27 September 1753,
-as also pronounced and executed on the 29^th^ thereupon.^[^3]^
+as also pronounced and executed on the 29^th^ thereupon.[^3]
 
 Let the sentence be done, \[signed\] R. Tulbagh.
 

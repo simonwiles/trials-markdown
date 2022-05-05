@@ -1,11 +1,11 @@
 1.  **ISAAK DE VILLIERS JANSZ**
 
 *This case is one of very few which provide insight into the lives of
-slave children.*^*[^1]*^* Lakij, a young slave boy, was whipped and put
+slave children.[^1] Lakij, a young slave boy, was whipped and put
 in chains by his owner, Isaak de Villiers Jansz Lakij complained to a
 neighbouring burgher, who sent him to the landdrost. *
 
-*We do not know if any action was taken against De Villiers.*^*[^2]*^*
+*We do not know if any action was taken against De Villiers.[^2]
 This brief episode shows the demands made on young slaves, as well as
 being another indication of the role the authorities could play to check
 the excesses of slave owners. *

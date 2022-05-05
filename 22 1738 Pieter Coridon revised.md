@@ -3,7 +3,7 @@
 *A further example of the intensification of social control by the
 authorities in late 1730s Cape Town is shown here. Two free blacks and
 three slaves were found in the streets after 10 p.m., in contravention
-of the law.*^*[^1]*^* Although they claimed they had only been drinking
+of the law.[^1] Although they claimed they had only been drinking
 a tot together after a fishing trip, they were whipped and sent home to
 work in chains. The case gives a brief glimpse into social relations
 between free blacks and slaves, part of Cape Town’s large underclass, as
@@ -157,7 +157,7 @@ every one who wants to send his slaves out at night to do something or
 the other must give them a light or small lantern as a sign so that they
 may be allowed to pass and, in order that this be even better observed
 and executed, the servants of justice, the *burgerwacht* and the
-*ratelwacht*,^[^2]^ and each and every one of these inhabitants, are
+*ratelwacht*,[^2] and each and every one of these inhabitants, are
 hereby called upon to detain and bring into arrest the aforementioned
 servants of the honourable Company, slaves and bandits if they find them
 on the street after the ringing of the bell.
@@ -180,7 +180,7 @@ TRANSLATION
 Thursday, 2 January 1738, present the honourable lord president Hendrik
 Swellengrebel and all the members, with the three burgher councillors,
 the honourables Hendrik Oostwalt Eksteen, Henning Joachim Prehn and
-Abraham Cloppenburg, joining in.^[^3]^
+Abraham Cloppenburg, joining in.[^3]
 
 The *onderkoopman* *Sieur* Johannes Neder, acting as fiscal for the
 interim, in his official capacity as *eijsscher*,
@@ -189,7 +189,7 @@ contra:
 
 The free blacks Pieter Coridon and Jan van Ceijlon, as also Jacob van
 Bengalen, bondsman of the widow Steven Viret, November van Ternaten and
-Roman van Batavia, slaves of the free black woman Mami,^[^4]^ all five
+Roman van Batavia, slaves of the free black woman Mami,[^4] all five
 currently their honours’ prisoners and defendants in the case of
 plotting at night in their honours’ streets.
 

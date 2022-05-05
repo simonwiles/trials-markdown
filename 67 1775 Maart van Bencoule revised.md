@@ -3,20 +3,20 @@
 *This incident of the tracking down, shooting and capturing of a group
 of Cape Town runaway slaves who had raided a farm in the Piketberg, is
 primarily of interest for what it reveals about the linguistic
-complexity of the Cape as late as the 1770s.*^*[^1]*^* Whereas in the
+complexity of the Cape as late as the 1770s.[^1] Whereas in the
 previous case communication problems arose because of the variety of
 languages spoken amongst the slaves, this one illustrates how slaves
 were linguistically differentiated from the settlers. The runaways, who
 were all slaves from the East Indies, spoke Malay to one another, which
 the farmers and Khoi who apprehended them could not understand, although
-they attempted to communicate with them in Portuguese.*^*[^2]*^* *
+they attempted to communicate with them in Portuguese.[^2] *
 
-*The slaves tried to run *amok,^*[^3]*^* but were shot or captured
+*The slaves tried to run *amok,[^3]* but were shot or captured
 before they could attack any of their pursuers. Two were killed, while
-Maart van Bencoule*^*[^4]*^* and Kuijper van Macassar were captured and
-questioned.*^*[^5]*^* However, the case against them was not forwarded
+Maart van Bencoule[^4] and Kuijper van Macassar were captured and
+questioned.[^5] However, the case against them was not forwarded
 to the Court of Justice and it is not known how they were
-punished.*^[^6]^* Also of interest is the farmers’ use of the Khoi Jan
+punished.[^6] Also of interest is the farmers’ use of the Khoi Jan
 as a tracker to locate the barefooted runaways. *
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
@@ -60,7 +60,7 @@ quam te zeggen dat hij eene dier slaven maar naar de beenen moeste
 schieten, waardoor zijlieden zig dan wel gevangen geeven zouden; hetgeen
 door gedagte Van Zijl gedaan en den getroffene jongen ter aarde gevallen
 zijnde, kwamen voorts de drie anderen onder ’t roepen van: Amok! Amok!
-Matta Garra!^[^7]^, met hun scherp op gemelde Van Zijl inlopen
+Matta Garra![^7], met hun scherp op gemelde Van Zijl inlopen
 denwelken, als zijn geweer niet geladen zijnde, zig voorts ter vlugt
 begeven had, terwijl den relatant daarop eene dier drossers, die ’t
 naast agter Van Zijl was, zodanig met een schoot uit zijn geweer
@@ -117,7 +117,7 @@ zijlieden, ieder met een mes in de hand, opgestaan weesende, de
 relatant, die zijne ogen nog quam te wrijven, met een schoot zodanig in
 zijn been getroffen was, dat opstonds was komen neder te vallen, zonder
 verder meerder te kunnen relateeren of de anderen slaven zig te weer
-gesteld, \<nog of zijlieden\>^[^8]^ de Duijtschen vervolgd hadden.
+gesteld, \<nog of zijlieden\>[^8] de Duijtschen vervolgd hadden.
 
 Anders niet relateerende, geeft den relatant voor reedenen van
 wetenschap als in den text, bereijd zijnde het vorenstaande, des
@@ -191,7 +191,7 @@ behind Piketberg, had been broken into during the night, and that two
 some flour had been taken away, the testifier and the burgher Gideon van
 Zijl Pz., who was outspanning at his place, together with a Hottentot
 named Jan, searched around on his farm and when they discovered some
-traces of barefooted people,^[^9]^ he and the said Van Zijl, each armed
+traces of barefooted people,[^9] he and the said Van Zijl, each armed
 with a loaded gun, followed the said traces, together with the said
 Hottentot Jan and a certain Bastaard named Gerrit, the last mentioned of
 which only had a *kirrij* with him. When they, about half an hour from
@@ -217,7 +217,7 @@ he should just as well shoot one of these slaves in the legs as a result
 of which they would no doubt give themselves up as prisoners. Which was
 done by the said Van Zijl but when the shot *jongen* fell down to the
 ground, the other three came running with their knives, shouting: “Amok!
-Amok! Matta Garra!”,^[^10]^ towards the said Van Zijl who, as his gun
+Amok! Matta Garra!”,[^10] towards the said Van Zijl who, as his gun
 was not loaded, then took flight, while the testifier then hit one of
 these deserters, who was closest behind Van Zijl, with a shot from his
 gun in such a way that the same instantly fell down dead to the ground,
@@ -227,7 +227,7 @@ which they again went back to their previous place in the bushes. In the
 meantime, the testifier and Van Zijl loaded their guns and followed the
 said two *jongens*, when the said Van Zijl shot at one of them but did
 not hit him, whereupon the testifier shot the same one – who did not
-want to throw down his knife and, while shouting: “Bie, bie”,^[^11]^
+want to throw down his knife and, while shouting: “Bie, bie”,[^11]
 stormed towards him, while the testifier again retreated and again
 called to him to throw down his knife and to give himself up as prisoner
 – with a bullet through his body, in such a way that he immediately fell
@@ -237,7 +237,7 @@ on the order of the testifier, then threw down his knife and gave
 himself up as prisoner. The testifier also found in the aforesaid bush
 half a *mud* of the flour that they had stolen the previous night, and
 understood from the latter that they were bondsmen of the
-*fabriek*^[^12]^ at the Cape of Good Hope.
+*fabriek*[^12] at the Cape of Good Hope.
 
 There being nothing further to relate, the testifier asserts to be
 convinced of the certainty of the statement as given in the text, being
@@ -266,7 +266,7 @@ slaves by the name of Pallas, Julij and Kuijper from their owner in the
 Cape, having been enticed thereto by the slave Pallas, and taking with
 them six knives and a cutlass; they went to a certain mountain, which
 the testifier cannot name, and when they were sleeping there, they were
-roused by four people, consisting of two Dutchmen^[^13]^ who had guns
+roused by four people, consisting of two Dutchmen[^13] who had guns
 with them, and two Hottentots armed with *assegaaijen*. Whereupon they
 each got up, holding a knife in their hand, but, while the testifier was
 still rubbing his eyes, he was hit with a shot in his leg so that he

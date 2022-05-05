@@ -1,13 +1,13 @@
 1.  JANUARIJ VAN BOEGIES ET AL.
 
 *In this case eight slaves aimed to escape from the colony and to head
-for the ‘land of the Caffers’.*^*[^1]*^* The plan was initiated by a
+for the ‘land of the Caffers’.[^1] The plan was initiated by a
 slave working as a charcoal burner in Hout Bay under the supervision of
-a slave *mandoor*,*^*[^2]*^* and he persuaded other Cape Town slaves to
+a slave *mandoor*,[^2] and he persuaded other Cape Town slaves to
 join him. The runaways stole a boat and headed first of all for
 Hangklip. But they encountered major problems of obtaining food, of an
 unseaworthy boat and were reported by a Khoi who saw their footprints on
-the beach.*^*[^3]*^* *
+the beach.[^3] *
 
 **CJ 354** Criminele Process Stukken, 1746, Deel 2, ff. 464-67.
 
@@ -290,7 +290,7 @@ zijn,
 
 Den 23^e^ April 1746.
 
-Weledele heer.^[^4]^
+Weledele heer.[^4]
 
 TRANSLATION
 
@@ -306,7 +306,7 @@ in Hout Bay, and when the confessant collected the charcoal from there,
 about four weeks ago now, he agreed with Isack to flee to the land of
 the *Caffers*.
 
-That when the confessant got to the Cape,^[^5]^ he, in accordance with
+That when the confessant got to the Cape,[^5] he, in accordance with
 what was agreed with Isack, talked to the slave Damon about joining them
 to run away, who was willing to do so, and promised him, the confessant,
 to also persuade other slaves to this.
@@ -319,21 +319,21 @@ Januarij of Hans Simonsz, Januarij of Van der Schijff and Arlequijn of
 the honourable Cornelis Eelders. All nine of them remained in the said
 tavern until about 8 o’clock in the evening, which is when they, one
 after the other, went from there to the flagman’s house behind the
-kloof,^[^6]^ which is where they had agreed to congregate again in order
+kloof,[^6] which is where they had agreed to congregate again in order
 to set out all together to Hout Bay, which is where they progressed to
 that night and where they arrived at the break of day. There, as shown
 to them by Isack, they hid themselves in the bushes until the following
 evening, which is when all of them first went to the little hut in which
 the slave Isack kept house, from where they took a pot, a kettle and a
 bucket, whereupon four of the company, viz. Isack, Jephta, Damon and
-Thomas, went to the farm of the honourable Le Sueur,^[^7]^ from where
+Thomas, went to the farm of the honourable Le Sueur,[^7] from where
 they took out of the workhouse a sail and a mast, as well as a rope
 which belonged to the boat which was kept on the beach, which they
 brought to the confessant and his four other mates, when they again set
 out to the garden, from where they also stole some mealies, watermelons,
 pumpkins and apples, which fruit, after all of them had placed it in the
 aforementioned sail, they carried to the boat on the beach, in which
-boat was also to be found four ropes, a grapnel^[^8]^ with its
+boat was also to be found four ropes, a grapnel[^8] with its
 accessories, and two small fishing nets. After this, all nine of them
 took the aforementioned boat to the water, got into it and took off with
 it from the shore in daylight. After being on the sea with good weather
@@ -394,7 +394,7 @@ requisition of the honourable independent fiscal, Pieter Reede van
 Oudshoorn, confesses it to be true:
 
 That fully three weeks ago now, after the confessant had fled from his
-owner because he could not raise his *koeli geld*,^[^9]^ the slave
+owner because he could not raise his *koeli geld*,[^9] the slave
 Baatjoe, belonging to the burgher Christiaan Victor, came to him in one
 of the streets of Cape Town and talked to him about fleeing together to
 the land of the *Caffers*, which the confessant was willing to do. On
@@ -486,7 +486,7 @@ doubt done by deserters.
 
 That upon this the aforementioned Coridon immediately went with the
 aforesaid slave to see if something could be discovered, and found
-footprints of several people going barefoot^[^10]^ from the house down
+footprints of several people going barefoot[^10] from the house down
 to the beach, and Coridon then also noticed that the boat, which had
 been standing there on two rolls lying in front of its grapnel, was
 gone. He then went to the workroom, the door of which was not locked but
@@ -500,7 +500,7 @@ That they both searched the whole day everywhere, both along the beach
 as well as on the mountains, but could not see anything of the
 aforementioned boat, nor discover any deserters. After receiving this
 report, the honourable testifier sent the said two slaves to the Cape in
-order to properly inform the honourable petitioner^[^11]^ of this
+order to properly inform the honourable petitioner[^11] of this
 incident.
 
 There being nothing further to relate, the testifier asserts to be
@@ -546,7 +546,7 @@ the vicinity of the burgher Barend Pietersz van Weesel’s farm, and,
 passing by, they went to that place, finding that the boat was lying
 drawn up on the beach at a very small bay named Onrust, being a large
 flat-bottomed boat with a mast in it, of which seven or eight
-knees^[^12]^ were broken as well as being cracked open on the front,
+knees[^12] were broken as well as being cracked open on the front,
 which \[crack\], as they understood, the boat received behind Hanglip,
 which is where they first ran with the boat onto the rocks and were
 forced to repair it. According to the assertions of the aforesaid
@@ -560,7 +560,7 @@ God, and declare that I will always be with the deepest respect,
 
 The 23^rd^ of April 1746.
 
-Honourable Lord.^[^13]^
+Honourable Lord.[^13]
 
 [^1]: * By this they meant the region of the Eastern Cape. For other
     examples of runaway slaves aiming to reach this area, outside the

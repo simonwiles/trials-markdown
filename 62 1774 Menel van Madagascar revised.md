@@ -3,9 +3,9 @@
 *A mid-winter fight between slaves over who would sleep by the fire
 gives a brief insight into living conditions on this farm at
 Riebeek-Kasteel. Unusually, the farm had a separate ‘slave
-house’.*^*[^1]*^* The case was considered serious enough to be sent to
+house’.[^1] The case was considered serious enough to be sent to
 the Council of Justice and Menel was given a life sentence on Robben
-Island.*^[^2]^* *
+Island.[^2] *
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
 

@@ -4,15 +4,15 @@
 he had had several children, because he saw another slave in the house
 rocking the cradle of their child and became jealous. He ran away but,
 without proper clothing and food, was forced to give himself
-up.*^*[^1]*^* *
+up.[^1] *
 
 *Apart from the nature of the relationships and jealousies between
 slaves in an urban household, the case contains a number of details of
 interest. Owners and burghers were entirely absent from the account of
-the events*^*[^2]*^* and there is some rare insight into the emotional
-feelings of a slave.*^*[^3]*^* The household also had a specialised
+the events[^2] and there is some rare insight into the emotional
+feelings of a slave.[^3] The household also had a specialised
 slave cook (Schindelaar was a lieutenant-captain and clearly upheld a
-relatively prosperous lifestyle).*^*[^4]*^* The weapon used in the
+relatively prosperous lifestyle).[^4] The weapon used in the
 attack was a *parrang*, a Southeast Asian term for a short machete.
 Januarij could not exist on his own on the mountain without prior
 preparation, and was able to regain access to the house via a Chinese
@@ -83,7 +83,7 @@ waarheijd te weesen.
 Aldus gerecolleert aan Cabo de Goede Hoop, den 13^e^ November 1755, voor
 d’ edele Cl. Brand en Js. Hs. Blankenberg, leeden uijt welgemelde
 edelagtbaare Raad van Justitie, die de minute deeses, beneevens den
-confessant^[^5]^ ende mij, secretaris, meede behoorlijk hebben
+confessant[^5] ende mij, secretaris, meede behoorlijk hebben
 onderteekent.
 
 ’Twelk ik getuijge, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
@@ -176,7 +176,7 @@ going as follows:
 
 That today in the afternoon, the time two or half past two o’clock at a
 guess, when the testifier was busy dressing the youngest son of her late
-owner, she, because her youngest child,^[^6]^ who was lying in the back
+owner, she, because her youngest child,[^6] who was lying in the back
 room in a cradle, was crying loudly, at that time requested the cook of
 her former owner, by the name of Augustus, to rock the same. In the
 meantime, while he was doing this, her fellow slave, named Januarij,
@@ -228,7 +228,7 @@ of the above to be the whole truth.
 Thus verified at the Cape of Good Hope on 13 November 1755 before the
 honourables Cl. Brand and Js. Hs. Blankenberg, members of the honourable
 Council of Justice, aforementioned, who have properly signed the
-original of this, together with the confessant^[^7]^ and me, the
+original of this, together with the confessant[^7] and me, the
 secretary.
 
 Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
@@ -267,8 +267,8 @@ aforesaid Augustus, had already fled through the window to the outside
 of the house, and then, with the aforementioned *parrang*, gave her a
 cut or three, without being able to say where or whether he had hit her.
 And upon seeing this *meijd* bleeding, the confessant fled with the
-*parrang* to Table Mountain.^[^8]^ From here, on the second night, he,
-with the help of the drainpipe of the back flat-roofed house,^[^9]^ in
+*parrang* to Table Mountain.[^8] From here, on the second night, he,
+with the help of the drainpipe of the back flat-roofed house,[^9] in
 which a Chinese lives, first climbed onto that flat roof and then into
 the back yard of his owner’s, in order to obtain his oilskin coat, since
 he was wearing nothing but a shirt. Yet, as this was not successful, the
@@ -305,7 +305,7 @@ Thus verified at the Cape of Good Hope on 13 November 1755 before the
 honourables Cl. Brand and Js. Hs. Blankenberg, members of the
 aforementioned honourable Council of Justice, who have properly signed
 the original of this, together with the confessant and me, the
-secretary.^[^10]^
+secretary.[^10]
 
 Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 

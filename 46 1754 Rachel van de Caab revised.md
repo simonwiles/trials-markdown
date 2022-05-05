@@ -1,14 +1,14 @@
 1.  RACHEL VAN DE CAAB
 
 *This is a complex and intriguing case of attempted poisoning of an
-owner by her slaves.*^*[^1]*^* Rachel collaborated with her fellow slave
+owner by her slaves.[^1] Rachel collaborated with her fellow slave
 Joseph in obtaining mercury from the Company apothecary, which they
 placed in the water glass of their owner’s wife, although Rachel claimed
 not to have understood the implications of this. The plot failed when
 the mistress noticed something wrong. Both Joseph and Rachel were
 subsequently tortured by their owner, and eventually confessed. Joseph
 hanged himself, and Rachel was sentenced to a public whipping and to be
-placed in chains for the rest of her life.*^*[^2]*^* *
+placed in chains for the rest of her life.[^2] *
 
 *However, the court also ordered that Rachel be sold, never again to be
 owned by Van Reenen or his family. Although it believed that Rachel and
@@ -17,7 +17,7 @@ justice for maltreating his slaves, since he did not have the permission
 of the fiscal to extract confessions from them and he had also concealed
 the facts about his actions in Rachel’s court case. The fiscal was sure
 that Van Reenen had driven Joseph to his suicide. He was fined 1,000
-guilders, with costs. *^*[^3]*^* *
+guilders, with costs. [^3] *
 
 **CJ 363** Criminele Process Stukken, Deel 2, 1754, ff. 6-9v.
 
@@ -33,7 +33,7 @@ verhangen hebbende is bevonden geworden, aan haar heeft gevraagt of sij
 niet wist waar dat quik te koop was, waarmede, hij sijde, knoopen en
 spiegels te willen schoon maaken; op ’twelke de confessante denselven
 ten antwoord gegeeven hebbende dat dat niet wiste, wierd door gedagte
-Joseph daarop hervat: Basta maar!^[^4]^
+Joseph daarop hervat: Basta maar![^4]
 
 Dat voormelde Joseph eenige dagen daarna haar confessante voor de tweede
 maal na quik gevraagd en teffens aangesegt heeft om seekere slave jonge,
@@ -259,7 +259,7 @@ there, without, however, him confessing even then.
 
 That later, on the following Sunday evening her said owner tied the
 hands and feet of the aforementioned Joseph together through the chair
-and spanned him into the *poolsche bok*,^[^5]^ and let him sit in this
+and spanned him into the *poolsche bok*,[^5] and let him sit in this
 way for fully an hour long in the expectation that this slave would come
 to a confession through it; yet, all in vain, as he only said that the
 confessant should know about it; which is why she was tied up in a

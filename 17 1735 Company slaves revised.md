@@ -8,7 +8,7 @@ and a *knecht* at one of the corrals and they were all captured by the
 *ratelwacht*, the night watch that guarded the town. *
 
 *Table Mountain was a well-known refuge for runaway slaves throughout
-the eighteenth century.*^*[^1]*^* This case shows some of the ways in
+the eighteenth century.[^1] This case shows some of the ways in
 which they tried to obtain food in the town, and also the dangers they
 faced from the town militia, as well as slaves and *knechten* stationed
 on the properties they raided. *
@@ -17,7 +17,7 @@ on the properties they raided. *
 those involved. Since they are all rather repetitive, we print four
 here: those of two of the accused, the Company-owned slaves Claas van de
 Caab and Kinsa van Madagascar, and those of the *knecht*, Jan Plat, and
-Januarij van Madagascar, a slave shepherd.*^*[^2]*^* *
+Januarij van Madagascar, a slave shepherd.[^2] *
 
 **CJ 339** Criminele Process Stukken, 1735, ff. 177-78.
 
@@ -259,7 +259,7 @@ That the confessant, having been a runaway for about two months, came to
 the Cape during the night of last Saturday, the 7^th^ of this current
 month May, together with a fellow slave of the honourable Company, named
 Cupido, who had run away long before him. And, after having bought bread
-and salted herring for a *dubbeltje*^*[^3]*^, the aforesaid Cupido, with
+and salted herring for a *dubbeltje*[^3], the aforesaid Cupido, with
 whom he had decided to go and steal a sheep from the corral of the
 former burgher councillor, Jan de With, went ahead to that place, while
 he followed him shortly thereafter and met up with this *jongen*,
@@ -425,7 +425,7 @@ of the honourable independent fiscal, *Meester* Daniel van den Henghel,
 confesses it to be true:
 
 That the confessant, now about three months ago, had run away and then
-stayed on the mountain above the honourable Company’s *schuur*^[^4]^ in
+stayed on the mountain above the honourable Company’s *schuur*[^4] in
 the company of 11 other slaves of the honourable Company and a *meijd*,
 named Lea van Madagascar, which is where they maintained themselves and
 obtained food by chopping wood and afterwards going to sell it.
@@ -435,10 +435,10 @@ fellow slave of the honourable Company, named Valentijn, who was
 previously assigned to the stables, came here to the Cape, when the
 aforesaid Valentijn jumped into the corral of the widow of Servaas de
 Kok, from which he took two sheep and gave them to him; with which they,
-each carrying one, went through the Cape^[^5]^ in order to take these
+each carrying one, went through the Cape[^5] in order to take these
 two sheep to their hiding place, being met between the house of the
 burgher Tielman and the houses of the honourable Company by the
-*ratelwacht*^[^6]^* *who took the confessant prisoner; while the slave
+*ratelwacht[^6] *who took the confessant prisoner; while the slave
 Valentijn took flight, though leaving the sheep that he was carrying
 behind.
 

@@ -15,16 +15,16 @@ paranoia that the authorities had about unsupervised and uncontrolled
 slaves who were assumed to be plotting ‘villainous deeds’. The suspicion
 that the Cape Town fire might have been deliberately caused by slaves
 was proved in the following months, when a number of runaways from the
-deserter community at Hangklip were captured.*^*[^1]*^* *
+deserter community at Hangklip were captured.[^1] *
 
 *Numerous laws were passed to try and control the movement and
 independence of urban slaves, the frequency of which suggest that none
-were particularly effective.*^*[^2]*^* *
+were particularly effective.[^2] *
 
 **CJ 340** Criminele Process Stukken, 1736, ff. 97-103 \[modern
 pagination\].
 
-Dictum ter rolle^[^3]^
+Dictum ter rolle[^3]
 
 Edelachtbaere Heeren,
 
@@ -131,7 +131,7 @@ onordentlijkheeden, vermeijnt te moogen concludeeren, gelijk doet bij
 deesen:
 
 Concludeert dat alle vijf de gevangens, en \<door diffinitive vonnisse
-van UEd. Achtbr.\>^[^4]^ gedaagdens mogen werden gecondemneert om door
+van UEd. Achtbr.\>[^4] gedaagdens mogen werden gecondemneert om door
 de caffers te werden gelaerst en voor een jaer in de ketting geklonken
 te werden, en dusdanig haer meesters thuijs gesonden te werden, met de
 kosten, ofte tot alsulke fine als ’t U Edel Achtbaarens sullen vinden te
@@ -162,7 +162,7 @@ could have been caused by them, especially as neither masters nor their
 vicinity and, for this reason, these people could play the master as
 they please. These crooks were this time taken prisoner after midnight,
 in the garden of the burgher Jan Uijltjes van Laer, by the
-*burgerwacht*^[^5]^ (warned by the former adjutant Lambregts) who, after
+*burgerwacht*[^5] (warned by the former adjutant Lambregts) who, after
 they had found the front door locked but the windows open, went to the
 back door, which also stood open, which is when some *jongens*, upon
 hearing the noise of this watch, got suspicious and, after they had
@@ -225,7 +225,7 @@ people who have gardens in this Table Valley are still not coming to an
 end, the *eijsscher* finds himself obliged, yet again, to address your
 honours and to show how, on the 15^th^ of this month, when the
 *burgerwacht*, while patrolling above the gardens, heard some noise in
-the little house of the flagman,^[^6]^ they went there and, entering,
+the little house of the flagman,[^6] they went there and, entering,
 found sitting there deep in the night, the five prisoners with the flag
 people, where they were busy drinking coffee. The four *jongens* of the
 burgher councillor Daniel Pfeil gave as excuse that they were out

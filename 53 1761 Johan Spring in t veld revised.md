@@ -2,14 +2,14 @@
 
 *This is a case of violent conflict between a *knecht*, placed in sole
 charge of the labourers on one of their owner’s isolated frontier farms,
-and one of the slaves, leading to the latter’s death.*^*[^1]*^* It is
+and one of the slaves, leading to the latter’s death.[^1] It is
 intriguing for the unusually clear details it gives of the attitudes of
 the slave and Khoi workers to their situation: their resentment to
 working on a Sunday, their challenges to a newly appointed* knecht* who
 was struggling to assert his authority, and the relationship of the Khoi
 and slave workers to each other. The cause of the slave Hermanus’s death
 was not proved, but it appears from this evidence that he committed
-suicide rather than face punishment.*^*[^2]*^* The case was not sent to
+suicide rather than face punishment.[^2] The case was not sent to
 the Council of Justice and there is no record that any further action
 was taken by the authorities.*
 
@@ -79,7 +79,7 @@ hand van dikwels gemelde slaaf Hermanus van desselfs hoofd afrukkende,
 hem voorts tegens de grond smeet, gevende hem vervolgens eenige slagen
 met de hand en, willens zijnde hem verders te laten gaan, maar even
 gemelde Hermanus weder opgestaan wesende, greep opnieuws na den
-relatant, zeggende: Jou maijvoedise^[^3]^ mattroos, ik zal jou wel
+relatant, zeggende: Jou maijvoedise[^3] mattroos, ik zal jou wel
 krijgen, op ’twelke den relatant denselven weder ter aarde werpende, hem
 voorts nog eenige slagen met de hand heeft gegeven, als hebbende toen
 niets bij zig waar mede konde verweeren; hebbende voorts opgemelde
@@ -158,7 +158,7 @@ dragen, dat den gequetsten niet mogte ontkomen, nog een mes bemagtigen,
 dat zij in zijn afwese denselven wel moeste oppassen. Waarna den
 relatant vervolgens is gereden na de plaats van den burger Wessel
 Wesselsz. en, aldaar komende, versogt of gemelde Wesselsz. met hem
-relatant geliefde te^[^4]^ … andersints iemand mede te ge\[ven om\]
+relatant geliefde te[^4] … andersints iemand mede te ge\[ven om\]
 hetgene, bij hem was voorgevallen, … besien en des vereijscht werdende,
 … te kunnen dragen; zijnde … met hem relatant gereden den b\[urger\]
 Willem Brouwer, thans als kn\[egt bij\] voormelde Wesselsz. bescheijden,
@@ -188,7 +188,7 @@ Dat aldus passeerde aan Stellenbosch op den 21^e^ October 1761, ten
 overstaan van den substitut Coenraad Berkman en den geregtsbode Johan
 Marthinus Smalbergen, als getuijgen hiertoe versogt.
 
-\[get.\] Johan Christian Springensfeld.^[^5]^
+\[get.\] Johan Christian Springensfeld.[^5]
 
 Als getuijgen, \[get.\] C. Berkman, J.M. Smalbergen .
 
@@ -203,7 +203,7 @@ competent age, being of the following contents, namely:
 That by eventide on the 17^th^ of this current month October 1761, on
 the farm of the burgher Johannes Groenewald, situated over the mountains
 and named the Steenboks Rivier, the testifier, who has supervision there
-as *knecht*, ordered a certain *Bastaard-Hottentot*^[^6]^ called
+as *knecht*, ordered a certain *Bastaard-Hottentot*[^6] called
 Adriaan, resident at that place, to help get the yokes ready so that
 they could start ploughing the following morning, which was a Sunday,
 which he did. On the morning of the following day, the testifier started
@@ -228,9 +228,9 @@ having put his gun in the house, did at once, when, after they had again
 started ploughing, the rope broke, which rope, after it too was repaired
 by the testifier, broke for the second time during the ploughing,
 whereupon the aforementioned slave Hermanus said: “All the work which is
-done on a Sunday, is of the devil, and is accursed”.^[^7]^ Which words
+done on a Sunday, is of the devil, and is accursed”.[^7] Which words
 he repeated yet again, when the testifier answered: “At Stellenbosch too
-you have had to plough and sow,^[^8]^ for three days now you have not
+you have had to plough and sow,[^8] for three days now you have not
 been able to work because of the rain and it is the work of your *baas*,
 and not mine; when this furrow has been done, then you can stop, this is
 the last one for today”. Whereupon the said slave Hermanus replied: “If
@@ -238,14 +238,14 @@ the *baas* knew of everything that is happening on this farm, then you
 would have it very bad, and I will tell the *baas* myself”, upon which
 the testifier said to him: “Then you have to tell me what it is”, while
 the said *jongen* told the testifier, again: “Yes, to send meat and
-butter to sick people at the warm baths,^[^9]^ if the *baas* knew that,
+butter to sick people at the warm baths,[^9] if the *baas* knew that,
 you would have it very bad”, whereupon the testifier again told him:
-“You are lying like a *canalje*,^[^10]^ and for that I shall punish
+“You are lying like a *canalje*,[^10] and for that I shall punish
 you”, upon which utterance the testifier asked the two aforementioned
 Hottentots if they could say that of him, which was not answered by
 them. The testifier then said to aforementioned Hermanus: “You have
 always been a tell-tale here on this farm, and you are trying to treat
-me as you did the other *knechten*, but I will take care of that.^[^11]^
+me as you did the other *knechten*, but I will take care of that.[^11]
 In the meantime I shall beat you solidly over this, and then you can go
 and complain to the *baas*, if you consider yourself to be in the
 right”, whereupon the testifier stepped towards the said Hermanus with
@@ -255,7 +255,7 @@ hair, whereupon the testifier flicked from his head the hand of the said
 slave Hermanus, then threw him down on the ground and then dealt him
 some blows with his hand, being of the intention to let him then go
 free. However, when the said Hermanus had got up again, he once again
-reached for the testifier, saying: “You motherfucking sailor,^[^12]^ I
+reached for the testifier, saying: “You motherfucking sailor,[^12] I
 will get you!”, upon which the testifier again threw him down and dealt
 him some more blows with his hand, since he did not have anything with
 him with which he could defend himself at that time. The aforementioned
@@ -288,7 +288,7 @@ gone”, whereupon the testifier replied again: “You must bring this
 testifier had watched the said house for about an hour and a half, the
 said slave Hermanus, together with the *Bastaard* Adriaan, came from the
 house towards him, while the slave said to him: “You must forgive me”,
-adding: “I shall never again do that to a Christian”;^[^13]^ to which
+adding: “I shall never again do that to a Christian”;[^13] to which
 the testifier answered him: “No, *jongen*, for a long time you have had
 it in mind to do this to me, and you will do it to another one as well”,
 while the said Hermanus requested: “Let me go free then”, with the
@@ -329,7 +329,7 @@ Hottentots Adriaan and Cobus to take care that the wounded should not
 get away, nor that he should obtain a knife, that they must watch him
 well during his absence. After which the testifier then rode to the farm
 of the burgher Wessel Wesselsz. and, arriving there, asked the said
-Wessels if he would not^[^14]^ \[come\] with the testifier, or otherwise
+Wessels if he would not[^14] \[come\] with the testifier, or otherwise
 let somebody else come with him to have a look at what had happened and,
 if so required, to help carry … The burgher Willem Brouwer, currently
 working at aforesaid Wessels as *knecht*, \[then\] rode with the

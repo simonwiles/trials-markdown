@@ -2,22 +2,22 @@
 
 *Jonas made an appeal to his recently widowed owner to be set free.
 Manumission of slaves at the Cape was rare, but did sometimes take place
-by the wishes of an owner at the time of his or her death.*^*[^1]*^*
+by the wishes of an owner at the time of his or her death.[^1]
 Jonas presented his mistress with a letter requesting his freedom, which
-is reproduced here.*^*[^2]*^* He clearly believed that some form of
+is reproduced here.[^2] He clearly believed that some form of
 written documentation would aid his request for manumission and probably
-requested his Sunday afternoon off*^*[^3]*^* in order to have it
-prepared for him by a letter-writer.*^*[^4]*^* However, his mistress
+requested his Sunday afternoon off[^3] in order to have it
+prepared for him by a letter-writer.[^4] However, his mistress
 refused him, a refusal which ultimately led to Jonas’s attempt to stab
 her in her bed several months later.*
 
 *The case is also intriguing for the details of domestic life in an
-artisan household in the Cape.*^*[^5]*^* The presence of the many
+artisan household in the Cape.[^5] The presence of the many
 *knechten* doubtless led Jonas to make the intriguing assertion that he
 would be a faithful *knecht* to his owner if freed. Clearly he aspired
 to the status of the hired labourers in his owner’s home. Status, and
 the ways in which it was expressed, was crucially important in the VOC
-Cape.*^[^6]^
+Cape.*[^6]
 
 **CJ 784** Sententiën, 1717-1725, ff. 131-38.
 
@@ -238,7 +238,7 @@ In kennisse van mij, \[get.\] Dl. Thibault, secretaris.
 **CJ 323** Criminele Process Stukken, 1719, f. 519 \[modern
 pagination\].
 
-Aan den eebare \[*sic*\] juffw. Aarmintie Jillis^[^7]^
+Aan den eebare \[*sic*\] juffw. Aarmintie Jillis[^7]
 
 Geeft met alle nedrigheijt en droefheijt des herten te kennen UE. juffw.
 onderdanige slaaf Jonas van Manado hoe dat hij suppt. met vertoonig
@@ -256,7 +256,7 @@ UE. juffw. dien.
 TRANSLATION
 
 As Jonas van Manado, 30 years old at a guess, bondsman of Hermina
-Herwigh, widow of Jan Basilius Creitsmar,^[^8]^ currently their honours’
+Herwigh, widow of Jan Basilius Creitsmar,[^8] currently their honours’
 prisoner, has voluntarily confessed and admitted, without any torture or
 coercion of bonds, of irons, or any threat of suchlike; and since it has
 appeared most evident to the honourable Council of Justice:
@@ -335,13 +335,13 @@ United Netherlands, and having judged the prisoner, is sentencing him
 with this: to be taken to the place where criminal justice is usually
 executed here, and there to be handed over to the executioner, first
 that his right hand be chopped off and then, with the same \[severed
-hand\] and a knife above his head,^[^9]^ to be punished with the rope on
+hand\] and a knife above his head,[^9] to be punished with the rope on
 the gallows so that death will follow; afterwards that the dead body be
 taken from there, dragged through their honours’ streets and roads to
 the outer place of execution, there to be hanged again with the severed
 hand and the knife above the head, and to remain like that until being
 consumed by the air and birds of heaven; with the costs and expenditure
-of justice.^[^10]^
+of justice.[^10]
 
 Thus done and sentenced in the Castle of Good Hope on 23 November 1719.
 
@@ -363,7 +363,7 @@ requisition of the honourable independent fiscal, Cornelis van Beaumont,
 declares it to be true:
 
 That on 20 August of this year, which was a Sunday, there came to the
-deponent in her bedroom her slave named Jonas van Balij,^[^11]^ who
+deponent in her bedroom her slave named Jonas van Balij,[^11] who
 requested her, seeing that it was a Sunday (and since this was always
 permitted him by his late *baas*), to be allowed to go out as per usual.
 
@@ -383,7 +383,7 @@ freedom, since his *baas* had not promised it to him, to which this
 Jonas then answered: “Then I will not do good any longer”.
 
 That after this, when they separated, this slave went the bark
-house.^[^12]^ The deponent instantly followed him there, and after she
+house.[^12] The deponent instantly followed him there, and after she
 searched his heart over his suggestion and utterances, while advising
 him to perform his duty as it ought to be done, this Jonas replied to
 this that he would not serve her as a slave, but as a faithful *knecht*,
@@ -431,7 +431,7 @@ warned by one of her slaves, named Claas, that the aforementioned Jonas
 was on the farm and that he had a knife in his hand, upon which she
 ordered her *knechten* to go and have a look, but when they arrived at
 the farm to look for him, they saw that he had jumped over the wall,
-whereupon the deponent had the *geweldiger* and the *caffers*^[^13]^
+whereupon the deponent had the *geweldiger* and the *caffers*[^13]
 called to see that this Jonas was apprehended, who did come, and that
 same evening, at about half past eight o’clock, they caught this slave
 Jonas – who had hid himself amongst the peas in the little garden behind
@@ -457,14 +457,14 @@ TRANSLATION
 
 To the virtuous *juffrouw* Aarmintie Jillis,
 
-Your honourable *juffrouw*’s^[^14]^ obedient slave gives notice, with
+Your honourable *juffrouw*’s[^14] obedient slave gives notice, with
 all humility and sadness of heart, with the presentation to your
 honourable *juffrouw* of how he, the suppliant, has served your
 honourable *juffrouw*, since fully ten years ago now, with faithful
 service, without complaining to anybody, consequently he, the suppliant,
 is finally seeking your honourable *juffrouw*’s aid with hands clasped
 and knees bent, praying humbly that it would please your honourable
-*juffrouw* to look upon him, the suppliant, in keeping with her^[^15]^
+*juffrouw* to look upon him, the suppliant, in keeping with her[^15]
 innate mercifulness, with the eyes of compassion, and to please permit
 him, the suppliant, a letter of freedom. He, the suppliant, promises to
 serve your honourable *juffrouw* with faithful service.

@@ -4,11 +4,11 @@
 different times from farms in the Stellenbosch district, and of running
 away when he was chased. What makes the story particularly interesting
 is that he was the slave of a Ternate prince, Denge Mamouti (also
-referred to as Daije Mosis*^*[^1]*^*) who had been exiled to the Cape by
-the VOC authorities in Batavia.*^*[^2]*^* Slaves formed an important
+referred to as Daije Mosis[^1]) who had been exiled to the Cape by
+the VOC authorities in Batavia.[^2] Slaves formed an important
 part of the households of men of wealth and status throughout Southeast
 Asia, and high-ranking Asian exiles frequently brought an entourage of
-their wives, children and slaves with them to the Cape.*^*[^3]*^* That
+their wives, children and slaves with them to the Cape.[^3] That
 their authority over their exiled households was respected by the
 Company is shown by the opportunity the court authorities gave to Denge
 Mamouti to defend his slave, and the importance attached to the
@@ -17,10 +17,10 @@ since he was sentenced to death. *
 
 *Doulat’s own interrogation (which is not published here since it
 repeats the material in the *sententie*) was carried out in
-Portuguese,*^*[^4]*^* and the documents read to Denge Mamouti were in
+Portuguese,[^4] and the documents read to Denge Mamouti were in
 Portuguese and Malay, both of which were widely spoken in Southeast
 Asia, and for which there were interpreters at the Council of Justice in
-Cape Town.*^*[^5]*^* *
+Cape Town.[^5] *
 
 **CJ 784** Sententiën, 1717-1725, ff. 64-71.
 
@@ -179,7 +179,7 @@ and six skeins of yarn, leaving the chest there.
 That the prisoner, shortly after leaving there, had shown the money to a
 certain slave of one Christoffel Wit, saying that it was his own. That
 afterwards the prisoner gave some of this stolen money to his
-aforementioned master to pay his *maandgeld*^[^6]^ of five rixdollars,
+aforementioned master to pay his *maandgeld*[^6] of five rixdollars,
 as he had been in agreement with him to earn that much every month.
 
 Moreover that the prisoner not only spent the remaining money, but also
@@ -214,9 +214,9 @@ on the bed with him, without though (as he confesses) having any
 intention to injure anybody.
 
 That the prisoner fled to the bushes around the mountain of Clapmuts and
-sustained himself with *uijntjes*^[^7]^ until, after nineteen days, he
+sustained himself with *uijntjes*[^7] until, after nineteen days, he
 was apprehended on the farm of the aforementioned Christoffel Groenewald
-\[*sic*\] by Groenewald’s son, one Claas Leckerwijn,^[^8]^ and Pieter
+\[*sic*\] by Groenewald’s son, one Claas Leckerwijn,[^8] and Pieter
 Simonsz. Plooij who, after struggling with him for a while, overpowered
 him and delivered him into the hands of justice.
 
@@ -242,7 +242,7 @@ gallows in such a way that death will follow; afterwards that the dead
 body be taken from there, dragged through their honours’ streets to the
 outer place of execution, there to be hanged again and to remain like
 that until being consumed by the air and birds of heaven, with the costs
-and expenditure of justice.^[^9]^
+and expenditure of justice.[^9]
 
 Thus done and sentenced in the Castle of Good Hope on 13 October 1718.
 

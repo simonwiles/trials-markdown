@@ -9,7 +9,7 @@ which a suicide case was dealt with by the local authorities. They were
 primarily concerned with the fact that they could not find a tree or
 beam from which to hang Andries’s corpse. The bodies of slaves who had
 committed suicide were supposed to be publicly displayed in this way as
-a warning to others.*^*[^1]*^* *
+a warning to others.[^1] *
 
 **CJ 2485** Inkoomende Brieven, 1729-1759, Deel 1, ff. 52-4.
 
@@ -38,7 +38,7 @@ zijn meester niet t’ huijs, en desselfs lijfvrouwe naar de thuijn was
 gegaan, uijt de combuijs in ’t voorhuijs is gekomen en gemelten meijd
 Romana, die met 2 à 3 andere meijden sat te naaijen, bij ’t hair heeft
 gevat en vervolgens met een mes, welke in de hand hadde, uijt jalousie,
-soo wij hebben vernomen, onder ’t seggen: Poeta!^[^2]^ waarom doet ghij
+soo wij hebben vernomen, onder ’t seggen: Poeta![^2] waarom doet ghij
 soo voor mij?, in de hals heeft gesneeden, vattende die meijd alsdoen,
 met de regter hand het mes aan, waardoor zij een groote wonde in de hand
 ontfong, houdende hetselve egter vast, en smeet het vervolgens in de
@@ -97,7 +97,7 @@ TRANSLATION
 
 The Cape of Good Hope.
 
-To the honourable lord Rijk Tulbagh, *opperkoopman* and *secunde*^[^3]^
+To the honourable lord Rijk Tulbagh, *opperkoopman* and *secunde*[^3]
 of this government, and also the president of the honourable Council of
 Justice.
 
@@ -116,7 +116,7 @@ afternoon, while his master was not at home and his mistress had gone
 into the garden, the said *jongen* Andries (who had a relationship with
 the aforementioned *meijd* Romana) came from the kitchen into the
 *voorhuijs*, and grabbed by the hair the said *meijd* Romana, who was
-sitting there with two to three other *meijden* doing sewing.^[^4]^ He
+sitting there with two to three other *meijden* doing sewing.[^4] He
 then, out of jealousy, as we have learned, gave her throat a cut with
 the knife he held in his hand, saying: “Whore! Why are you doing this to
 me?” The *meijd* then grabbed the knife with her right hand, from which
@@ -151,7 +151,7 @@ Andries, but, while we were in the house to inform ourselves about this
 case, and specifically whether it was Romana or this *jongen* who cut
 open his abdomen, he died. And since there are no trees around here, and
 since no timber work can be had from which to hang him by his
-legs,^[^5]^ we were obliged, on the request of the said Louw, to have
+legs,[^5] we were obliged, on the request of the said Louw, to have
 this *jongen* dragged by his legs from the yard to the veld; hoping that
 these, our actions, will be favourably approved by your honour.
 

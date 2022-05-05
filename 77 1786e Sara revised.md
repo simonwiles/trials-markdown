@@ -8,7 +8,7 @@ landdrost feared that the episode would lead to an epidemic of slave
 suicides and proposed that her body be gruesomely displayed to warn
 others who might be contemplating such an act. It could of course be
 that Sara had a particular reason for killing herself, related to
-November’s death.*^*[^1]*^* The case may thus indicate a personal
+November’s death.[^1] The case may thus indicate a personal
 fidelity and anguish at a partner’s death, showing that not all slave
 relationships entailed conflict and jealousy, as the criminal court
 records often seem to suggest.*
@@ -17,7 +17,7 @@ records often seem to suggest.*
 had committed a crime and faced capture and punishment, but sometimes,
 as appears here, out of desperation to end a particularly unhappy life.
 Their corpses were usually displayed in public as a deterrent to
-others.*^*[^2]*^
+others.*[^2]
 
 **CJ 2489** Inkoomende Brieven, 1786-1788, Deel 5, ff. 59-61.
 
@@ -83,13 +83,13 @@ his, named November, drowned at the mouth of the Duiwenhoks River. The
 circumstances of this drowning, which I have heard around, have already
 caused some suspicions, about which I hope to send two statements before
 long to your honour, which will completely confirm the grounds of these
-suspicions.^[^3]^ And today I received a second letter, dated the 27^th^
+suspicions.[^3] And today I received a second letter, dated the 27^th^
 of this month, in which Van Reenen informs me that a woman slave first
 hurled her four children into the water and then also herself and
 drowned together with three of her children. The oldest of these, being
 a little girl, very luckily hung onto the reeds at the side of the water
 and thus saved herself. She says that her mother had already earlier
-tried to incite her to die.^[^4]^
+tried to incite her to die.[^4]
 
 This last incident, added to the first, and the consequences which could
 stem from this, made me determined to inform the aforementioned Van

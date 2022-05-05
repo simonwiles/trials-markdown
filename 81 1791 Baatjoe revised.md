@@ -140,13 +140,13 @@ must pay out to him the change above the 14 *schellingen* which the said
 blankets \[*sic*\] would cost. The testifier, since she was not very
 sure of the value of the note, answered the said slave Sangoor that she
 first needed to find out how much it was \[worth\] and that she would
-then pay out the rest to him.^[^1]^
+then pay out the rest to him.[^1]
 
 That when the testifier was sent that very same day by her mistress to
 the widow Ginsenberg to enquire if she had bananas for sale, she on this
 occasion requested a little slave *meijd* of the said widow Ginsenberg,
 named Jamila, to go and show the aforementioned piece of money to the
-former messenger of the court Faustman,^[^2]^ who lived next door, and
+former messenger of the court Faustman,[^2] who lived next door, and
 to ask him the value of it, with the aim to afterwards let this little
 *meijd*, who was ready to depart and go to the honourable Ackerman, buy
 her some silk kerchiefs somewhere else. This little *meijd* then indeed
@@ -193,8 +193,8 @@ Combrink, who on the requisition of the landdrost here, the honourable
 That some time ago, without being able to determine the correct day, a
 fellow slave of his owner, named Baatjoe, handed over to the deponent a
 piece of paper money which he said was five rixdollars, with the request
-to buy a blanket with it from the African^[^3]^ *meijd* of the
-honourable Domus,^[^4]^ whom the deponent does not know by name. And
+to buy a blanket with it from the African[^3] *meijd* of the
+honourable Domus,[^4] whom the deponent does not know by name. And
 since he was just then going past the residence of the said honourable
 Domus on his way to fetch wood in the veld, he found the said woman
 slave there, which is when the deponent handed over the aforesaid piece

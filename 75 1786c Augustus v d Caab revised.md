@@ -7,7 +7,7 @@ claiming to give their owner’s permission for them to travel into the
 interior, at first from a literate free black, and then from an
 unsuspecting young schoolboy. They also took along charms and obtained a
 talisman from a Muslim religious leader who had been exiled to the Cape
-from Batavia.*^*[^1]*^* They formed a close band, unified by their
+from Batavia.[^1] They formed a close band, unified by their
 religious beliefs, swearing oaths of loyalty to each other and vowing to
 fight to the death. The bragging of one of them, and the qualms of
 another, unusually give a glimpse of the dynamics within such a band of
@@ -15,12 +15,12 @@ runaways.*
 
 * The band was aiming for the country of the Xhosa and managed to get as
 far as the Swellendam district, relying on food and shelter offered to
-them by unsuspecting colonists and Khoi,*^*[^2]*^* who were taken in by
+them by unsuspecting colonists and Khoi,[^2] who were taken in by
 their possession of passes. Conflicts arose when they attempted to
 obtain possessions by force: in the case of the Khoi leading to their
 retaliation, in that of the colonists to a massacre on a Swellendam
 farm. Only then was the alarm raised and a group of Khoi sent to look
-for them.*^*[^3]*^
+for them.*[^3]
 
 **CJ 795** Sententiën, 1782-1789, ff. 376-406.
 
@@ -42,7 +42,7 @@ Engel, voor nu omtrend een jaar van hunne lijfheeren voor de eerste
 rheijze opgedrost zijnde geweest, alstoen, ter meerdere seekerheijd
 hunne aufugie, van zeekeren vrijswart, door de wandeling genaamd
 Valentijn van Dapoer, hebben verzogt gehad om een gelij- of
-slagters-briefje^[^4]^ voor hun te willen maken, ten eijnde door dien
+slagters-briefje[^4] voor hun te willen maken, ten eijnde door dien
 weg, volgens hun gemaakt project, verre landwaarts in bij de Caffers te
 geraaken; zijnde zijlieden met gemelde Valentijn dan ook overeengekoomen
 dat hij zodanig een briefje aan hunlieden zoude bezorgen, onder deese
@@ -334,7 +334,7 @@ gepleegde gruweldaden nog, als een zoort van heldenstuk, onder
 elkanderen verhandelden, aan hun verhaald heeft dat hij 6^e^ gevangen
 den knegt Kramer meede een steek gegeeven heeft, dat ’t mes hem in de
 buijk was blijven zitten en, daarenboven, een der meijden zodanig in de
-buijk gewond heeft: Dat haar (s.v.)^[^5]^ de drek uijt den buijk
+buijk gewond heeft: Dat haar (s.v.)[^5] de drek uijt den buijk
 gekoomen is; ’tgeen echter door hem 6^e^ gevangen is ontkend, onder
 voorwendsel dat hij zulx eeniglijk gezegd heeft om daar door niet
 beschaamd te staan voor zijne makkers en opdat hij door hun niet van
@@ -434,7 +434,7 @@ Neethling, C.G. Maasdorp, Cl. Matthiessen, G.H. Meijer, O.G. de Wet.
 
 Mij present, \[get.\] C. van Aersen, secretaris.
 
-**CJ 424** Criminele Process Stukken, 1786, deel 2, ff. 699 & 701.^[^6]^
+**CJ 424** Criminele Process Stukken, 1786, deel 2, ff. 699 & 701.[^6]
 
 Laat deze jongen passeren genaampt Aandries Augus Zalomon Jonas Welkomp
 Loewies Klaas De Hottentot tot na Sondag revier na David Koen en B
@@ -461,7 +461,7 @@ include here photograph of the Bougies letter (CJ 424, pp. 703)
 TRANSLATION
 
 Since August van de Caab, bondsman of the burgher David Benjamin
-d’Aillij, 26 years old at a guess, Andries van Calkuta,^[^7]^ slave of
+d’Aillij, 26 years old at a guess, Andries van Calkuta,[^7] slave of
 the dragoon Christiaan Velbron, 25 years old at a guess, Jonas van
 Batavia, bondsman of the burgher Willem van Reenen, 30 years old at a
 guess, Damon van Bougies, slave of the burgher Jochem Janeke, 28 years
@@ -477,13 +477,13 @@ with the third prisoner Jonas and a certain slave *jongen* by the name
 of Maij, belonging to the burgher Johannes Engel, ran away from their
 owners for the first time they, for greater security in their fleeing,
 requested a certain free black, commonly known by the name of Valentijn
-van Dapoer, to write a permit or butcher’s letter^[^8]^ for them, in
+van Dapoer, to write a permit or butcher’s letter[^8] for them, in
 order to thus get, in accordance with their planned scheme, far into the
 interior to the Caffers. So they agreed with the said Valentijn that he
 would provide such a letter to them, on the condition that they would
 not reveal it to anyone; as this letter was then also written by this
 Valentijn under the name of the burgher lieutenant, Jonas Albertus van
-der Poel,^[^9]^ without, however, according to the confessions of the
+der Poel,[^9] without, however, according to the confessions of the
 first and third prisoners, the said Valentijn having known what they
 were intending to do, while the same Valentijn received from them a
 copper watch.
@@ -525,7 +525,7 @@ the first and third prisoners, paid him two rixdollars in paper money
 for this, without the said Fabritius or anybody in the household of the
 aforementioned Paulsen, according to the confessions of all the
 prisoners, having known anything of the plot the prisoners had
-devised.^[^10]^ So, this Fabritius, who could certainly, on account of
+devised.[^10] So, this Fabritius, who could certainly, on account of
 his youth and ignorance, not have realised the dangerous consequences of
 this, was relieved from his detention, in accordance with a decision of
 the honourable Council of Justice, while those under whose care he is
@@ -563,7 +563,7 @@ aforementioned Council therefore thought it fit, and decided, to
 provisionally banish the same priest Norman to Robben Island, until such
 time that further evidence regarding this would have come to hand; while
 the aforementioned Valentijn was also properly punished for writing the
-false letter and likewise confined to Robben Island.^[^11]^
+false letter and likewise confined to Robben Island.[^11]
 
 Moreover, that the third, fourth, fifth and sixth prisoners were each
 provided with a special kind of powder, without, however, their wanting
@@ -606,7 +606,7 @@ riveted around the legs of the third prisoner.
 That from there the prisoners went further to ’t Moddergat, the farm of
 the former *heemraad* of Stellenbosch, Jacobus Conterman, and after
 having stayed there and having bought bread and wine, they continued
-their journey to the *cloofmaker*^[^12]^ beneath Hottentots Hollands
+their journey to the *cloofmaker*[^12] beneath Hottentots Hollands
 kloof, where they refreshed for a while and thereafter passed through
 the kloof and arrived at a certain Christoffel Kock, living at Bot
 River, and from there to one Willem Wilkens at De Wolve Kraal, where,
@@ -620,7 +620,7 @@ they bought further, from the remainder of their money, two loaves of
 bread and a bottle of wine, while they went from there to one Christiaan
 Koen, who lives at the Kwartel River, and further on to the widow of
 Hans Jurgen Linde, where the prisoners slept for one night, from there
-to the Storm Valleij^[^13]^ to one Gerrit Kemp, where they bought two
+to the Storm Valleij[^13] to one Gerrit Kemp, where they bought two
 bottles of brandy and half a loaf of bread; after which the prisoners
 continued their journey further to the Nieuwe Clooff until they arrived
 at a Hottentot *kraal* and stayed there for two days and two nights when
@@ -635,7 +635,7 @@ That the prisoners had by then already proceeded to one widow Van Eede,
 down at the Breede River, whereafter they went through the Karnmelks
 River to the farm of a certain Jan van Reenen, where they passed the
 Donau River, and on to the farm of one Pieter du Pree, situated in the
-vicinity of the Kafferskuijls River;^[^14]^ while the second prisoner
+vicinity of the Kafferskuijls River;[^14] while the second prisoner
 also confessed, which was confirmed as well by the third and sixth
 prisoners, that when they passed the place of a certain blacksmith, who
 lived in a small house along this road and maintained himself by selling
@@ -649,7 +649,7 @@ place had been deserted, they returned from there to their other
 comrades without having achieved their object.
 
 That finally, on the report of the third prisoner Jonas, namely that the
-burgher Sebastian Rotman^[^15]^ was a trader and had many goods and
+burgher Sebastian Rotman[^15] was a trader and had many goods and
 cash, the prisoners set their course to the farm of the aforementioned
 Rotman and, when they reached it on 21 October of this year, they
 mutually agreed to remain close to the farm that night so that they
@@ -664,7 +664,7 @@ fall of night and showed, on the request of the *knecht* on that farm,
 by the name Kramer, their permits or passes.
 
 That while her husband was not at home, the wife of the aforementioned
-Rotman,^[^16]^ under the impression that the prisoners, in accordance
+Rotman,[^16] under the impression that the prisoners, in accordance
 with their letters, were truly *jongens* of the butcher Van der Poel,
 and fearing no evil, supplied the prisoners with proper food and drink,
 and moreover provided them with a good sleeping place. By then the
@@ -787,7 +787,7 @@ pretended to be a butcher’s *jongen* and to have strayed from his
 comrades.
 
 Moreover, that the Hottentot Captain Adam Prins, who was on that farm
-and had already received the order to go out after the prisoners,^[^17]^
+and had already received the order to go out after the prisoners,[^17]
 went this very day on commando with his subordinate men, and upon
 passing the sheep corral of the aforementioned Hop, discovered as result
 of the wetness and muddiness that there had been strange people there
@@ -829,7 +829,7 @@ execution, there to be put onto wheels and their heads onto stakes, to
 remain thus until being consumed by the air and birds of heaven, with
 sentencing all the prisoners to the costs and expenditure of justice,
 and denying the further or otherwise drawn-up *eijsch* and delivered
-*conclusie* of the Officer^[^18]^.
+*conclusie* of the Officer[^18].
 
 Thus done and sentenced at the Cape of Good Hope on the 23^rd\ ^of the
 month November 1786; as also pronounced in the Castle of Good Hope on

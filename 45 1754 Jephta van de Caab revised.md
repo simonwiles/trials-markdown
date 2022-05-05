@@ -4,16 +4,16 @@
 his way through the crowd of high-ranking Company officials at the
 entrance to the church, to bring his master his coat. The episode gives
 an unusual glimpse of the duties of the private slave of officials and
-their sensitivity to their dignity.*^*[^1]*^* It moreover illustrates
+their sensitivity to their dignity.[^1] It moreover illustrates
 how sensitive contemporary society was to issues of rank and
-status.*^*[^2]*^* Jephta was charged with insolence and publicly
-whipped.*^*[^3]*^
+status.[^2] Jephta was charged with insolence and publicly
+whipped.*[^3]
 
 *The case had an extraordinary aftermath, as on the afternoon of the
 event Jephta’s mistress, Martha Solliers, went to the fiscal’s house and
 verbally abused him for arresting her slave. This resulted in a
 long-drawn-out civil case in which the fiscal sued her for insulting his
-person and office.*^*[^4]*^
+person and office.*[^4]
 
 **CJ 788** Sententiën, 1750-1755, ff. 179-183.
 
@@ -115,7 +115,7 @@ proceed home from the Lord’s house here, and had already, along with the
 said congregation, got to the inside portal of the church: the prisoner,
 provided with a coat and parasol, thought it good to push between – with
 much rudeness and almost with force or fury – the honourable fiscal and
-some of his fellow principal lords of this government,^[^5]^ and their
+some of his fellow principal lords of this government,[^5] and their
 wives as well as a throng of other *juffrouwen*, who were all leaving
 the church together, into the church, on account of which the honourable
 fiscal then, thinking at first that this rude intrusion performed by the
@@ -164,7 +164,7 @@ the executioner and to be tied to a stake, to be severely scourged with
 rods on his bare back and thus to be sent back home again to his owner,
 on condition that the same pays the costs and expenditure of justice;
 the Council denying the further *eijsch* of the honourable
-officer.^[^6]^
+officer.[^6]
 
 Thus done and sentenced in the Castle of Good Hope on 15 August 1754, as
 also pronounced and executed on the 7^th\ ^of the following month

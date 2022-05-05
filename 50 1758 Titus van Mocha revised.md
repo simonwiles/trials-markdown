@@ -1,13 +1,13 @@
 1.  TITUS VAN MOCHA
 
 *This episode shows that runaway slaves could not always rely upon other
-slaves to help them.*^*[^1]*^* Titus escaped from his rural owner in
-Roodezand*^*[^2]*^* to Cape Town, but was given up to the authorities by
+slaves to help them.[^1] Titus escaped from his rural owner in
+Roodezand[^2] to Cape Town, but was given up to the authorities by
 some of the Company slaves to whom he appealed for help. The case is
 also interesting for the details that it provides of the housing of
 slaves at the Company brickworks. They stayed in a hut near the furnace,
 not in the Slave Lodge in town, perhaps because they needed to tend the
-furnace during the night.*^*[^3]*^* *
+furnace during the night.[^3] *
 
 **CJ 789** Sententiën, 1756-1760, ff. 121-25.
 
@@ -149,7 +149,7 @@ ende mij, geswoore clercq, meede behoorlijk hebben gesubscribeert.
 
 TRANSLATION
 
-Since from the voluntary, verified confession of Titus van Mocha^[^4]^,
+Since from the voluntary, verified confession of Titus van Mocha[^4],
 bondsman of the farmer Jacobus du Toij \[*sic*\], 27 years old at a
 guess, currently their honours’ prisoner, and from the other evidence
 furnished in the case, it has come to appear as clear as daylight to the
@@ -195,7 +195,7 @@ to a stake, to be severely scourged with rods on his bare back, and
 thereupon to be branded, further to be riveted in chains for a period of
 five consecutive years, to be sent home to his owner, provided he pays
 the costs and expenditure of justice; with the Council denying the
-otherwise drawn up *eijsch* of the honourable officer.^[^5]^
+otherwise drawn up *eijsch* of the honourable officer.[^5]
 
 Thus done and sentenced in the Castle of Good Hope on 8 June 1758, as
 well as pronounced and executed on the 10^th^ thereupon.
@@ -221,7 +221,7 @@ with them in a little hut standing there, woke up after twelve o’clock
 both through the knocking which was done on the door in front and
 through the barking of the dogs, got up, went outside of this hut and on
 to the large door and opened it in order to see who could be
-there.^[^6]^
+there.[^6]
 
 That the testifier then became aware of somebody in the dark not far
 from the hut who was surrounded by the dogs and that, about three paces

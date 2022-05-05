@@ -3,9 +3,9 @@
 *Slaves could be caught up in disputes between their owners. In this
 case Adam van Bengalen, a cattle herder owned by Johannes Roux, was
 severely beaten by Petrus Joubert, son of another burgher, because he
-was grazing livestock on common land.*^*[^1]*^* Joubert’s slaves
+was grazing livestock on common land.[^1] Joubert’s slaves
 assisted him in the task. Roux complained to the local landdrost, but it
-does not appear that any action was taken against Joubert.*^*[^2]*^* *
+does not appear that any action was taken against Joubert.[^2] *
 
 **1/STB 3/12** Criminele Verklaringen, 1786-1793, unpaginated.
 
@@ -90,7 +90,7 @@ wonden daarvan aan de ondergeteekende gecommitteerdens vertoond, zulx
 ook duijdelijk aantonen) dat den relatant zo, ter oorzake dier sjambok
 slagen, als van één, of door voorseijde Joubert, dan wel door een zijner
 slaven, hem relatant van agteren, tusschen de schouderbladen,
-toegebragte vuistslag \<wanneer hij het bloed was uijtgebraakt\>^[^3]^
+toegebragte vuistslag \<wanneer hij het bloed was uijtgebraakt\>[^3]
 geheel onmagtig ter aarde zijnde blijven leggen, dezelvs lijfheer
 anstons \[*sic*\] daarna was gekomen met vier zijner meede slaven, die
 den relatant eerst een end wegs gedragen en vervolgens naar ’t huijs
@@ -120,11 +120,11 @@ Johs. Hendrik Roux, of competent age, going as follows:
   
 That on the past Tuesday, the 4^th\ ^of this month, when the testifier
 was going from his garden to the house with a spade over his shoulder,
-he saw the burgher Petrus Joubert, who is the *voorzoon*^[^4]^ of his
+he saw the burgher Petrus Joubert, who is the *voorzoon*[^4] of his
 neighbour, the burgher Gerrit Victor, following two of his own slave
-*jongens*, with a so-called hind oxen *sjambok* in his hand,^[^5]^ and
+*jongens*, with a so-called hind oxen *sjambok* in his hand,[^5] and
 going in the direction of the testifier’s herd of cattle grazing on the
-opposite side of the Dwars River^[^6]^ on the honourable Company’s veld,
+opposite side of the Dwars River[^6] on the honourable Company’s veld,
 fully a thousand paces, at a guess, from the property of the aforesaid
 Victor. Whereupon the testifier became worried that the said Joubert, as
 has happened before, might be planning to punish and maltreat the

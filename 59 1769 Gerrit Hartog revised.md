@@ -1,13 +1,13 @@
 1769 GERRIT HARTOG
 
 *This is a case of a dispute which broke out on a farm when the owner
-and his wife were away. Gerrit Hartog also lived on the farm*^*[^1]*^*
+and his wife were away. Gerrit Hartog also lived on the farm[^1]
 and accused the slave Juliana van de Caab of being insolent and
 inattentive when serving him food. His subsequent physical attack on her
 led to her miscarriage. There was also a *knecht* present, and the
 incident reveals that slaves were subject to the authority – and abuse –
 of other settlers apart from their owners, perhaps in this case because
-their owners were absent.*^*[^2]*^* *
+their owners were absent.[^2] *
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
 
@@ -17,7 +17,7 @@ toebehorende den heemraad, monsieur Hercules Adriaan Malan, van de
 volgende inhoud, namentlijk:
 
 Dat wanneer, op Vrijdag den 14^e\ ^deeser, des relatantes lijfheer niet
-\<t’ huijs was en den burger Gerrit Hartog\>^[^3]^ en vrouw waren
+\<t’ huijs was en den burger Gerrit Hartog\>[^3] en vrouw waren
 uitgereeden, den op den woonplaats wonende burger Gerrit Hartog de
 relatante belast had de tafel te dekken, zij relatante sulx ook gedaan
 en het eeten opgebragt zijnde, en gemelde Hartog de relatante gevraagd
@@ -105,7 +105,7 @@ testifier, after which the testifier went outside.
 That in the forenoon of the following day, the testifier, who had been
 two months pregnant, had a miscarriage as a result of the blows she had
 received, over which maltreatment the testifier complained to her owner
-when he came home in the evening.^[^4]^
+when he came home in the evening.[^4]
 
 There being nothing further to relate, the testifier asserts to be
 convinced of the accuracy of her statement as in the text, being

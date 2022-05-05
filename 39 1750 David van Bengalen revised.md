@@ -7,12 +7,12 @@ Mallebaar, causing his death. Investigation of the corpse did not reveal
 such lethal blows, although Bouwer admitted beating him and made excuses
 for not reporting Alexander’s later death. The evidence was
 inconclusive, but David van Bengalen was whipped for making a false
-accusation.*^*[^1]*^
+accusation.*[^1]
 
 *Although by law owners had to report the deaths of their slaves, and
 the authorities investigated cases of suspected maltreatment, there were
 limits to the protection that this gave to slaves, especially on a
-remote farm such as this one.*^*\ **[^2]*^* David van Bengalen’s
+remote farm such as this one.*^*\ *[^2]^* David van Bengalen’s
 punishment and return to his owner would hardly have encouraged other
 slaves to bring complaints against their owners. *
 
@@ -94,7 +94,7 @@ Swellendam, den 11^e^ October 1750.
 
 TRANSLATION
 
-Report to the right honourable lord Rijk Tulbagh, nominated^[^3]^
+Report to the right honourable lord Rijk Tulbagh, nominated[^3]
 governor of the Cape of
 
 Good Hope and the areas falling under its control etc., drawn up by the

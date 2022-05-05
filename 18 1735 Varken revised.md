@@ -3,7 +3,7 @@
 *This conflict between three Khoi herdsmen, on the one hand, and a
 slave, on the other, shows the tensions and conflicts of status and
 authority that could arise on the many burgher farms where both slave
-and Khoi labourers worked.*^*[^1]*^* The 17-year-old Khoi Varken
+and Khoi labourers worked.[^1] The 17-year-old Khoi Varken
 objected to the way in which the slave Titus scolded and beat him, and
 found immediate support from his fellow Khoi herders. We do not know
 anything about Titus, but it is likely that he was older than the young
@@ -14,7 +14,7 @@ as overseer over the young Khoi workers. Not all slaves were of lowest
 status, especially in comparison to Khoi workers. Varken’s violent
 reaction might have been a personal feud with Titus, but it was
 doubtless also compounded by the anger or shame he felt, as a legally
-free Khoi, at being harshly treated and controlled by a slave.*^*[^2]*^*
+free Khoi, at being harshly treated and controlled by a slave.[^2]
 *
 
 *The punishment of the Khoi, two of whom were sentenced to death, is an
@@ -22,7 +22,7 @@ indication of their full incorporation into the judicial apparatus of
 the Company’s colony. The Khoisan were losing claims to independent
 sovereign status by this period and certainly those working on colonial
 farms, even on the colony’s frontiers, were firmly under the authority
-of the settlers and the Company’s legal apparatus.*^*[^3]*^* *
+of the settlers and the Company’s legal apparatus.[^3] *
 
 **CJ 785** Sententiën, 1726-1735, ff. 333-38.
 
@@ -165,7 +165,7 @@ once again to be hanged up, to stay thus until being consumed by the air
 and birds of heaven, further that the third prisoner, Ruijter, be tied
 to a pole, be severely scourged on the bare back by the executioner and
 to be branded, with sentencing to the costs and expenditure of justice,
-denying the *eijscher* his further demands.^[^4]^
+denying the *eijscher* his further demands.[^4]
 
 Thus done and sentenced in the Castle of Good Hope on 12 May 1735,
 likewise pronounced and executed on the 14^th\ ^thereupon.

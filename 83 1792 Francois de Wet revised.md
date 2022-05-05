@@ -11,7 +11,7 @@ formed part of a slave kinship network on the farm, albeit one which was
 devastated by the actions of his owner. Jacomijn, as a young mother, had
 been working as a wet nurse on another farm and was accused of
 neglecting her own child. Stijn had tried to abort her child and was
-whipped for being the suspected carrier of a venereal disease.*^*[^1]*^*
+whipped for being the suspected carrier of a venereal disease.[^1]
 *
 
 *It appears that no action was taken against De Wet. Possibly the
@@ -45,7 +45,7 @@ hierover toornig geworden het agterpaarden sjambok, in de combuijs
 hangende, genomen en opgemelde Jacomijn, terwijl deselve het kind op de
 armen droeg, daar meede verscheijde slagen gegeeven, mitsgaders bij die
 geleegenheid het kind meede eenige slagen \<insonderheijd twee zigtbare
-wonden op het voorhoofd\>^[^2]^ toegebragt hebbende; was gemelde des
+wonden op het voorhoofd\>[^2] toegebragt hebbende; was gemelde des
 relatants kind, dat bevorens vris \[*sic*\] en gezond is geweest,
 daarvan dien eigensten Dingsdagnagt overleeden en daags daaraan begraven
 geworden; bij welke geval tegenwoordig waren geweest de weduwe Jan
@@ -122,7 +122,7 @@ rijden, haar juffrouw haar niet willende meede neemen omdat se reeds
 vier maanden zwanger was, deselve Stijn daarop azijn met buskruijt en
 schoorsteenroet tezamen gemengd, had gebruikt om haar vrugt af te
 drijven, en ziende dat zulx aan het oogmerk niet voldeet, zij voorts,
-tot dat einde, een en andermaal \<had gedronken en gegeeten\>^[^3]^ een
+tot dat einde, een en andermaal \<had gedronken en gegeeten\>[^3] een
 goede quantiteit brandewijn met loog water, rozijnen en slangevel; dat
 gemelde slavinne hiervan ziek geworden en door haar juffrouw gevraagd
 zijnde, wat zij manqueerd, zij daarop was komen te anwoorden zulx niet
@@ -176,7 +176,7 @@ weetenschap als in den text, betuijgende zulx de zuivere waarheid te
 zijn.
 
 Aldus gepasseert ter secretarije aan Stellenbosch, de 11^e^ Januarij
-1792.^[^4]^
+1792.[^4]
 
 Dit teeken X is door de Bastaard Hottentottin Anna eijgenhandig gesteld.
 
@@ -229,7 +229,7 @@ Niets meer verklarende, geevt den comparant voor redenen van weetenschap
 als in den text, betuijgende zulx de zuivere waarheid te zijn.
 
 Dat aldus passeerde ter secretarije van Stellenbosch den 11^e^ Januarij
-1792.^[^5]^
+1792.[^5]
 
 Dit kruijsmerk X is door de slaav Fortuijn eigenhandig gesteld.
 
@@ -248,7 +248,7 @@ lieutenant, the *manhafte* Francois de Wet, which goes as follows:
   
 That after having been with and on the farm of the *manhafte* Johannes
 de Waal for about four months to suckle the youngest child of the said
-De Waal,^[^6]^ the slave of the testifier’s owner, by the name of
+De Waal,[^6] the slave of the testifier’s owner, by the name of
 Jacomijn and with whom the testifier has a relationship, returned home
 on a certain Sunday, about fourteen days before the last New Year.
 Whenever the said Jacomijn picked up her child, who that whole day had
@@ -274,7 +274,7 @@ of the testifier’s owner, named Fortuijn.
 Besides which the testifier declares that, about three years ago,
 without wanting to determine the precise date, there had been residing
 at his owner’s a certain Hottentot, whose name the testifier cannot
-recall, who, before having served his agreed time,^[^7]^ ran away from
+recall, who, before having served his agreed time,[^7] ran away from
 there, and when he was captured again after some time and brought home
 by the slaves of the testifier’s owner, he was suffering from a venereal
 disease. That the testifier’s owner then asked the said Hottentot where
@@ -297,7 +297,7 @@ brother-in-law of his owner, named Jacobus du Toit, followed the
 testifier with two horses, caught up with him in the vicinity of the
 farm of the burgher Charl Theron, and convinced him to go and sit on one
 of these horses and to ride back home with him, which the testifier also
-did.^[^8]^
+did.[^8]
 
 The testifier says that when he recollects the misfortune his family has
 had to endure, already twice now, as a result of the strict treatment of
@@ -335,7 +335,7 @@ not want to take her with them since she was already four months
 pregnant, Stijn then drank vinegar mixed with gunpowder and soot from
 the chimney in order to abort her fetus, and, seeing that this did not
 meet her objective, she then, to this end, drank and ate once or twice a
-good quantity of brandy with lye,^[^9]^ raisins and snake-skin. That the
+good quantity of brandy with lye,[^9] raisins and snake-skin. That the
 said slave became ill from this and, when asked by her *juffrouw* what
 the matter was with her, replied that she did not know. Whereupon the
 deponent’s *juffrouw* a couple of times gave the said Steijn medicine to
@@ -350,7 +350,7 @@ Jacomijn, after having been at Vier en Twintig Rivieren at Johannes de
 Waal, the brother-in-law of her owner, to suckle the child of De Waal,
 again returned home on a certain Sunday during the recently passed month
 of December. Among other things, some days thereafter she went out to
-cut pig leaves,^[^10]^ leaving her sick child at home, and when this
+cut pig leaves,[^10] leaving her sick child at home, and when this
 work was done and she had come back, she pitifully abused this child
 who, during the absence of its mother, had been doing nothing but
 screaming, by beating it, so that even her husband, the slave David,

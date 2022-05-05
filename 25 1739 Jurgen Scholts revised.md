@@ -3,7 +3,7 @@
 *In a reversal of many of the cases that came to the Council of Justice,
 this one deals with four Company woodcutters who were caught stealing
 sheep from the Company’s corral at Groote Schuur by slaves, one of whom
-they killed.*^*[^1]*^* The case shows that low-ranking Company employees
+they killed.[^1] The case shows that low-ranking Company employees
 were as desperate for food as other members of the colony’s underclasses
 and could be equally unruly and opportunistic. *
 
@@ -12,7 +12,7 @@ and could be equally unruly and opportunistic. *
 Nademaal uijt de beantwoorde vraagpointen in de boeijen ofte pijn camer
 door den houtkapper Jurgen Scholts van Dantsig, oud 26, mitsgaders uijt
 de vrijwillige confessiën van de meede houtkappers, Willem Brock van
-Bockholt, oud …^[^2]^, Christoffel Coelmeijer van Paterborn, oud 28 en
+Bockholt, oud …[^2], Christoffel Coelmeijer van Paterborn, oud 28 en
 Christoffel Hoorneft van Roosdorp bij Darmstad, oud 32 jaaren, welke
 confessiën liber, vrij en buijten pijn ofte dwang van banden, van
 ijsers, dan wel de minste bedreijging van dien, zijn gerecolleert, alle
@@ -178,11 +178,11 @@ hebben onderteekent.
 
 TRANSLATION
 
-Since, from the answered questions in the torture or pain room^[^3]^ by
+Since, from the answered questions in the torture or pain room[^3] by
 the woodcutter Jurgen Scholts of Dantsig, 26 years old, as well as from
 the voluntary confessions of his fellow woodcutters Willem Brock of
-Bockholt, ... years old,^[^4]^ Christoffel Coelmeijer of Paterborn, 28
-years old, and Christoffel Hoorneft of Roosdorp, 32 years old^[^5]^ –
+Bockholt, ... years old,[^4] Christoffel Coelmeijer of Paterborn, 28
+years old, and Christoffel Hoorneft of Roosdorp, 32 years old[^5] –
 which confessions were verified voluntarily, willingly and without any
 torture or coercion of bonds, of irons, or even the least threat of
 suchlike – all four currently their honours’ prisoners, and from other
@@ -191,7 +191,7 @@ papers furnished in the case, it has appeared evident:
 That in clear moonlight, early on in the night of the 22^nd^ of last
 January, the prisoners, in accordance with an agreement they had reached
 with one another, left their allotted post, by name of Paradijs, to go
-to *De Schuur*^[^6]^ of the honourable Company, where the first and
+to *De Schuur*[^6] of the honourable Company, where the first and
 second prisoners, Jurgen Scholts and Willem Brock, each armed with a
 rope, jumped into the Company’s corral over the wall in order to steal
 sheep, which they were to hand over to their comrades on the other side,
@@ -299,7 +299,7 @@ they are to be branded and riveted in chains, in which to labour for
 nothing on the honourable Company’s public works for a period of ten
 years, while denying the further demands against them; the Council
 sentencing all the prisoners moreover to the costs and expenditure of
-justice.^[^7]^
+justice.[^7]
 
 Thus done and sentenced in the Castle of Good Hope on 5 March 1739, and
 moreover pronounced and executed on the 7^th^ thereupon.
@@ -323,7 +323,7 @@ owner, were ordered to look after the corral last night since sheep had
 been stolen from there on several occasions at night, which is why they
 were both on guard that night, and while they were there, two Europeans
 entered at twelve o’clock, which is when the testifier, as one of these
-Dutchmen^[^8]^ was laying hold of a sheep, took him on, wanting to throw
+Dutchmen[^8] was laying hold of a sheep, took him on, wanting to throw
 him onto the ground, whereupon this European cut the testifier with a
 knife across his stomach, at which he fell down helplessly and this
 European ran away. When these two Dutchmen came into the corral, there

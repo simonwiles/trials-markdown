@@ -7,7 +7,7 @@ according to his owner’s report, because of a throat swelling. Although
 the circumstances were suspicious, nothing was done at the time. It is
 not clear why this case was brought up again over two years later, but
 it was not forwarded to the Council of Justice and no action seems to
-have been taken against Olivier.*^*[^1]*^
+have been taken against Olivier.*[^1]
 
 *Note that while the slave Jas was at Pretorius’s farm for only a day,
 he was made to help with the fieldwork – the presence of additional
@@ -143,7 +143,7 @@ witnesses named below, the burgher Jan Lodewijk Pretorius, of competent
 age, who, on the requisition of the honourable landdrost, *Meester*
 Jacobus Johannes le Suëur, declares it to be the truth:
 
-That in the year 1761,^[^2]^ during the months of June or July – while
+That in the year 1761,[^2] during the months of June or July – while
 the deponent has forgotten the exact date, he seems, however, to think
 that it was about this time of the year, and indeed on a Friday evening
 – there arrived on the deponent’s home farm in the Land van Waveren, a
@@ -184,7 +184,7 @@ aforementioned wagonhouse and shortly thereafter died.
 The deponent finally declares as well, that on the same day the
 aforementioned Jan Gijsbert Olivier gave a proper report of the said
 death to the then honourable landdrost in a short letter signed by the
-deponent and the aforesaid Jacob Pietersz.^[^3]^
+deponent and the aforesaid Jacob Pietersz.[^3]
 
 There being nothing further to declare, the deponent asserts to be
 convinced of the accuracy of his deposition as in the text, being
@@ -205,14 +205,14 @@ TRANSLATION
 
 Today, 1 February 1764, there appears before me, Abraham Faure,
 secretary of Stellenbosch and Drakenstein, in the presence of the
-witnesses named below, the arquebusier^[^4]^ Jacob Pietersz, who is on
+witnesses named below, the arquebusier[^4] Jacob Pietersz, who is on
 loan to and currently living with the burgher Jacob Mouton, being of
 competent age, who, on the requisition of the honourable landdrost,
 *Meester* Jacobus Johannes le Suëur, declares it to be true:
 
 That during the month of June or July, while the exact date has slipped
 his mind, of the year 1761, when the deponent was living as
-schoolteacher^[^5]^ with the widow of Jacques Therond in the Land van
+schoolteacher[^5] with the widow of Jacques Therond in the Land van
 Waveren, there arrived the burgher Jan Gijsbert Olivier who requested
 the deponent to come to his farm in order to inspect a certain slave of
 his, by the name of Jas, who had complained about a sore throat and who

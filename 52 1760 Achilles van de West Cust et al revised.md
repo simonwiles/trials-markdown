@@ -1,16 +1,16 @@
 1.  ACHILLES VAN DE WEST CUST ET AL.
 
 *This is one of the most complex and revealing cases about slavery in
-the criminal records of the Council of Justice.*^*[^1]*^* It involved
+the criminal records of the Council of Justice.[^1] It involved
 what one historian has described as a ‘minor slave uprising’, in
 circumstances that greatly alarmed the authorities and
-colonists.*^*[^2]*^
+colonists.*[^2]
 
 *The events involved a group of slave runaways on Table Mountain who
 fought pitched battles with the burghers. They sent particular panic
 through Cape Town when some of them, inspired by the revenge of Achilles
 van de West Cust against his owner, murdered Michiel Smuts and his
-family in their Oranjezicht home.*^*[^3]*^* After a series of encounters
+family in their Oranjezicht home.[^3] After a series of encounters
 with other slaves and skirmishes with commandos, some were killed (and
 some summarily executed on the spot). Januarij van Boegies, the sole
 survivor of the original gang, was brought to justice, together with
@@ -29,12 +29,12 @@ concepts of time.*
 
 *Included in the court records is an intriguing document – a letter in
 the Bougies language, written to September by another slave from
-Bougies, one Upas, who lived in Stellenbosch.*^*[^4]*^* The content had
+Bougies, one Upas, who lived in Stellenbosch.[^4] The content had
 nothing to do with the case in question, but even the possession of a
 letter written in a strange script and language from one Bougies slave
 to another was considered by the authorities to be suspicious,
 especially since they feared that reading and written communication
-amongst slaves might facilitate an uprising.*^*[^5]*^* On the basis of
+amongst slaves might facilitate an uprising.[^5] On the basis of
 this evidence, September was accused of fostering revolt among the
 Bougies slaves of the colony, and this was as alarming to the
 authorities as the attack on the Smuts family. This accounts for
@@ -208,7 +208,7 @@ Januarij van Boegies is koomen in ’t leeven te blijven.
 
 Dat den derden gevangen September van Boegies, die als schaapewagter
 sijner lijfvrouw op haar voorseijde plaats, aan de Plattecloof
-bescheijden geleegen,^[^6]^ en met het voorseijde complot drossers en
+bescheijden geleegen,[^6] en met het voorseijde complot drossers en
 moordenaaren in ’t veld de eerste kennisse gekreegen hebbende, niet
 alleen sijne meede slaaven, in naame Januarij van Maccasser, Matthijs
 van Mallebaar, Adam van Sambouwa, Jacob van Madagascar. Manus van
@@ -478,7 +478,7 @@ Articul 25: Of zulks door Januarij niet is verrigt geworden?
 
 Antwoord: Als vooren.
 
-Articul 26: Of hij gevangen, terwijl de drossers in zijn cagie,^[^7]^
+Articul 26: Of hij gevangen, terwijl de drossers in zijn cagie,[^7]
 alwaar hij een kaars had, aan Julij niet een briefje heeft overhandigt?
 
 Antwoord: Neen! Julij heeft sijn eijgen brief geleesen.
@@ -734,7 +734,7 @@ inhabitants of this place and those of the rural areas ran away from
 their owners and, some earlier, some later, congregated with one another
 at Table Mountain until they reached the number of fifteen men. That
 this gang was then, as soon as their hiding place became known, attacked
-in a cavern of the Windberg^[^8]^ by some burghers who used every means
+in a cavern of the Windberg[^8] by some burghers who used every means
 possible to overpower and capture them, without, however, being
 successful at this time on account of their vehement resistance – both
 through shooting with a pistol and by throwing down heavy stones on the
@@ -771,7 +771,7 @@ meantime drawn closer in the darkness, bringing with him another slave
 the gang then arranged to murder the aforementioned Smuts, to which
 murder the first prisoner not only agreed and also added in substance to
 it: “Yes! I have long wanted to kill my *baas*, and now he will
-die!”,^[^9]^ but also returned ahead to the house in order to put
+die!”,[^9] but also returned ahead to the house in order to put
 everything in place which would help to facilitate this murder, seeing
 that he not only prevented an old slave *jongen*, by the name of Baatjoe
 van Balij, who at the moment when the first prisoner came into the
@@ -800,7 +800,7 @@ now, after only having been here in this country for a short period –
 set out, without returning to the mountain, to the dunes at Blaauwberg,
 where they kept hidden for some days and maintained themselves with
 mussels, which they went to search on the beach, and with some sheep,
-which some of these murderers had stolen from Jan Biesjeskraal,^[^10]^
+which some of these murderers had stolen from Jan Biesjeskraal,[^10]
 as also with such food as they went to fetch from some slaves of the
 widow Heuning, which slaves had been, since a considerable time
 theretofore, providing this gang with food and tobacco, which was
@@ -840,11 +840,11 @@ That of the whole gang there were still alive eleven scoundrels, who
 afterwards, when they again got to the other runaways on Table Mountain,
 after staying there for two nights, departed from there to the Cape
 dunes, where they asked for and received food from certain slave
-*jongens* who were busy in a corral gauging wood.^[^11]^ As soon as the
+*jongens* who were busy in a corral gauging wood.[^11] As soon as the
 gang had departed, one of these slaves went to the Cape and told of the
 route they had taken, which enabled a commando to be sent out again for
 these murderers, which reached them in the dunes around the so-called
-Swarte Klip^[^12]^ and attacked them, and although they did not hesitate
+Swarte Klip[^12] and attacked them, and although they did not hesitate
 to violently resist this commando again, seven of them, by the names of
 Fortuijn, belonging to the farmer Cornelis Verweij, Patientie of the
 burgher Willem Engels, April of the fellow burgher Jan Smid, Cupido of
@@ -854,7 +854,7 @@ dead, or otherwise lost their lives, while the remaining four, named
 April van Bima of Adam Ceijse, September van Balij of Hendrik Ridder,
 Baatjoe of Jan Smid and Januarij of Abraham Craaijwinkel, were taken
 prisoner wounded, but since with the first two of these latter ones
-there was *periculum in mora*^[^13]^ on account of their heavy wounds,
+there was *periculum in mora*[^13] on account of their heavy wounds,
 they received their well-deserved punishment on the spot; while the
 corpses of the killed, as also that of Baatjoe van Boegies who suddenly
 died of an illness which came over him, were executed as a spectacle to
@@ -905,7 +905,7 @@ van Bengalen, belonging to the burgher councillor, *Sieur* Jan
 Meijdertsz Cruijwagen, to which the said Cupido – in spite of the fact
 that in the year 1738 he was already sentenced by this honourable
 Council of Justice for a similar crime and was scourged at the place of
-justice here^[^14]^ – as well as the aforementioned prisoners, willingly
+justice here[^14] – as well as the aforementioned prisoners, willingly
 agreed, with only the seventh and tenth prisoners trying to excuse
 themselves from it by profanely pretending that they were forced to it
 by the threats of September and Januarij; so that the twelve last
@@ -976,7 +976,7 @@ drawn up *eijsch* of the honourable Officer as regards the last
 prisoner.
 
 Thus done and sentenced in the Castle of Good Hope on 4 September 1760,
-as also pronounced and executed on the 6^th^ thereupon.^[^15]^
+as also pronounced and executed on the 6^th^ thereupon.[^15]
 
 Let the execution be done, \[signed\] R. Tulbagh.
 
@@ -1214,7 +1214,7 @@ Answer: No.
 Article 42: With whom it was that the prisoner was in principal contact
 here at the Cape?
 
-Answer: With one *maaij* Sila,^[^16]^ a Chinese woman, who lives across
+Answer: With one *maaij* Sila,[^16] a Chinese woman, who lives across
 the residence of the butcher Bergman, for whom I always brought onions.
 
 Article 43: If it was with a Chinese woman named *maaij* Siele
@@ -1300,7 +1300,7 @@ Answer: No.
 
 Article 58: If the prisoner would have acted as the head of his gang?
 
-Answer: Yes, I was requested to do that by my house *volk*,^[^17]^ being
+Answer: Yes, I was requested to do that by my house *volk*,[^17] being
 the slaves named on article 33.
 
 Article 59: What reasons did the prisoner have to embark upon such
@@ -1345,7 +1345,7 @@ having threatened him; that Baatjoe of Smid had slept on the oven; that
 the confessant admits to be guilty of enticing of his fellow slaves and,
 finally, that the plundering of farms and the murdering of people had
 not been decided upon definitely, and declares all of the above to be
-the truth .^[^18]^
+the truth .[^18]
 
 Thus verified in the Malay language and interpreted as before, in the
 Castle of Good Hope on 12 August 1760.

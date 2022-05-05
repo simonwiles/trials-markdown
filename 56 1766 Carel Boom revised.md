@@ -1,13 +1,13 @@
 1.  CAREL BOOM
 
 *This record of an emergency Sunday meeting of the Council of Justice
-tells the suicide of Carel Boom,*^*[^1]*^* the ‘portier’ at the
+tells the suicide of Carel Boom,[^1] the ‘portier’ at the
 Company’s Slave Lodge in Cape Town. It gives a brief insight into this
 key building for slaves. The Lodge housed the slaves owned by the
 Company itself, as well as the convict *bandieten* (about 580 altogether
 in the mid-1760s), except for those who worked on the outposts away from
-the town.*^*[^2]*^* Boom had formed a relationship with the slave
-Cornelia van Piloane.*^*[^3]*^* When she wanted to break it, Boom tried
+the town.[^2] Boom had formed a relationship with the slave
+Cornelia van Piloane.[^3] When she wanted to break it, Boom tried
 to force her and wounded her in the process, displaying a jealousy shown
 in other cases by male slaves towards their female partners.*
 
@@ -57,7 +57,7 @@ would not be a good thing, as an example and deterrent to other
 God-forsaken scoundrels, that the body of the porter of the honourable
 Company’s slave lodge, by the name of Carel Boom, who took his own life
 miserably with a pistol shot early during the night yesterday, be buried
-under the gallows by the executioner;^[^4]^ since this self-murderer had
+under the gallows by the executioner;[^4] since this self-murderer had
 at first, a moment before killing himself, shot a woman slave of the
 honourable Company, by the name of Cornelia van Piloane, with a
 different pistol and wounded her on the head; which wound, according to
@@ -69,7 +69,7 @@ it. Consequently, on last Monday, in order to force her to continue
 their relationship for longer, he wrathfully wounded the aforesaid
 Cornelia with a knife on her hand; which she at that time, in order to
 exculpate him, claimed to have happened when she was cutting
-cheese.^[^5]^
+cheese.[^5]
 
 The members present, having taken these motives into account, and since
 such a cruel and evil-minded creature does not merit an honourable

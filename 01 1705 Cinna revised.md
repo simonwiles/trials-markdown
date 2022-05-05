@@ -15,7 +15,7 @@ suggests a shortage of readily available labourers in this period. *
 telling episode. The case was not sent to the Council of Justice and we
 do not know whether Hendrik got his wish or what happened to Cinna. No
 other records of this case survive, so we do not know if Cinna was
-punished for his actions.*^*[^1]*^* *
+punished for his actions.[^1] *
 
 **1/STB 3/8** Criminele Verklaringen, 1702-1749, unpaginated.
 
@@ -127,7 +127,7 @@ as an old dog by the wife and children, and further being tormented.
 
 When, at what time?
 
-This last Sunday, 23 August 1705.^[^2]^
+This last Sunday, 23 August 1705.[^2]
 
 Where he wanted to go to?
 

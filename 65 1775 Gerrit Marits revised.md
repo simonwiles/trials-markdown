@@ -1,12 +1,12 @@
 1.  GERRIT MARITS
 
-*Gerrit Marits, acting veldcorporaal*^*[^1]*^* in the Roggeveld, here
+*Gerrit Marits, acting veldcorporaal[^1] in the Roggeveld, here
 reports to the Stellenbosch landdrost that he had shot a slave he
 encountered in the veld. The fact that he had called upon the slave to
 surrender himself was sufficient warning. No action was taken against
 Marits. The incident shows how dangerous it was for slaves to be in the
 veld without permission: only after he had been shot did Marits
-recognise him as a runaway.*^*[^2]*^
+recognise him as a runaway.*[^2]
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
 
@@ -74,7 +74,7 @@ running away. Upon this, the testifier shot at him, whereupon the said
 slave at once turned around and, when he got to the testifier, sat down
 on the ground, which is when the testifier recognised him as a runaway
 *jongen*, by the name of Fortuijn, of the farmer Cornelis Coetze
-Cornerlisz. who lived in the said veld.^[^3]^ At the same time, the
+Cornerlisz. who lived in the said veld.[^3] At the same time, the
 testifier discovered that the bullet had gone through his body and his
 left arm (which, because of this, was in pieces), of which case the
 testifier informed the said Coetze as soon as possible. The

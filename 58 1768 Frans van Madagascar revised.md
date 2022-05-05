@@ -1,8 +1,8 @@
 1.  FRANS VAN MADAGASCAR
 
 *This dispute took place at Elsenburg, the large wine farm owned by
-Marten Melk, one of the richest burghers in the colony.*^*[^1]*^* Melk
-employed his slave Willem as a *mandoor*,*^*[^2]*^* a slave who was
+Marten Melk, one of the richest burghers in the colony.[^1] Melk
+employed his slave Willem as a *mandoor*,[^2] a slave who was
 placed in charge of the other slaves and had the authority to punish
 them. Willem beat Frans when he found him drunk and ordered him back to
 work. Frans later took his revenge by killing Willem with a *kirrij*
@@ -11,7 +11,7 @@ Swellendam district. *
 
 *The case is interesting for the details it gives of the slave living
 quarters on Melk’s farm, with separate sections for the male and female
-slaves.*^*[^3]*^* Willem, in the privileged position of *mandoor*, slept
+slaves.[^3] Willem, in the privileged position of *mandoor*, slept
 in the women’s quarters.*
 
 **CJ 792** Sententiën, 1768-1771, ff. 36-42.
@@ -127,7 +127,7 @@ daarmeede gegaan was naar den wijngaard om druijven te snijden, ’tgeen
 hij confessant ook gedaan heeft.
 
 Dat wanneer den confessant dien eijgensten avond, in den donkeren met de
-slaven meijden in naame Silvia en Mars^[^4]^ voor ’t slavinnenhuijs had
+slaven meijden in naame Silvia en Mars[^4] voor ’t slavinnenhuijs had
 geseeten, voorseijde Willem, sonder te weeten waarom denselven sulx
 gedaan had, was gekomen en hem confessant, die als half slapende
 geseeten had, een slag met de hand om de ooren had toegebragt, sulx den
@@ -211,7 +211,7 @@ you want to hit me!” and at the same time turned around, just as if he
 wanted to return again to the aforementioned room, which is when the
 prisoner dealt the aforementioned Willem a blow on his head with the
 *kirrij* and with that caused a wound which penetrated through the three
-tables^[^5]^ to the temporal bone, as a result of which the
+tables[^5] to the temporal bone, as a result of which the
 aforementioned Willem suddenly fell down to the earth and shortly
 thereupon died. The prisoner, who meanwhile had set out in flight, was
 taken prisoner in the Swellendam district after roaming around for some
@@ -239,7 +239,7 @@ rope on the gallows in such a way that death will follow, further the
 same’s dead body be dragged to the outside place of execution and there
 once again to be hanged on the gallows, to remain thus until being
 consumed by the air and the birds of heaven, with sentencing to the
-costs and expenditure of justice.^[^6]^
+costs and expenditure of justice.[^6]
 
 Thus done and sentenced in the Castle of Good Hope on 30 June 1768, as
 also pronounced and executed on the 2^nd^ of the thereupon following
@@ -279,7 +279,7 @@ which he also did.
 
 That that very same evening, when the confessant was sitting in front of
 the women slaves’ house with the slave *meijden* named Silvia and
-Mars,^[^7]^ the aforesaid Willem, without knowing why he did this, came
+Mars,[^7] the aforesaid Willem, without knowing why he did this, came
 and dealt the confessant, who was sitting there half asleep, a blow with
 the hand on his ears. Which is when the confessant got up and took a
 *kirrij*, which was standing behind the door of the slave house, and

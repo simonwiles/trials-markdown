@@ -1,17 +1,17 @@
 1770 THOMAS VAN TUTOCORIJN
 
 *In this case, Thomas van Tutocorijn, a 40-year-old slave who had lived
-since his childhood on the same farm,*^*[^1]*^* attacked first one of
+since his childhood on the same farm,[^1] attacked first one of
 the house slaves, Gedult, and then threatened his owner, the widow
 Adriana Debits. The case is interesting for the details it gives of the
 distinction between different slaves on this large Koeberg
-farm.*^*[^2]*^* Gedult was described as an ‘old house slave’ who slept
+farm.[^2] Gedult was described as an ‘old house slave’ who slept
 in the main house, while the others were in separate slave
-quarters.*^*[^3]*^* Adriana Debits questioned why some of the latter
+quarters.[^3] Adriana Debits questioned why some of the latter
 should be sleeping in the main house. The evidence thus suggests a
 distinction between house slaves and farm slaves which was
 characteristic of large slave plantations in the Americas, but was not
-universal on the smaller farms of the Cape.*^*[^4]*^* *
+universal on the smaller farms of the Cape.[^4] *
 
 **CJ 792** Sententiën, 1768-1771, ff. 154-76.
 
@@ -210,7 +210,7 @@ That in the evening of 13 October last, the prisoner’s mistress ordered
 five of her slave *jongens* to set out during the following morning from
 her farm, named De Matjesfonteijn, situated at the Koebergen, to the
 farm, named De Modderfonteijn, of her mother-in-law, the widow of
-Andries Bester senior, in order to harvest barley there.^[^5]^ When his
+Andries Bester senior, in order to harvest barley there.[^5] When his
 mistress was already sitting and eating at the table with her children,
 the prisoner came to her and, up to two times, requested her to be
 allowed to go with the aforesaid slaves; which was repeatedly denied by
@@ -222,7 +222,7 @@ somewhat drunk, after having answered to this the final time: “Yes, my
 That this very evening, after his mistress had already gone to bed and
 had locked the room, when it was nine o’clock at a guess, the prisoner
 came into the kitchen on the pretext that he wanted to drink
-water.^[^6]^ That the prisoner again went outside after he had drunk;
+water.[^6] That the prisoner again went outside after he had drunk;
 however, shortly thereafter, he returned and said to the slave *jongen*
 Gedult, who usually sleeps in the kitchen with the slave Eva, they being
 the only ones in that room: “Out there the *jongens* October and Jappan
@@ -268,7 +268,7 @@ meantime, when the prisoner’s mistress – who, since she was fast asleep,
 had heard nothing of deeds the prisoner had perpetrated the previous
 evening – got up early in the morning and found sleeping in her kitchen,
 in addition to the aforesaid Gedult and Eva, two of her other slaves,
-she asked what this meant,^[^7]^ and upon the story being told her of
+she asked what this meant,[^7] and upon the story being told her of
 what the prisoner had been up to in both the kitchen and the chicken
 coop, she presumed that the prisoner had run away.
 
@@ -321,7 +321,7 @@ house. The prisoner then set out running but he stood still about forty
 paces from the house, turned around and, once again, while hitting with
 the one hand on his head, showed the knife to his mistress, whereafter
 he put it in his pocket and likewise gave a hit with his hand on this
-pocket, whereafter he ran away from the farm.^[^8]^ However, the
+pocket, whereafter he ran away from the farm.[^8] However, the
 prisoner was pursued by the farmer Jacobus Bester with some slaves, and
 tracked down that very same day in the dunes at Koeberg, taken prisoner
 and brought first to the farm of his mistress and also afterwards to
@@ -329,7 +329,7 @@ that of the widow of Andries Bester senior; where that evening, when the
 prisoner was lying trussed in the *voorhuijs* and the slave Eva, in the
 presence of their fellow slave Gedult, asked him: “Who was it then that
 he wanted to have killed?”, he answered: “I wanted to kill my
-mistress!”^[^9]^ The following day the prisoner was transported to the
+mistress!”[^9] The following day the prisoner was transported to the
 Cape and also delivered into the hands of justice.
 
 Although the prisoner now pretends not to have had any intention
@@ -360,7 +360,7 @@ to be riveted in chains, in order to labour in them without wages on the
 honourable Company’s public works on Robben Island for the rest of his
 life; with sentencing to the costs and expenditure of justice, besides
 denying the otherwise drawn-up *eijsch* of the honourable
-officer.^[^10]^
+officer.[^10]
 
 Thus done and sentenced in the Castle of Good Hope on 25 January 1770,
 as also pronounced and executed on the 27^th^ thereupon.

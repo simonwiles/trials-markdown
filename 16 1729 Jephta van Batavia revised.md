@@ -7,10 +7,10 @@ relationships and contacts with other slaves. It thus gives a rare
 glimpse into the world of the slaves which existed alongside that of
 their owners. The case is striking for the strong expression of Jephta’s
 emotions, he declaring that he wanted her death even though he might be
-broken on the wheel for it. Jephta’s owner*^*[^1]*^* was not prepared to
+broken on the wheel for it. Jephta’s owner[^1] was not prepared to
 pay the costs of the trial, and was willing to relinquish this
 troublesome slave to the Company, which was glad to accept a ‘healthy’
-slave convict labourer.*^*[^2]*^* *
+slave convict labourer.[^2] *
 
 **CJ 785** Sententiën, 1726-1735, ff. 178-82.
 
@@ -158,7 +158,7 @@ the murder weapon, or the knife with which he had committed the deed,
 above his head, and to be severely scourged on the bare back, thereafter
 to be branded, whereafter to labour in chains, without payment, on the
 public works for the period of ten years, with sentencing to the costs
-and expenditure of justice.^[^4]^
+and expenditure of justice.[^4]
 
 Thus done and sentenced in the Castle of Good Hope on 13 October 1729.
 

@@ -2,12 +2,12 @@
 
 *In this case the slave Anthonij van Mallabaar brought an accusation to
 the fiscal that his owner had murdered his fellow slave, Januarij van
-Mallabaar.*^*[^1]*^* Murder of a slave by an owner was a punishable
-offence and Anthonij clearly knew this.*^*[^2]*^* The court dismissed
+Mallabaar.[^1] Murder of a slave by an owner was a punishable
+offence and Anthonij clearly knew this.[^2] The court dismissed
 Anthonij’s claim and he was beaten, branded and sent back to his owner
 for making a false accusation. Usually a surgeon’s report was made on
 the body of a slave who had died in unknown or suspicious circumstances,
-but there is no reference to such a report in this case.*^*[^3]*^* *
+but there is no reference to such a report in this case.[^3] *
 
 *A paragraph in the *sententie* is crossed out. It indicates that
 Anthonij confessed that he had brought the accusation to avenge himself
@@ -33,9 +33,9 @@ Januarij van Mallabaar, zoude hebben dood geslagen.
 \<Dat hij gevangen sulx uijt eijgene beweeging hadde gedaan, enkelijk
 omme zig op deese boosaardige weijse over gemelde zijn meester te
 wreeken om reedenen (zoo hij gevange voorgeeft) dat deselve hem
-dagelijks sloegh en plaagde.\>^[^4]^
+dagelijks sloegh en plaagde.\>[^4]
 
-Dat hij gevange de eerste is geweest die voornoemde slaaf Anthonij^[^5]^
+Dat hij gevange de eerste is geweest die voornoemde slaaf Anthonij[^5]
 dood heeft vinden leggen, sonder verder iets tot verificatie van zijn
 leugenagtige beschuldiging voort te kunnen brengen, nog den regten te
 beweijsen.
@@ -133,7 +133,7 @@ totdat de jonge op de grond neder viel, als wanneer hij op ordre van
 zijn meester die jonge heeft opgenomen en in een hutje gebragt. Dat na
 zij ’s avonds gemelkt hadden, de schaapwagter Januari \[*sic*\] van
 Bengalen deese geslagene Januarij heeft dood gevonden, en teegen al de
-slaven gezegt dat de jonge dood gevonden en dat *niemand*^[^6]^ hem dood
+slaven gezegt dat de jonge dood gevonden en dat *niemand*[^6] hem dood
 gesien heeft als de voorzeijde Januarij dewelke het haar toegeroepen
 heeft.
 
@@ -206,10 +206,10 @@ van Mallabaar.
 
 \<That the prisoner, had done this on his own accord, solely to avenge
 himself in this wicked way on his said master, because (as the prisoner
-asserts) the same beats and torments him daily.\>^[^7]^
+asserts) the same beats and torments him daily.\>[^7]
 
 That the prisoner had been the first to have found lying dead the
-aforesaid slave Anthonij,^[^8]^ without being able to produce anything
+aforesaid slave Anthonij,[^8] without being able to produce anything
 further as verification for his false accusation, nor to prove his
 claim.
 
@@ -231,7 +231,7 @@ him with this: to be taken to the place where criminal sentences are
 usually executed here and there to be handed over to the executioner and
 to be tied to a stake, to be scourged on the bare back with rods and to
 be branded, afterwards to be sent home to his master, provided the same
-pays the costs and expenditure of justice.^[^9]^
+pays the costs and expenditure of justice.[^9]
 
 Thus done and sentenced in the Castle of Good Hope on 1 December 1718.
 

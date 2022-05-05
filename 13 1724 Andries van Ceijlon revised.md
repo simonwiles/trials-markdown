@@ -2,7 +2,7 @@
 
 *This case reveals the tensions and divisions that could arise between
 labourers on a farm – in this example between a Khoi and a
-slave.*^*[^1]*^* Andries had stolen some brandy and was whipped by his
+slave.[^1] Andries had stolen some brandy and was whipped by his
 owner (as well as by the other slaves, presumably on his owner’s
 orders). He suspected Pieter, a Khoi worker on the farm, who mocked him
 after his whipping, of having informed on him, and tried to kill him. He
@@ -10,7 +10,7 @@ then ran away and also attempted to set fire to his master’s wine
 cellar. Andries claimed that he sought death as a punishment in
 preference to staying in this world where he had endured so much
 punishment. The court obliged him in a particularly painful
-way.*^*[^2]*^* *
+way.[^2] *
 
 **CJ 784** Sententiën, 1717-1725, ff. 225-30.
 
@@ -216,7 +216,7 @@ Netherlands and, having judged the prisoner, is sentencing him with
 this: to be taken to the place where criminal justice is usually
 executed here, there to be handed over to the executioner, first to have
 his right hand cut off and to be tied to a stake and half strangled to
-death, next to be scorched so that death will follow,^[^3]^ thereupon
+death, next to be scorched so that death will follow,[^3] thereupon
 his dead body to be taken to the outside place of execution and there to
 be placed onto a wheel, with the hand above the head, to remain thus
 until being consumed by the air and birds of heaven, with the costs and

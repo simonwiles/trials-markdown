@@ -1,7 +1,7 @@
 1.  CUPIDO VAN MALLABAAR
 
 *In this tragic case, Cupido van Mallabaar threatened to take his own
-life, as well as that of his owner’s wife and her child.*^*[^1]*^* The
+life, as well as that of his owner’s wife and her child.[^1] The
 episode reveals an intense emotional crisis. Cupido’s complaints that he
 was made to wear clothing that he was not used to, and that his owners
 had bought neither other slaves to assist him, nor a female slave to be
@@ -9,7 +9,7 @@ his companion, reveal the frustrations and alienation of a slave on a
 Drakenstein farm whose owners merely laughed at his grievances. His
 ambivalent feelings towards his owners are shown by his vacillation
 between pity for his mistress and her child and his threats to
-them.*^*[^2]*^
+them.*[^2]
 
 *The case shows how hard it must have been for an imported slave to
 adapt culturally to alien circumstances and gives a glimpse into the
@@ -184,7 +184,7 @@ his jacket and shirt and threw them down on the ground, he said,
 pointing to his leather trousers: “I am not used to wearing trousers
 like these, I have already worked two or three years here, and I do not
 see the *baas* buying more *jongens* or *nonje* buying a *meijd* for
-me,^[^3]^ *baas* and *nonje* may talk and laugh very well”. The prisoner
+me,[^3] *baas* and *nonje* may talk and laugh very well”. The prisoner
 at this time also told his said mistress that he once went into the room
 while her husband was lying asleep with the intention to kill him but,
 looking at him, the prisoner repented because he took pity on his
@@ -273,7 +273,7 @@ being consumed by the air and the birds of heaven; the Council further
 sentences the prisoner to the costs and expenditure of justice.
 
 Thus done and sentenced in the Castle of Good Hope on 28 May 1739, as
-well as pronounced and executed on the 30^th\ ^of this month.^[^4]^
+well as pronounced and executed on the 30^th\ ^of this month.[^4]
 
 Let the execution be done, \[signed\] H. Swellengrebel.
 

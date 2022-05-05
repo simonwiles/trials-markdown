@@ -3,15 +3,15 @@
 *In this case, slaves reported seeing the farmer Coenraad Appel
 repeatedly having sex with his stepdaughter, Elsie Anna: omnipresent
 slaves were well positioned to reveal the illicit actions of their
-owners.*^*[^1]*^* The admonitions of Elsie by the slave Filida, in
+owners.[^1] The admonitions of Elsie by the slave Filida, in
 defence of her mistress, and Elsie’s confession of her predicament, give
 an insight into the complex interactions of three women on the farm
 which transcended the divisions of slave and free and which give a rare
-insight into slave perceptions of their owners’ behaviour.*^*[^2]*^
+insight into slave perceptions of their owners’ behaviour.*[^2]
 
 *Appel was convicted of incest and banished from the colony, while Elsie
 Anna was (at the suggestion of the Council of Justice) incarcerated for
-life in the Company’s Slave Lodge.*^*[^3]*^* *
+life in the Company’s Slave Lodge.[^3] *
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
 
@@ -28,7 +28,7 @@ ketel in de hand naar de, digt daarbij leggende, fontein was gekomen om
 water te halen, terwijl zijn lijfheer, die toen wat beschonken was, haar
 kort daarop gevolgd zijnde; zij beide onder een, bij die fontein
 staande, vijgeboom gekomen waren, gemelde nonje Elsie aldaar op den
-grond zig nedergelegd hebbende, des relatants^[^4]^ gemelde baas haar
+grond zig nedergelegd hebbende, des relatants[^4] gemelde baas haar
 aanstonds de rokken opgeligt en zijne dingen (zoals den comparant zig
 uitdrukte) met haar gedaan had. Waarna de comparant, die sulx duijdelijk
 had aangesien, zig voorts aan zijn werk hadde begeeven.
@@ -79,7 +79,7 @@ relatante aldaar was gaan staan om te zien wat zijlieden doen zouden,
 dat zij alstoen had ontwaard dat hij gemelde Elsie bij de rokken gevat
 en naar zig getrokken had, waarop geseijde Elsie hem quam toe te
 spreeken: Vader! Moeder zal dat immers zien; en hij g’antwoord hebbende:
-Wat s…^[^5]^ ik in jouw moeder?; zij Elsie terstond bij hem op de grond
+Wat s…[^5] ik in jouw moeder?; zij Elsie terstond bij hem op de grond
 was gaan leggen, gelijk hij voorts op haar gelegen en, zo de relatante
 had kunnen bemerken, haar vleeschelijk bekend had; waarna de relatante
 in stilte naar ’t slavenvertrek gegaan was.

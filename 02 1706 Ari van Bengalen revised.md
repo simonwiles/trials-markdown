@@ -1,15 +1,15 @@
-1.  **ARI**^**[^1]**^** **
+1.  **ARI**^*[^1]*^** **
 
 *This account of the experiences of the slave Ari is reported by one of
 his fellow prisoners, the free burgher Jacobus van der
-Heijden.*^*[^2]*^* Ari’s story is revealing on several counts.*^*[^3]*^*
+Heijden.[^2] Ari’s story is revealing on several counts.[^3]
 It is one of the very few sources which gives an indication – however
 fleeting – of how a Cape slave had originally been captured in Asia. It
 then gives insights into the tense relationship between a lone deserter
 and other slave runaways he encountered, in which competition for food
 and rivalries over leadership played a part. Some details are given on
 how arson, a frequent means of slave resistance, was carried
-out.*^*[^4]*^* The text is also of great linguistic interest, since the
+out.[^4] The text is also of great linguistic interest, since the
 reported words of the slaves provide some of the earliest forms of the
 restructuring of Dutch at the Cape which eventually resulted in the
 formation of Afrikaans. *
@@ -17,8 +17,8 @@ formation of Afrikaans. *
 * Ari was subsequently tortured and confessed, though he also blamed the
 other slaves who had encouraged him to commit arson, and he was placed
 on Robben Island in heavy chains ‘until he was more informative’ about
-his accomplices and pending sentence.*^[^5]^* He died there in
-1708.*^[^6]^
+his accomplices and pending sentence.[^5] He died there in
+1708.*[^6]
 
 **CJ 2961** Minuut Justitieële Attestatiën, Actens etc., 1706, ff.
 73-76.
@@ -56,11 +56,11 @@ hij niet en kende nog tot dato niet en kend, naderhand met de naam van
 Anthonij heeft hooren noemen, wierd gevraegd: Wat doet gij hier, daer
 hij Ari op antwoorde: Wat doe jij hier, waerop Ari weder tot antwoort
 kreeg: Ons soek kost hier, ons al gedaen weg loopen, ons denk jou ook
-soo,^[^7]^ waerop sij het samen cameraetschap hebben gemaekt. Dat
+soo,[^7] waerop sij het samen cameraetschap hebben gemaekt. Dat
 Anthonij vervolgens tegens hem Ari heeft gesegt: Het is nu mooij weer en
 sterke wind, om huijsen in de brand te steeken, die daer aenstonts
 verder bijvoegde: Kom, laet ons dit huijs in de brand steken, waerop Ari
-soude gesegt hebben: Ik heb geen vuur,^[^8]^ die van Anthonij tot
+soude gesegt hebben: Ik heb geen vuur,[^8] die van Anthonij tot
 antwoort kreeg: Ons het vuur genoeg. Dat hij benevens Anthonij de twee
 jongens aldaer latende, na ’t huijs is gegaen, en dat Anthonij vuur
 geslage hebbende, hem Ari de helft van de brandende tontel heeft
@@ -93,7 +93,7 @@ versogt.
 
 \[get.\] Jacob van der Heijde \[*sic*\].
 
-Als getuijgen, \[get.\] N. v. Leeuwen Nic. fil.^[^9]^, J. Snip.
+Als getuijgen, \[get.\] N. v. Leeuwen Nic. fil.[^9], J. Snip.
 
 In kennisse van mij, \[get.\] A. Poulle, secretaris.
 

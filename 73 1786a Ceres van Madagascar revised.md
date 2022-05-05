@@ -2,7 +2,7 @@
 
 *In this case, Ceres van Madagascar attacked Louisa, his female partner,
 because April van Ceijlon had told him that she had been unfaithful with
-other slaves.*^*[^1]*^* The case reveals the network of relationships
+other slaves.[^1] The case reveals the network of relationships
 and tensions that could develop amongst the slaves on a farm which
 largely prescribed and confined their world: Louisa’s mother also lived
 and worked there. Both the attacker and the accuser tried to flee, but
@@ -212,7 +212,7 @@ scourged on the bare back with rods, thereafter to be riveted in chains
 and to labour in them for a period of five successive years without
 wages on the public works on Robben Island, and after the termination of
 this time, to be returned to his master; with sentencing both of the
-prisoners to the costs and expenditure of justice.^[^2]^
+prisoners to the costs and expenditure of justice.[^2]
 
 Thus done and sentenced at the Cape of Good Hope on 23 March 1786, as
 well as pronounced in the Castle of Good Hope on the 1^st^ of the

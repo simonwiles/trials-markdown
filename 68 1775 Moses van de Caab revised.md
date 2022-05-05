@@ -4,23 +4,23 @@
 it meant that there were speakers of a wide range of languages at the
 Cape. Since many came from South and Southeast Asia, where Creole
 Portuguese and Malay were well entrenched as contact
-languages,*^*[^1]*^* these languages were widely used at the Cape by the
+languages,[^1] these languages were widely used at the Cape by the
 second half of the century, especially (but not exclusively) amongst
-slaves.*^*[^2]*^* Even so, the great variety of circumstances and
+slaves.[^2] Even so, the great variety of circumstances and
 individuals at the Cape could easily lead to misunderstandings, as
 illustrated in this case where an argument between two slaves on a
 Stellenbosch farm was exacerbated by the problems they had understanding
 each other’s language: Moses van de Caab was born in the colony, while
 Januarij had been imported from India and spoke no Dutch and only a
 little Portuguese, presumably the only languages Moses could
-speak.*^*[^3]*^* The wide variety of regions from which slaves were
+speak.[^3] The wide variety of regions from which slaves were
 brought to the Cape was also one factor which inhibited the development
-of a distinctive slave culture rooted in the area of origin.*^*[^4]*^* *
+of a distinctive slave culture rooted in the area of origin.[^4] *
 
 *Januarij subsequently died of his wound, and the case was sent to the
 Council of Justice, where Moses van de Caab was charged with ‘wrathfully
 throwing a knife’ and causing Januarij’s death. He was sentenced to 25
-years on the public works at Robben Island.*^*[^5]*^* *
+years on the public works at Robben Island.[^5] *
 
 **1/STB** **3/11** Criminele Verklaringen, 1759-1782, unpaginated.
 
@@ -30,7 +30,7 @@ toebehoorende de burgeresse Anna Hasselaar, weduwe wijlen den burger
 Christoffel Groenewald, zijnde van den volgende inhoud, namentlijk:
 
 Dat wanneer den relatant en de mede slaven Slammat, Fortuijn, Salomon,
-Moses en Januarij, voor eenige dagen,^[^6]^ des voormiddags, ter hunner
+Moses en Januarij, voor eenige dagen,[^6] des voormiddags, ter hunner
 lijfvrouws plaats, met de ossewagen beesig waren om druijven te rijden,
 en ten dien einde bij de aldaar staande wijngaard, de mosdruijven
 beladene wagen in te spannen, hij relatant, gelijk ook den slaaf Moses,
@@ -40,7 +40,7 @@ dat hij de beesten uit den weg zoude trekken, dat deselve hem schoppen
 zouden, en gemelde Moses g’antwoord hebbende: Dat kan ik niet doen,
 denselven voorts den mede slaaf Januarij, die na gissing omtrent ses
 treeden ter zijde agter hem stond, met deese woorden toegeroepen
-hebbende: (s.v.) Moern...^[^7]^, jaag de ossen aan, dan wijl gedagte
+hebbende: (s.v.) Moern...[^7], jaag de ossen aan, dan wijl gedagte
 Januarij (als zeer dom zijnde, en geen Duijtsch, maar wijnig Portugees,
 verstaat) sulx niet gaauw genoeg kwam te doen, had hij Moses een mes met
 de scheede uit zijn broeksak gehaald en hetselve, met de scheede, bij de

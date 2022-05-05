@@ -3,7 +3,7 @@
 *As in the case of 1751 Jan van de Caab, Jacob van de Caab escaped to
 Holland but returned as a ship’s boy, the lowest rung of the Company’s
 employment ladder, and was arrested when he incautiously went on shore
-in Cape Town.*^*[^1]*^
+in Cape Town.*[^1]
 
 **CJ 34** Crimineele Regtsrolle des Casteels de Goede Hoop, 1752, ff.
 28-30.
@@ -80,12 +80,12 @@ contra:
 
 Jacob van de Caab, currently their honours’ prisoner and defendant in
 this case, because he did not scruple to brazenly leave his owner, the
-bookkeeper and sworn clerk of the Orphan Chamber^[^2]^ here, Monsieur
+bookkeeper and sworn clerk of the Orphan Chamber[^2] here, Monsieur
 Philip Herman Boomgaard, and, during the month of June of the previous
-year 1751, to flee on the ship the Gouverneur Generaal^[^3]^ from here
+year 1751, to flee on the ship the Gouverneur Generaal[^3] from here
 to the fatherland, where he remained until he recently arrived here
 again as \[ship’s\] boy under the name of Jacobus Claasz of the Cape of
-Good Hope on the ship Brouwer,^[^4]^ whereupon he was delivered into the
+Good Hope on the ship Brouwer,[^4] whereupon he was delivered into the
 hands of justice.
 
 The honourable *eijscher*, having delivered his action orally, to the

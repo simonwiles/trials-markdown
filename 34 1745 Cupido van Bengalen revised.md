@@ -3,17 +3,17 @@
 *This episode of burglary and murder of a slave is revealing as much for
 the incidental details about slave and Khoi life on a settler farm as it
 is for the main crime. These include the existence of specific slave
-sleeping and living quarters on a large farm,*^*[^1]*^* the use of Khoi
+sleeping and living quarters on a large farm,[^1] the use of Khoi
 labourers for ploughing alongside slaves, the transfer of slaves between
 relatives during a peak labour season, and the authority of the *knecht*
-in the owner’s absence.*^*[^2]*^* *
+in the owner’s absence.[^2] *
 
 *It is not clear why Cupido van Bengalen killed the slave Francina,
 possibly because she was in the way when he burgled the
-farmhouse.*^*[^3]*^* His subsequent suicide may have been out of
+farmhouse.[^3] His subsequent suicide may have been out of
 remorse, as he claimed before he died, or because he realised that he
 would be captured. His accomplice, the Khoi Louis, was reported as ‘mad’
-and denied responsibility.*^*[^4]*^
+and denied responsibility.*[^4]
 
 **1/STB 3/8** Criminele Verklaringen, 1702-1749, unpaginated.
 
@@ -135,7 +135,7 @@ kapstok, 2 rokken en een leedere broek.
 
 Den vooraangehaalden Hottentot Piet, dewelke op het land beesig was om
 te ploegen, op den 15^e\ ^(hebbende de knegt Jan Nieuwenhuijsen in sijn
-relaas abusive gestelt den 17^e^)^[^5]^ der voormelte maand September,
+relaas abusive gestelt den 17^e^)[^5] der voormelte maand September,
 van de ploeg t’ huijs komende, heeft gemelte knegt bekend gemaakt dat
 den ouden slaaf en beestenwagter Pieter met den gemelte Hottentot Louis
 bij de ploeg op het land gekomen waren, waarop de huijsvrouwe van
@@ -208,7 +208,7 @@ wenden naar U Edel Agtbaarens omme deselven ootmoedig te versoeken,
 derselve hoogwijs oordeel, wat en hoedaanig hij met dien Hottentot Louis
 handelen en wat verders deese zaak aangaande, sal hebben te doen.
 
-’twelk doende etc.^[^6]^
+’twelk doende etc.[^6]
 
 TRANSLATION
 
@@ -222,7 +222,7 @@ utmost respect that on the 15^th^ of the just passed month September,
 when he found himself at the Cape, he received a report from the former
 *heemraad* Andries Brink that a *jongen* of the former burgher
 councillor, *Sieur* Andries Grové, named Cupido van Bengalen, who was
-stationed on the farm of the aforementioned Brink,^[^7]^ named
+stationed on the farm of the aforementioned Brink,[^7] named
 Vischwater, and situated behind Riebeek-Kasteel, had stabbed to death a
 *meijd* of his, named Francina, who also lived there. Hereupon he at
 once sent his deputy an order to immediately proceed to that place with
@@ -390,7 +390,7 @@ enquire from you what, in your sage opinion, he should do and how he
 should deal with this Hottentot Louis, and what else he should do
 concerning this case.
 
-Which I do, etc.^[^8]^
+Which I do, etc.[^8]
 
 [^1]: * This was relatively rare, since most farmers did not possess
     enough slaves to warrant a special building for them. Slave ‘houses’

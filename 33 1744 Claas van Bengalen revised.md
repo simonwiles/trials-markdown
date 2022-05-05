@@ -1,18 +1,18 @@
 1744 CLAAS VAN BENGALEN
 
-*Claas van Bengalen and Augustus van Malabar*^*[^1]*^* both worked on
+*Claas van Bengalen and Augustus van Malabar[^1] both worked on
 the same farm and regularly fought each other over the female slave
 Aurora, to the extent that their owner’s wife, Anna Marais, had been
-forced out of the house*^*[^2]*^*. In this episode, the rivalry took a
+forced out of the house[^2]. In this episode, the rivalry took a
 ritualised as well as literal form. It was also surrounded with racial
 and sexual slurs by both Anna Marais and Claas van Bengalen, revealing
 the complexity of tensions that could arise when slaves (from different
 regions and of both sexes), a free black and a farmer’s wife lived in
-close and tense proximity.*^*[^3]*^* *
+close and tense proximity.[^3] *
 
 *It is noteworthy that Claas was punished by the Council of Justice
 primarily for his threats to his owner’s wife rather than for planning
-to escape.*^*[^4]*^
+to escape.*[^4]
 
 **1/STB 3/9** Criminele Verklaringen, 1740-1746, unpaginated.
 
@@ -37,7 +37,7 @@ meergemelten slaaf Claas op het erweten land heeft verhaalt dat sijn
 lijfvrouwe gesegd hadde, dat hij Claas een mooije aap was, en of
 denselven niet anders roepen konde, waarop gemelten Claas repliceerde:
 Al ben ik een mooije aap, als ik voor hem krijgen kan, sal ik dog met
-hem samen slaapen.^[^5]^
+hem samen slaapen.[^5]
 
 Dat hij relatant met sijn twee voormelten meede slaaven, des ’s morgens
 te acht uuren, in de combuijs gegeeten hebbende, in ’t weggaan den slaaf
@@ -81,7 +81,7 @@ eeten.
 
 Dat gemelten slaaf Claas sig in de combuijs stil houdende, geseijde
 slaaf Augustus teegens denselven gesegd heeft: Jij moet nu niet stil
-swijgen, jij moet seggen dat wij gebakkeleijt^[^6]^ hebben; waarop sijn
+swijgen, jij moet seggen dat wij gebakkeleijt[^6] hebben; waarop sijn
 relatants lijfvrouwe, in de combuijs komende, seijde: Wat doe jijluij
 hier in huijs? Scheer jouw maar hiervandaan, jij legt altijd over de
 oude teef te bakkleijen \[*sic*\]. Ik moet om jouwluij uijt mijn eijgen
@@ -202,7 +202,7 @@ In kennisse van mij, \[get.\] A. Schephausen, secretaris.
 TRANSLATION
 
 Statement given on the requisition of the landdrost, *Sieur* Pieter
-Lourensz, by Januarij van Rio de la Goa,^[^7]^ 20 years old at a guess,
+Lourensz, by Januarij van Rio de la Goa,[^7] 20 years old at a guess,
 bondsman of the burgher Francois Retief, being of the following
 contents, namely:
 
@@ -211,7 +211,7 @@ with his fellow slaves Claas and Augustus in the kitchen of the
 residence on the farm of their owner, situated in the region of the
 Wagenmakersvallei, when their master cried from the *voorhuijs*: “Call
 to the dogs there”, whereupon the aforementioned Claas called out to the
-back \[yard\]: “Tsa! tsa!”,^[^8]^ upon which his mistress asked: “Who is
+back \[yard\]: “Tsa! tsa!”,[^8] upon which his mistress asked: “Who is
 calling tsa! tsa! there?”, to which the slave Augustus answered that it
 had been the slave Claas calling out, to which his mistress, replied
 again: “Can that pretty monkey not call out any better?”
@@ -226,7 +226,7 @@ That at 8 o’clock in the morning, after the testifier had eaten in the
 kitchen with his two aforementioned fellow slaves, the slave Augustus,
 while leaving, said to a female slave of his master, named Aurora: “You
 must slaughter that lamb which was killed by the wolf in the
-corral”,^[^9]^ to which the slave Claas answered: “What does the *meijd*
+corral”,[^9] to which the slave Claas answered: “What does the *meijd*
 know about slaughtering, let the *baas* and not you give orders to the
 *meijd*”, to which Augustus replied: “She may not be able to slaughter
 that lamb, but she is well capable of knavish tricks”. The three of them
@@ -234,7 +234,7 @@ again went out to the pease plot in order to pick the same, when the
 slave Augustus was ordered by his master to go and look if his horse
 still had fodder, which is when the slave Claas said to the testifier,
 when they got close to the pease plot: “I will not remain silent as long
-as I am not sucking the blood of Augustus”,^[^10]^ which was heard by
+as I am not sucking the blood of Augustus”,[^10] which was heard by
 the slave Augustus, who had come close to them, and who said to the
 aforementioned slave Claas: “I would like to see what sort of guy could
 suck my blood”. They then continued with their work while, shortly

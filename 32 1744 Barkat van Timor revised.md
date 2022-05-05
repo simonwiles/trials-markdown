@@ -1,24 +1,24 @@
 1744 BARKAT VAN TIMOR
 
 *This drama took place in the house of the prominent burgher Abraham
-Cloppenburg.*^*[^1]*^* When he angrily ordered his slave Barkat van
+Cloppenburg.[^1] When he angrily ordered his slave Barkat van
 Timor to be whipped for not having set the supper table, Barkat attacked
 him, as well as another slave who got in his way, and barricaded himself
 in the attic. The subsequent siege lasted until the following morning,
 when Barkat was overcome by a *bandiet* working as one of the Company’s
-policemen.*^*[^2]*^* *
+policemen.[^2] *
 
-*Barkat’s response was a form of running *amok*,*^*[^3]*^* with
+*Barkat’s response was a form of running *amok*,[^3] with
 indiscriminate attacks on everyone who got in his way, burghers,
 *caffers *and his fellow slaves, and his realisation that his actions
 were suicidal. It was a sudden and spontaneous reaction which took
 Cloppenburg by surprise. However, Cloppenburg was renowned for
 maltreating his slaves and admitted to the court that he had been angry.
 Barkat was executed by breaking on the wheel, but Cloppenburg was also
-reprimanded by the Council of Justice.*^[^4]^* *
+reprimanded by the Council of Justice.[^4] *
 
 *Barkat may have been a newcomer to the Cape since he did not yet
-understand Dutch and his testimony was given in Malay.*^*[^5]*^* It is a
+understand Dutch and his testimony was given in Malay.[^5] It is a
 striking indication of the divisions within the forced migrants to the
 colony that he was overcome by a *bandiet* from Boegies, in the same
 region as his own place of origin, who would also have understood
@@ -26,13 +26,13 @@ Malay.*
 
 *We include here the interrogation of Barkat, and the testimonies of
 Cloppenburg and one of the *bandieten*, which enable a reconstruction of
-the episode from several perspectives.*^*[^6]*^
+the episode from several perspectives.*[^6]
 
 **CJ 349** Criminele Process Stukken, 1744, ff. 104-8.
 
 Compareerde voor ons, ondergetekende gecommitteerdens uijt den
 edelagtbaren Raad van Justitie des Casteels de Goede Hoop, Parkat van
-Timor^[^7]^ lijfeijgen van den oud burgerraad, sieur Abraham
+Timor[^7] lijfeijgen van den oud burgerraad, sieur Abraham
 Cloppenburg, oud naar gissing 30 jaar, denwelken, ter requisitie van den
 Heer Independent Fiscaal Pieter Reede van Oudshoorn, confesseerde hoe
 waar is:
@@ -288,7 +288,7 @@ to be true:
 That at about ten o’clock at night of Saturday, the 22^nd^ of this month
 February, his owner came home and first went into the room to his wife,
 coming out again shortly thereafter when he came to the confessant, who
-was in the *voorhuijs* where he had set the table,^[^8]^ and asked him
+was in the *voorhuijs* where he had set the table,[^8] and asked him
 why the food was not on the table, to which the confessant replied that
 it had not yet been ordered by him, *Sinjeur* Cloppenburg. Hereupon his
 said owner immediately grabbed him by the hair and, after having given
@@ -300,12 +300,12 @@ meantime he begged his owner for forgiveness. However, as this did not
 help, the confessant tore himself free from the hands of these slaves,
 taking at this time out of desperation a knife which was lying on the
 table in the kitchen, and went with it to his owner, who was also still
-in the kitchen, being of the intention then to take his^[^9]^ life in
+in the kitchen, being of the intention then to take his[^9] life in
 order thereby to depart from the world himself, because he could not
 bear it any longer with his owner. Hereupon he stabbed with the said
 knife at his aforementioned master, without knowing whether or where he
 had hit the same, whereupon his owner ran from the kitchen to the
-*galderij*,^[^10]^ being followed by the cook Julij who closed the
+*galderij*,[^10] being followed by the cook Julij who closed the
 kitchen door after him, while the other slaves likewise ran to the back
 of the yard and also closed the door after them.
 
@@ -344,7 +344,7 @@ this person had been hit by it. After this, the chests, which were still
 on the trap-door, were again worked away below into the kitchen and,
 while moreover shots were fired at him by Schipper Kroos – after he had
 managed to get the confessant in view – from a flat roof from where he
-could see into the attic,^[^11]^ without however hitting him. Upon which
+could see into the attic,[^11] without however hitting him. Upon which
 the confessant became anxious, and seeing a bamboo parasol handle from
 which some things were hanging, he took this stick down and sharpened
 the one end in order to defend himself with it against those who wished
@@ -398,7 +398,7 @@ Statement given, on the requisition of the honourable fiscal Pieter
 Reede van Oudshoorn, by the former burgher councillor, *Sieur* Abraham
 Cloppenburg, which is of the following content, namely:
 
-That the testifier got home at about ten o’clock this evening^[^12]^ and
+That the testifier got home at about ten o’clock this evening[^12] and
 asked his wife, who was sitting in the back room reading, if the table
 had been set, and obtained as answer from her that the table is set in
 the *voorhuijs* and that a while ago his slave Barkat van Timor had
@@ -452,7 +452,7 @@ TRANSLATION
 
 Statement given, on the requisition of the honourable independent
 fiscal, Pieter Reede van Oudshoorn, by the *bandiet* Pannaij van
-Boegies,^[^13]^ of competent age, being of the following contents,
+Boegies,[^13] of competent age, being of the following contents,
 namely:
 
 That at about half past ten o’clock on Saturday evening, which was the

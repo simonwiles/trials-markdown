@@ -2,11 +2,11 @@
 
 *Julij van Bengalen accidentally set fire to the veld when cooking fish
 out of doors. The case was not considered serious enough to send to the
-Council of Justice,*^*[^1]*^* but Julij received a whipping and a stern
+Council of Justice,[^1] but Julij received a whipping and a stern
 warning from the landdrost. Fire was a particular danger in a community
 where wood was used extensively in building, and detailed measures were
 taken to punish those who caused it, either deliberately or by
-accident.*^*[^2]*^* *
+accident.[^2] *
 
 **1/STB 3/8** Criminele Verklaringen, 1702-1749, unpaginated.
 

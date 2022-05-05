@@ -7,9 +7,9 @@ glimpse of the Chinese *bandieten* (convicts) exiled to the Cape from
 Batavia, some of whom, such as Limoeijko, had served their sentences and
 were ‘free Chinese’. The authorities suspected the Chinese community in
 Cape Town of being actively involved in smuggling and the handling of
-stolen goods.*^*[^1]*^* Certainly these slaves knew where to bring their
+stolen goods.[^1] Certainly these slaves knew where to bring their
 flour, and Limoeijko’s claims of innocence were not believed and he was
-punished along with the slaves.*^*[^2]*^
+punished along with the slaves.*[^2]
 
 **CJ 357** Criminele Process Stukken, 1749, ff. 428-29.
 
@@ -156,7 +156,7 @@ independent fiscal, Pieter Reede van Oudshoorn, confesses it to be true:
 That eight days ago now, or the night between last Tuesday and
 Wednesday, being unable to name the exact hour, the confessant opened
 his door when somebody knocked on it, since he thought that it was
-*volk* who came to call him to go fishing with them.^[^3]^ However, he
+*volk* who came to call him to go fishing with them.[^3] However, he
 then noticed that it was a black *jongen*, to whom there instantly came
 yet another *jongen*, carrying a sack of flour, and who wanted to sell
 it to him, at the same time also coming with the flour just inside the
@@ -260,7 +260,7 @@ be confined in chains on the honourable Company’s public works for his
 whole life; with sentencing all four prisoners to the costs and
 expenditure of justice; and denying the further or otherwise drawn-up
 *eijsch* of the honourable Officer with regard to all the
-prisoners.^[^4]^
+prisoners.[^4]
 
 Thus done and sentenced in the Castle of Good Hope on 13 November 1749,
 as also pronounced and executed on the 15^th^ thereupon.

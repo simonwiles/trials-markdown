@@ -1,9 +1,9 @@
 ** 1780 FRANS**
 
-*This incident on Marten Melk’s farm at Elsenburg*^*[^1]*^* is revealing
+*This incident on Marten Melk’s farm at Elsenburg[^1] is revealing
 for the authority of the Council of Justice over privately owned slaves
 and their owners. An accident took place when three slave teenagers were
-horsing around, and Frans, the cause of it, fled.*^*[^2]*^* Marten Melk,
+horsing around, and Frans, the cause of it, fled.[^2] Marten Melk,
 his owner, reported the episode, but ten days later, when Frans had
 returned of his own accord, Melk requested that he be pardoned and the
 case dropped. *
@@ -77,7 +77,7 @@ nodelose kosten voor desselfs lijfheer, weder ontslagen en aan gemelde
 zijn lijfheer overgelevert worden mag.
 
 Gelijk meede eerbiedig verzoeke dat door de heer Neethling, ter mijner
-requisitie e.o.^[^3]^ en bij mijn absentie, voor heeren
+requisitie e.o.[^3] en bij mijn absentie, voor heeren
 gecommitteerdens, in de zaak van den burger David Kusler genomen mogen
 werden de nodige relasen van de Hottentottinne Rosa en den Hottentot
 Platje, die nevens derzelver broeder Afrika, daartoe van de Sneeuberg
@@ -109,7 +109,7 @@ both the statement of the wounded and the evidence from the other
 slaves, that the three slave boys of the said Melk, by the names of
 Rooij, Cupido and Frans, all grown fellows, almost equal in years, the
 two first ones \[working\] as horse hands, and the last one looking
-after the vineyards,^[^4]^ got together at the horse corral the day
+after the vineyards,[^4] got together at the horse corral the day
 before yesterday at eventide and got to play there, they then chased one
 another, and returned in this way to the house. That while doing this,
 they got close to the corner of the slave house and when the
@@ -168,7 +168,7 @@ Platje who, together with their brother Afrika, came here from the
 Sneeubergen to this end and have urgently requested to be allowed to
 return again as soon as possible today to their abode, as has already
 been done, with my consent, by the said Afrika, who is still too young
-and very simple to give a proper attestation.^[^5]^
+and very simple to give a proper attestation.[^5]
 
 Otherwise I have the honour to be, with humble respect,
 

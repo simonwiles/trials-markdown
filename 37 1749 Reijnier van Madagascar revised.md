@@ -4,7 +4,7 @@
 own unnoticed for twenty years in the mountains around the Franschhoek
 region. On recapture, he vividly recalled the events which led to his
 desertion. The daughter he had with the woman he called his
-wife,*^*[^1]*^* Manika van Bengalen, was severely maltreated by their
+wife,[^1] Manika van Bengalen, was severely maltreated by their
 owner’s wife, for unknown reasons. Reijnier was a loyal and
 long-standing slave, who had built up the farm by his labour, but he was
 taunted by other slaves for his failure to defend his daughter. He
@@ -12,13 +12,13 @@ eventually cracked, attacked his owner with a knife and fled to the
 mountains. Twenty years later he was recaptured. By then his owners and
 his daughter were dead. Only Manika, now aged 60, survived. For all
 these years she had not known what had happened to Reijnier or whether
-he was still alive.*^*[^2]*^
+he was still alive.*[^2]
 
 *The case gives a vivid insight into psychological and emotional
 tensions which slave families could undergo on a remote farm, as well as
 the ability of an isolated runaway to survive for many years in the
 surrounding mountains. The story did not have a happy ending: Reijnier
-was sentenced to labour for life on Robben Island.*^*[^3]*^* *
+was sentenced to labour for life on Robben Island.[^3] *
 
 **CJ 357** Criminele Process Stukken, 1749, ff. 7-9v.
 
@@ -166,7 +166,7 @@ confessant’s wife, for the used tea leaves of his mistress, this *meijd*
 answered: “The *juffrouw* drank no tea today, but wine”. The said
 *meijd* then narrated to him how that day his mistress, after first
 undressing the said Sabina and having her spanned into a so-called
-*poolsche bok*,^[^4]^ had again pitifully beaten her with a *sjambok*.
+*poolsche bok*,[^4] had again pitifully beaten her with a *sjambok*.
 For which reason the said Sabina had fled from the house to behind a
 corral, from where the confessant himself fetched her and brought her
 into the kitchen. Moreover, as a result of this \[beating\], the said

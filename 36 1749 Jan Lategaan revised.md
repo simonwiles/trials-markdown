@@ -11,7 +11,7 @@ to care for Regina afterwards. *
 *The fiscal recommended that, since some of the evidence was uncertain,
 Lategaan could only be fined, although he also stated that Julij van
 Bengalen should be sold and never again be permitted to come under
-Lategaan or his family’s ownership.*^*[^1]*^* *
+Lategaan or his family’s ownership.[^1] *
 
 **1/STB 3/10** Criminele Verklaringen, 1749-1758, unpaginated.
 
@@ -91,7 +91,7 @@ In kennisse van mij, \[get.\] J.B. d’Aillij, secretaris.
 **1/STB 3/10** Criminele Verklaringen, 1749-1758, unpaginated.
 
 Relaas gegeeven, ter requisitie van den heer landdrost Adriaan van
-Schoor, door den landbouwer Jan Lategaan, competenten ouderdom^[^2]^,
+Schoor, door den landbouwer Jan Lategaan, competenten ouderdom[^2],
 sijnde van den volgenden inhoud:
 
 Dat hij relatant, nu omtrent twee maanden geleeden, zonder den accurate
@@ -178,7 +178,7 @@ him where the aforementioned Regina was, to which the deponent answered
 that he did not know.
 
 That some days after this, when the Hottentot woman Catrijn, who looks
-after the cattle herd of his owner,^[^3]^ came home in the evening, she
+after the cattle herd of his owner,[^3] came home in the evening, she
 told him that, going past a porcupine hole on the mountain above the
 farm of the deponent’s owner, she became aware of a great stench, and
 that she was of the opinion that a dead human being must be lying in

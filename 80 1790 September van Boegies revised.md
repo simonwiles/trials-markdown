@@ -2,7 +2,7 @@
 
 *In this unusual example, a burgher requested permission from the
 landdrost *not *to punish one of his slaves who had run away and was
-soon caught, wounding himself out of fear of punishment.*^*[^1]*^* The
+soon caught, wounding himself out of fear of punishment.[^1] The
 letter demonstrates how the control of masters over their slaves was
 limited by the legal authority of the VOC, in this case not necessarily
 to the slave’s advantage. *

@@ -7,7 +7,7 @@ fathered a child. The details of the elopement, as well as the crisis it
 caused within the community, are revealed in these records. Disapproval
 of Malan’s behaviour was evident, both in warnings given to him about
 his affair with Sara, and in the subsequent sentence of the Council of
-Justice which outlawed and banished him.*^*[^1]*^* Malan’s marriage was
+Justice which outlawed and banished him.[^1] Malan’s marriage was
 not a happy one, although whether this was a cause or a consequence of
 his relationship with Sara is not clear. *
 
@@ -40,7 +40,7 @@ vertrocken.
 Dat wanneer de comparante ’s morgens de 12^e^ deeser opgestaan, bij haar
 zeer droevig en treurig gekomen zijnde, de huijsvrouw van voormelde
 Malan, haar klaagenderwijsen gezegd had dat haar man, gemelde Malan,
-dien nagt met twee paarden \<zig g’absenteert had\>^[^2]^, met meede
+dien nagt met twee paarden \<zig g’absenteert had\>[^2], met meede
 neeming van twee kussens en geweer, kruijd, lood, mitsgaders een nieuwe
 broek; voegende de comparante teffens daarbij de omstandigheijd van het
 vertrek van bovengenoemde Malan door desselfs huijsvrouw in dier voegen
@@ -50,7 +50,7 @@ geen antwoord van hem bekomen, zij alstoen de deur zelve geopend
 hebbende, had ontdekt dat hij zig van daar begeeven had.
 
 Dat de comparante kort daarop, denzelfden morgen, een Hottentot naar de
-cloofonderhouder Jan de Vos,^[^3]^ alwaar zij haar slavinne Sara tot
+cloofonderhouder Jan de Vos,[^3] alwaar zij haar slavinne Sara tot
 minne had gegeeven, uijt vrees dat dezelve haar met voorseijde Malan
 mogte g’absenteerd hebben, terwijl reeds gerugten waaren dat hij Malan
 met gemelde slavin Sara verkeering hield, zo is deselve slavin Sara,
@@ -88,9 +88,9 @@ Dat aan den comparant voor eenige tijd, na gissing omtrend veerthien
 dagen geleeden, van Dorothea Otto, huijsvrouw van den burger Jurgen
 Radeijn, gesegd geworden is dat zij, op zekeren nagt, op ’t geblaft der
 honden haar uit haar slaap kamer begeeven hebbende en, in de combuijs
-gekomen zijnde, \<zekeren persoon\>^[^4]^ had zien naar buijten gaan en
+gekomen zijnde, \<zekeren persoon\>[^4] had zien naar buijten gaan en
 vervolgens twee weder naar binnen komen, hetgeen bij haar eenig
-naardenken had veroorsaakt, zij comparante^[^5]^ daarop met een
+naardenken had veroorsaakt, zij comparante[^5] daarop met een
 brandende kaars haar daarnatoe begeeven, bevonden dat de burgercornet
 David Malan Davidsz onder het bed van een haren slave meijden kwam te
 bevinden, zonder dat door haar aan de comparant de naam van die meid
@@ -104,7 +104,7 @@ toebehoorende genoemde juffrouw Radijn verkeering hield. Dat den
 comparant, bij geleegendheijd dat voormelde Malan, voor nu omtrent
 veerthien dagen geleeden, bij hem gekomen, hem comparant vragende om
 voor zijn \[*onleesbaar*\] een paar slagtbeesten voor zijn vendutie te
-koopen,^[^6]^ den comparant daarin bewilligd had. Had den comparant
+koopen,[^6] den comparant daarin bewilligd had. Had den comparant
 vervolgens het discours laten komen op het gedrag van hem Malan, wegens
 de verkeering die hij met de slavin Sara hield, en hem alstoen vermaand
 dat hij dog van levensaard wilde veranderen. Malan hem alstoen had
@@ -174,7 +174,7 @@ Dat op Dingsdag morgen, den 12^e^ deeser maand Augustus, bij den
 comparant met weenende oogen klaagenderwijse gekomen zijnde, de
 huijsvrouw van den burgercornet David Malan Davidsz, meede deelende dat
 haaren voormelde man dien morgen niet opgestaan zijnde, zij
-comparante^[^7]^ eerst, en daarna door haaren zoon, aan desselfs
+comparante[^7] eerst, en daarna door haaren zoon, aan desselfs
 kamerdeur geklopt had, dog geen antwoord bekomende alstoen ze haar
 buijten de huijsdeur begeeven en een dier kamervengsters openen
 getrocken, en daarop ijmand in de kamer doen inklimmen; als wanneer zij
@@ -184,13 +184,13 @@ loot, vervolgens ook vernomen dat denselve in het slaven huijs twee
 riemen gehaald en twee rijd paarden meede genomen had, gemelde
 huijsvrouw van voormelde Malan den comparant alstoen hebbende versogt
 voor haar naar Stellenbosch te gaan ten eijnde van het voorgevallene aan
-den heer landdrost Bletterman, \<den requirant in deesen\>^[^8]^,
+den heer landdrost Bletterman, \<den requirant in deesen\>[^8],
 kennisse te geeven en te vragen hoedanig zij haar daarin moeste
 gedragen, terwijl de te houdene vendutie op handen was, zij niet wiste
 of de billietten als nu niet dienden te werden afgescheurd. Den
 comparant zig dan ook totdat einde na den heer requirant begeven en aan
 zijn edele door de comparant in dier voegen \<zulks alles door hem
-comparant\>^[^9]^ meede gedeeld zijnde, den requirant hem comparant
+comparant\>[^9] meede gedeeld zijnde, den requirant hem comparant
 gevraagd had of hij comparant procuratie had, terwijl door de
 \[*onleesbaar*\] de billietten aangeplakt zijnde, ook door hem moet
 vernietigt worden en dat de requirant aan den comparant daarop
@@ -342,8 +342,8 @@ when she did not receive any answer from him, she opened the door
 herself and discovered that he had gone from there.
 
 That shortly thereupon, on that same morning, the deponent sent a
-Hottentot to the keeper of the kloof,^[^10]^ Jan de Vos, to whom she had
-loaned her slave Sara as wet nurse,^[^11]^ in order to enquire whether
+Hottentot to the keeper of the kloof,[^10] Jan de Vos, to whom she had
+loaned her slave Sara as wet nurse,[^11] in order to enquire whether
 the slave Sara did not perhaps absent herself, since she feared that the
 same might have eloped with the aforesaid Malan, seeing that there were
 already rumours that Malan had a relationship with the said slave Sara
@@ -393,11 +393,11 @@ rumour, suspected, the said Malan had a relationship with a certain
 woman slave Sara, belonging to *Juffrouw* Radijn. On the occasion when
 the aforesaid Malan, about fourteen days ago now, came to the deponent,
 asking to buy some cattle for his auction and the deponent agreeing to
-this,^[^12]^ the deponent directed the conversation to Malan’s conduct
+this,[^12] the deponent directed the conversation to Malan’s conduct
 concerning the relationship he had with the slave Sara, and at that time
 advised him that he really ought to change his way of life. Malan then
 told him that he would change his conduct and that he and his wife had
-agreed to separate after the forthcoming auction^[^13]^ and that his
+agreed to separate after the forthcoming auction[^13] and that his
 wife would get three parts of the estate and that he would take the
 remaining part.
 
@@ -478,7 +478,7 @@ petitioner asked the deponent if he had power of attorney, because, as
 the placards had been put up by the \[*illegible*\] they must also be
 taken down by him, and that the petitioner then told the deponent: “Even
 if you had power of attorney, the matter is of too great an importance,
-the woman must come herself”,^[^14]^ after which the petitioner again
+the woman must come herself”,[^14] after which the petitioner again
 continued: “But De Vlaming, what do you think of this?”, to which the
 deponent replied: “God knows, trouble may come of it, the *meijd* is
 also gone and she has left her child in the lurch”.
@@ -525,7 +525,7 @@ farm of the *veldcorporaal* Petrus Stephanus du Toit at the
 Riviersonderend on the 14^th^ of the month August, that they arrived on
 the 15^th^ thereupon at the *veldwagtmeester* Daniel du Toit at Goudini
 and, calling himself Jan Nortjé, requested help for him and his wife
-(denoting the aforementioned woman slave Sara)^[^15]^ to cross the
+(denoting the aforementioned woman slave Sara)[^15] to cross the
 Breede River with the boat; while Malan also pretended to be Jan Nortjé
 at, among other places, the Hex River kloof to one Abraham Finnerhold,
 and was seen successively on his further journey into the interior with
@@ -545,7 +545,7 @@ as one was informed for certain, he obtained knowledge through a
 messenger of the writ of summons issued against him). Consequently, the
 aforementioned landdrost, on 27 November of the said year, requested a
 fourth mandate by decree in superabundance to serve as
-arraignment.^[^16]^ That since the aforesaid Malan did once again not
+arraignment.[^16] That since the aforesaid Malan did once again not
 appear on this last summons, which was after all being issued for a term
 of six weeks, but on the contrary remained fugitive and hidden, he,
 apart from having disdained justice to the utmost, had thereby, in
@@ -573,7 +573,7 @@ besides this banishes him from this government and everything which
 resorts under it, as their honours are banishing him with this, on pain
 that, if he ever comes into the hands of justice, he is then to be
 punished according to merit, with sentencing the defendant to all the
-costs that were incurred in this case.^[^17]^
+costs that were incurred in this case.[^17]
 
 Thus done and sentenced at the Cape of Good Hope on 5 March 1789, as
 also pronounced in the Castle of Good Hope on the 28^th^ thereupon.

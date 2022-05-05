@@ -3,7 +3,7 @@
 *The authorities were constantly alarmed by the prevalence of slave
 desertions, especially so, as in this case, when a large group of slaves
 of different owners banded together. The documentation for this case is
-voluminous.*^*[^1]*^* Each of the eleven runaways who were recaptured
+voluminous.[^1] Each of the eleven runaways who were recaptured
 gave his own reasons for running away, some of them induced by others.
 Of particular interest is the blood oath that they took and their vow
 never to ‘eat the bread of the Dutch again’, which might have been a
@@ -23,9 +23,9 @@ society in its early stages, when slaves were all imported, and so aware
 of a world of freedom outside the Cape, rather than born into slavery in
 the colony. Rebellions seeking to overthrow the colony never occurred at
 the Cape during the VOC period, possibly because of the slow rate of
-creolisation.*^*[^2]*^* Only in 1808 did a slave uprising take place
+creolisation.[^2] Only in 1808 did a slave uprising take place
 which sought to overthrow the slave system of the Cape from
-within.*^*[^3]*^
+within.*[^3]
 
 **CJ 318** Criminele Process Stukken, 1714, ff. 90-7.
 
@@ -105,7 +105,7 @@ als die van Sieurs Swellengrebel, Oortmans en van Mulder, en of hij die
 slaaven insgelijks niet heeft wijs gemaakt, haar in een ander land te
 brengen daar goed eeten en drincken was?
 
-Antwoort: Dat Jeroen die slaven heeft opgemaakt,^[^4]^ dog zeggen Tromp,
+Antwoort: Dat Jeroen die slaven heeft opgemaakt,[^4] dog zeggen Tromp,
 Jeroen, Pasqual en Jonas dat Thomas hun aangesprooken heeft om weg te
 loopen en segt Jeroen dat hij er present is geweest wanneer Thomas de
 gemelde jongens aangesprooken heeft.
@@ -624,10 +624,10 @@ master.
 Article 18: If the prisoner eventually gave the gun to Jeroen and with
 what purpose he handed it over?
 
-Says that he did not do so. However, is persuaded by^[^5]^ Jonas,
+Says that he did not do so. However, is persuaded by[^5] Jonas,
 Pasqual, Anthonij, Tromp and Jeroen that he handed over the musket, as
 also that he told them that he had supported a certain *jongen* named
-Claas Kok^[^6]^ for six months and had given him food. Moreover, that he
+Claas Kok[^6] for six months and had given him food. Moreover, that he
 went to the Groene Cloof in order to incite more *jongens*.
 
 Article 19: If the prisoner was not also a co-contributor of guns,
@@ -730,7 +730,7 @@ Dutchman drove him on in front of the horse, but the prisoner could not
 continue any longer, when he found a knife near some shrub, with which
 he cut himself in the throat. That the Dutchman let him lie and rode
 away, whereupon the prisoner went from there to his master’s house and
-healed himself with leaves of the oil tree.^[^7]^
+healed himself with leaves of the oil tree.[^7]
 
 Thus questioned and answered in the Castle of Good Hope on 19 January
 1714.
@@ -758,12 +758,12 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 TRANSLATION
 
 As Tromp van Madagascar, age 20, Cupido van Batavia, age 30, Jeroen van
-de Malijtse Cust,^[^8]^ age 24, and Neptunis van Bima, age 20 years,
+de Malijtse Cust,[^8] age 24, and Neptunis van Bima, age 20 years,
 bondsmen of the former burgher councillor Nicolaas Oortmans, Titus van
 de Caab, age 22, and Joumat van Ternaten, age 40 years, slaves of the
 widow Diepenauw, Januarij van Batavia, age 20, Jonas van Trancqueebaare,
-age 40, and Pasqual from the Spanish West Indies,^[^9]^ age 30 years,
-bondsmen of the *dispencier*, *Sieur* Johannes Swellengrebel,^[^10]^
+age 40, and Pasqual from the Spanish West Indies,[^9] age 30 years,
+bondsmen of the *dispencier*, *Sieur* Johannes Swellengrebel,[^10]
 Thomas van Bengalen, age 30, and finally Anthonij van Mallebaar, age 40
 years, slaves of the farmer Christoffel Esterhuijs, currently their
 honours’ prisoners, have willingly, without torture or threat of bonds,
@@ -777,7 +777,7 @@ not scruple nor hesitate to incite many slaves of the inhabitants here
 to flee, in which they were assisted by the third prisoner, Jeroen, and
 the tenth prisoner, Thomas. That they conferred with one another and
 agreed that they would never return again to their masters and that they
-would head for the land of the Portuguese.^[^11]^ That after they
+would head for the land of the Portuguese.[^11] That after they
 thereupon also lured and enticed a good number of slaves, amongst whom
 were the aforenamed slaves, they set out for the Piketbergh. That the
 head of the conspiracy was Knap een Deuntie, the second-in-command was
@@ -787,7 +787,7 @@ fellow leaders.
 
 That most of them were provided with guns, powder and shot, that they
 decided on the residence of the cripple farmer as their place of
-rendezvous, where they could confer,^[^12]^ and agreed with one another
+rendezvous, where they could confer,[^12] and agreed with one another
 that when people come to capture them, they would defend themselves
 against that, to which end they all, being eleven men strong, on the
 suggestion of their captain, ate a piece of bread covered in blood and
@@ -825,7 +825,7 @@ was hit by a bullet as a result of which he fell forward on the ground
 and came to pass away five hours after this. That the first prisoner,
 after having shot at the Dutch three times, and beginning to fall back
 with his accomplices, shot dead the Hottentot Jantie \[*sic*\] from St.
-Helena Bay who wanted to capture him,^[^13]^ whereafter he, together
+Helena Bay who wanted to capture him,[^13] whereafter he, together
 with Knap een Deuntie, Neptunis and Bali, of which the latter is still
 fugitive, took flight further and, after having roamed around for some
 time, finally went home to his master and then, in this way, got into
@@ -953,7 +953,7 @@ and the Achilles tendon on the right-hand side of each to be cut; and,
 finally, the eleventh prisoner to witness this justice, all with the
 costs and expenditure of justice, with the five last-named delinquents
 to be sent home, after their punishments had been meted out, to their
-masters, on condition that the same pay the costs.^[^14]^
+masters, on condition that the same pay the costs.[^14]
 
 Thus done and sentenced in the Castle of Good Hope on 3 February 1714.
 

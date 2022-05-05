@@ -1,8 +1,8 @@
-1.  **ALEXANDER VAN COUCHIN**^**[^1]**^
+1.  **ALEXANDER VAN COUCHIN**^*[^1]*^
 
 *This is an unusual case, since the recommendation of the landdrost that
 the accused slave be sentenced to death was overturned by the Council of
-Justice.*^*[^2]*^* Alexander van Couchin was accused of threatening to
+Justice.[^2] Alexander van Couchin was accused of threatening to
 attack his owner, but he made no actual assault. Tensions were running
 high on this Klapmuts farm and the case reveals the complex conflicts of
 interest between the slave-owner who wants to whip one of his female
@@ -12,7 +12,7 @@ Alexander was acquitted because the court had some sympathy with his
 circumstances or because the evidence was unclear. It is striking that,
 although rejecting the death sentence, the court did not impose any
 punishment at all, but neither did it order him to be sold to prevent
-his owner from retaliation, as was usually done in such cases.*^*[^3]*^*
+his owner from retaliation, as was usually done in such cases.[^3]
 *
 
 **CJ 346** Criminele Process Stukken, 1741, ff. 115-16.
@@ -41,7 +41,7 @@ gemelte maand Februarij, als wanneer hij relatant denselven heeft doen
 vleugelen, en in den handen van den requirant heeft laaten overleeveren,
 en voorts van het gepasseerde aan deselve kennisse gegeeven.
 
-Anders niet relateerende, geeft den comparant^[^4]^ voor reedenen van
+Anders niet relateerende, geeft den comparant[^4] voor reedenen van
 weetenschap als in den text, met presentatie van dit, zijn gerelateerde,
 ten allen tijden, sulx vereijscht werdende, nader te sullen gestand
 doen.
@@ -335,7 +335,7 @@ which is when the testifier had the same trussed and had him delivered
 into the hands of the petitioner and then also informed him of what had
 happened.
 
-There being nothing more to relate, the deponent^[^5]^ asserts to be
+There being nothing more to relate, the deponent[^5] asserts to be
 convinced of the accuracy of his statement as in the text, while
 offering to subsequently confirm this, his statement, at any time, if so
 required.
@@ -382,7 +382,7 @@ That the deponent tied up this *jongen* Alexander in the kitchen, and
 then went to his work. Shortly thereafter there came to him in the
 wagon-house (where he was busy putting together a wagon) one of his
 master’s slaves, named Pieter, who said to the deponent: “It is good
-that you have come from over the mountain,^[^6]^ because that *jongen*
+that you have come from over the mountain,[^6] because that *jongen*
 wanted to have killed the *baas*”, to which the deponent replied: “My
 God! That must not be”, after which he again went to the kitchen, where
 he heard his master speaking very loudly to this *jongen* Alexander.
@@ -464,7 +464,7 @@ master had him untied again?
 Answer: Yes.
 
 Article 7: If the prisoner, after he had been untied, went to the slave
-house,^[^7]^ put on a jacket there, and again went back to the kitchen
+house,[^7] put on a jacket there, and again went back to the kitchen
 with the unsheathed knife in the pocket of his trousers?
 
 Answer: Yes.

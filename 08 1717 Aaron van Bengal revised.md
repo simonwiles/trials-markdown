@@ -5,9 +5,9 @@ While collective slave rebellion was difficult to organise at the Cape,
 individual acts of resistance such as this were much more frequent.
 There are many cases of arson in the court records: setting fire to
 crops or to the thatched roofs of houses was relatively easy in the dry
-summers of the western Cape.*^*[^1]*^* The authorities were well aware
+summers of the western Cape.[^1] The authorities were well aware
 of the danger and issued numerous *plakkaten* warning against the
-dangers of possible fires and the punishments for arson.*^*[^2]*^* They
+dangers of possible fires and the punishments for arson.[^2] They
 severely punished culprits with sentences that often included death by
 burning alive or scorching, designed to impress upon spectators the
 horror of fire and the fate that awaited arsonists. *
@@ -18,7 +18,7 @@ events which got out of control. His attempted suicide is a sign of his
 desperation and bears some resemblance to the patterns of running
 *amok*, or attacks on people and property followed by self-destruction,
 that occasionally were carried out by slaves from the East
-Indies.*^*[^3]*^* *
+Indies.[^3] *
 
 **CJ 784** Sententiën, 1717-1725, ff. 7-11.
 
@@ -34,7 +34,7 @@ genaamt, (soo hij voorgeeft) om eenige discourssen die hij met eenen zoo
 genaamde Claas de Sterrekijker over de weggeloopene slaaven van
 voormelde zijne meester hadde gehouden, en deese Mos betreffende waaren,
 den dagh voor zijn apprehensie eenige slagen van hem Mos heeft
-ontfangen.^[^4]^
+ontfangen.[^4]
 
 Dat hij gevangen, na deese slagen ontfangen te hebben, sigh des middags
 van ’t ordinair eeten heeft geabsenteert, ter oorsake (soo hij segt)
@@ -108,14 +108,14 @@ Hoop.
 
 Men Heer,
 
-Dese dint om UE.^[^5]^ bekend te maken als dat en mans slaaf, genamt
+Dese dint om UE.[^5] bekend te maken als dat en mans slaaf, genamt
 Aron \[*sic*\] van Bangaalen, mijn toeborende, gisteren eenige slage
 gehadt heft, warop vornomde met begin van en boos opset sijn kleren heft
 an tikent geschuert en savons met en pluijsie het dak van ’t wijn huijs
 an brandt gestoken, warop hij is an de berg gelopen booven mijn huijs,
 aldar hij is gevonde door Johannes Kruijwag en Henderik Rooden, sigh
 selven hebben met en scharmes in de hals gesneden, welk scharmes in sijn
-sak is bevonde, warop het geval wilde dat Monsieur Fij\[l\]^[^6]^ in de
+sak is bevonde, warop het geval wilde dat Monsieur Fij\[l\][^6] in de
 Tijgerbergh was, dinselve vorsoght hebbende den deliquent te besightige,
 heft Monsieur Fijl nar en los vorbant gelijt te hebben en in staat
 bevonden heeft nar de Kaap te sende, onder de disposici van Men Heer,
@@ -521,7 +521,7 @@ Answer: Yes, to have gone from the house for this purpose.
 Article 9: What sort of tool did he come up with for this?
 
 Answer: Nothing, other than a part of his own blanket and some bits of
-cotton.^[^8]^
+cotton.[^8]
 
 Article 10: In what way did he get this to burn?
 
