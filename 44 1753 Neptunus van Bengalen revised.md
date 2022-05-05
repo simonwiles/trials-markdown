@@ -1,103 +1,18 @@
 # NEPTUNUS VAN BENGALEN
 
-*This murder case reveals the conflicts and tensions that could arise
-between slaves working under difficult circumstances. Neptunus was sent
-to look after his master’s cattle post, on the isolated frontier of the
-colony, without shelter or adequate clothing.[^1] He was accused
-of negligence, not only by his owner, who beat him, but also by an older
-slave, Claas van Macassar, who taunted him with his inadequacies as a
-cattle herder. The humiliated and resentful Neptunus then killed him. *
+*This murder case reveals the conflicts and tensions that could arise between slaves working under difficult circumstances. Neptunus was sent to look after his master’s cattle post, on the isolated frontier of the colony, without shelter or adequate clothing.[^1] He was accused of negligence, not only by his owner, who beat him, but also by an older slave, Claas van Macassar, who taunted him with his inadequacies as a cattle herder. The humiliated and resentful Neptunus then killed him. *
 
 **CJ 788** Sententiën, 1750-1755, ff. 151-56.
 
-Alsoo Neptunus van Bengalen, slaaf van den oud heemraad Philip du Preez,
-oud naar gissing 36 jaaren, thans ’s heeren gevangen, buijten pijn ofte
-dwang van banden, van ijsers, dan wel de minste bedrijging van dien,
-vrijwillig heeft beleeden, ende het den edelagtbaare Raad van Justitie
-deeses gouvernements ook evidentelijk is gebleeken:
+Alsoo Neptunus van Bengalen, slaaf van den oud heemraad Philip du Preez, oud naar gissing 36 jaaren, thans ’s heeren gevangen, buijten pijn ofte dwang van banden, van ijsers, dan wel de minste bedrijging van dien, vrijwillig heeft beleeden, ende het den edelagtbaare Raad van Justitie deeses gouvernements ook evidentelijk is gebleeken:
 
-Dat den gevangen, op sijn lijfheers veeplaats, De Klipkrans genaamt,
-eenigen tijd alleen beschijden geleegen hebbende, om het vee op te
-passen, en bij onguur en swaar reegen weer dag en nagt met hetselve in
-’t veld moetende weesen; hij gevangen, door groote koude geperst en
-dewijl, soo als voorgeeft, genoegsaam moedernaakt en sonder kleederen
-was, agter eenige bosjes geschoolen en een vuurtje gemaakt heeft, in
-welken tusschentijd het vee weggestreeken en een gedeelte daarvan absent
-geraakt weesende; heeft des gevangens lijfheer, so ter dier oorsaak, als
-omdat hij sig niet naar genoegen van denselven gequeeten hadde, hem
-gevangen van voormelde veeplaats niet alleen weg, en bij sig op desselfs
-woonplaats genoomen, mitsgaders een ander slaaf, genaamt Claas van
-Maccassar, als beestewagter in sijn plaats gelegt, maar ook den gevangen
-tot twee maalen toe deerlijk geslagen; ende hij gevangen vervolgens in
-de maand Junij jongstleeden door voormelde sijn lijfheer met eenig
-sogenaamt droog of gusvee weederom naar voormelde veeplaats gesonden
-geworden sijn, heeft hij gevangen, bij sijn aankomst aldaar, den slaaf
-Claas niet te huijs gevonden, weshalven den gevangen aldaar so lange
-vertoeft heeft, tot teegens ten avond, als wanneer gemelde Claas vanuijt
-het veld te huijs koomende, sig neevens den gevangen bij ’t vuur, dat
-hij gevangen hadde aangemaakt, heeft needergeset, ende vermits alsdoen
-geciteerde Claas over het slegt oppassen van hem gevangen nopens hun
-lijheers vee quam op te haalen, en hem diesweegen alderhande
-verwijtingen deed, alsmeede dat hij Claas uijt vuijlaardighijd de
-rondsom \[*sic*\] geleegene, en lange bevoorens verreckte en reets
-verantwoorde, beestehoorns vergadert, en die langs de muuren geschaart
-hadde, sijn sijlieden hierover in verschil en vervolgens handgemeen
-geraakt, bij ’twelke voormelde Claas, als reets oud en afgeleefd sijnde,
-onder te leggen quam, en alsdoen door den gevangen weeder los en
-opgelaten wierd; dog hij Claas hierop sijn kirrij opneemende en
-daarmeede naar den gevangen slaande, heeft hij gevangen dien slag
-afgeweert en, teffens toornig werdende, een stuck brandhout opgenoomen,
-en daarmeede eevengemelde Claas een ongeluckige slag aan de
-slinckersijde van sijn hooft toegebragt, waardoor hij Claas in
-duijseling op de grond needer viel, sig egter kort daarna weederom
-opregtende ten huijse uijt gong; ende hij gevangen alsdoen bevreest
-werdende dat dickwils gemelde Claas naar sijn lijfheer soude gaan klagen
-en hij gevangen alsdan opnieuws deerlijk soude geslaagen worden, heeft
-den gevangen sig oversulx, met het stuck brandhout in de hand, meede
-uijt het huijs begeeven, met voorneemen om, gemelde Claas vindende,
-denselven tot voorkoming dat niet over hem soude klagen, dood te slaan,
-ten welken eijnde, en om dit sijn quaat voorneemen ten uijtvoer te
-brengen, hij gevangen gemelde Claas in de, digt voorbij het huijs
-loopende, Duijvenhocrivier op sijn aangesicht op de klippen hebbende
-vinden leggen, denselven met het in de hand hebbende stuck brandhout
-soodanige een slag in de neck toegebragt dat daarvan so voort den geest
-gegeeven heeft, waarna den gevangen dat doode lighaam van uijt de
-rievier \[*sic*\] weg, en een weijnig op het land gesleept heeft;
-blijvende voorts ter voormelde plaatse bij het vee totdat des gevangens
-lijfheers zoon eenige dagen daarna aldaar koomende, en naar gerepte
-Claas vragende, hij gevangen den gepleegden doodslag van denselven heeft
-beleeden, en vervolgens in handen der justitie is overgeleevert
-geworden.
+Dat den gevangen, op sijn lijfheers veeplaats, De Klipkrans genaamt, eenigen tijd alleen beschijden geleegen hebbende, om het vee op te passen, en bij onguur en swaar reegen weer dag en nagt met hetselve in ’t veld moetende weesen; hij gevangen, door groote koude geperst en dewijl, soo als voorgeeft, genoegsaam moedernaakt en sonder kleederen was, agter eenige bosjes geschoolen en een vuurtje gemaakt heeft, in welken tusschentijd het vee weggestreeken en een gedeelte daarvan absent geraakt weesende; heeft des gevangens lijfheer, so ter dier oorsaak, als omdat hij sig niet naar genoegen van denselven gequeeten hadde, hem gevangen van voormelde veeplaats niet alleen weg, en bij sig op desselfs woonplaats genoomen, mitsgaders een ander slaaf, genaamt Claas van Maccassar, als beestewagter in sijn plaats gelegt, maar ook den gevangen tot twee maalen toe deerlijk geslagen; ende hij gevangen vervolgens in de maand Junij jongstleeden door voormelde sijn lijfheer met eenig sogenaamt droog of gusvee weederom naar voormelde veeplaats gesonden geworden sijn, heeft hij gevangen, bij sijn aankomst aldaar, den slaaf Claas niet te huijs gevonden, weshalven den gevangen aldaar so lange vertoeft heeft, tot teegens ten avond, als wanneer gemelde Claas vanuijt het veld te huijs koomende, sig neevens den gevangen bij ’t vuur, dat hij gevangen hadde aangemaakt, heeft needergeset, ende vermits alsdoen geciteerde Claas over het slegt oppassen van hem gevangen nopens hun lijheers vee quam op te haalen, en hem diesweegen alderhande verwijtingen deed, alsmeede dat hij Claas uijt vuijlaardighijd de rondsom \[*sic*\] geleegene, en lange bevoorens verreckte en reets verantwoorde, beestehoorns vergadert, en die langs de muuren geschaart hadde, sijn sijlieden hierover in verschil en vervolgens handgemeen geraakt, bij ’twelke voormelde Claas, als reets oud en afgeleefd sijnde, onder te leggen quam, en alsdoen door den gevangen weeder los en opgelaten wierd; dog hij Claas hierop sijn kirrij opneemende en daarmeede naar den gevangen slaande, heeft hij gevangen dien slag afgeweert en, teffens toornig werdende, een stuck brandhout opgenoomen, en daarmeede eevengemelde Claas een ongeluckige slag aan de slinckersijde van sijn hooft toegebragt, waardoor hij Claas in duijseling op de grond needer viel, sig egter kort daarna weederom opregtende ten huijse uijt gong; ende hij gevangen alsdoen bevreest werdende dat dickwils gemelde Claas naar sijn lijfheer soude gaan klagen en hij gevangen alsdan opnieuws deerlijk soude geslaagen worden, heeft den gevangen sig oversulx, met het stuck brandhout in de hand, meede uijt het huijs begeeven, met voorneemen om, gemelde Claas vindende, denselven tot voorkoming dat niet over hem soude klagen, dood te slaan, ten welken eijnde, en om dit sijn quaat voorneemen ten uijtvoer te brengen, hij gevangen gemelde Claas in de, digt voorbij het huijs loopende, Duijvenhocrivier op sijn aangesicht op de klippen hebbende vinden leggen, denselven met het in de hand hebbende stuck brandhout soodanige een slag in de neck toegebragt dat daarvan so voort den geest gegeeven heeft, waarna den gevangen dat doode lighaam van uijt de rievier \[*sic*\] weg, en een weijnig op het land gesleept heeft; blijvende voorts ter voormelde plaatse bij het vee totdat des gevangens lijfheers zoon eenige dagen daarna aldaar koomende, en naar gerepte Claas vragende, hij gevangen den gepleegden doodslag van denselven heeft beleeden, en vervolgens in handen der justitie is overgeleevert geworden.
 
-Ende dewijl sulk een opsettelijke doodslag, in een land daar regt en de
-geregtighijd werd gehandhaaft, geensins kan nog mag gedult, maar
-daarenteegens ten spiegel en afschrik van andere diergelijke booswigten,
-exemplaarlijk moet werden gestraft.
+Ende dewijl sulk een opsettelijke doodslag, in een land daar regt en de geregtighijd werd gehandhaaft, geensins kan nog mag gedult, maar daarenteegens ten spiegel en afschrik van andere diergelijke booswigten, exemplaarlijk moet werden gestraft.
 
-So is ’t, dat den edelagtbaare Raad van Justitie, voormeld, ten dage
-diendende, met nadruck hebbende geleesen en overwoogen, den
-schriftelijken crimineelen eijsch ende conclusie door den Landdrost van
-Swellendam, sieur Jan Andries Horack, *ratione officii*, op ende jeegens
-den gevangen gedaan ende genomen, mitsgaders geleth op des gevangens
-vrijwillige, gerecolleerde confessie en andere stucken daarneevens
-gevoegt, voorts agt gegeeven te hebben op alle hetgeen ter saake
-dienende was en haar edelagtbaarens eenigsints konde doen moveeren, regt
-doende uijt naame ende van weegens de hoogmogende Heeren Staaten
-Generaal der Vereenigde Neederlanden, mitsgaders van zijne doorlugtigste
-hoogheid, den Heeren Prince van Oranje en Nassouw, als Erfstadthouder,
-Capitain en Admiraal Generaal van de Republicq, den gevangen Neptunus
-van Bengalen hebben gecondemneert, gelijk haar edelagtbaarens denselven
-condemneeren mits deesen, om gebragt te werden ter plaatse alwaar men
-alhier gewoon is crimineele sententiën te executeeren, en aldaar aan den
-scherpregter overgeleevert sijnde, soodanig met de coorde aan de galg te
-worden gestraft dat er de dood naarvolgt, voorts desselfs doode lighaam
-weeder opgehangen sijnde, dus te verblijven totdat door de lugt ende
-vogelen des heemels sal sijn verteert, met condemnatie in de costen en
-misen van justitie.
+So is ’t, dat den edelagtbaare Raad van Justitie, voormeld, ten dage diendende, met nadruck hebbende geleesen en overwoogen, den schriftelijken crimineelen eijsch ende conclusie door den Landdrost van Swellendam, sieur Jan Andries Horack, *ratione officii*, op ende jeegens den gevangen gedaan ende genomen, mitsgaders geleth op des gevangens vrijwillige, gerecolleerde confessie en andere stucken daarneevens gevoegt, voorts agt gegeeven te hebben op alle hetgeen ter saake dienende was en haar edelagtbaarens eenigsints konde doen moveeren, regt doende uijt naame ende van weegens de hoogmogende Heeren Staaten Generaal der Vereenigde Neederlanden, mitsgaders van zijne doorlugtigste hoogheid, den Heeren Prince van Oranje en Nassouw, als Erfstadthouder, Capitain en Admiraal Generaal van de Republicq, den gevangen Neptunus van Bengalen hebben gecondemneert, gelijk haar edelagtbaarens denselven condemneeren mits deesen, om gebragt te werden ter plaatse alwaar men alhier gewoon is crimineele sententiën te executeeren, en aldaar aan den scherpregter overgeleevert sijnde, soodanig met de coorde aan de galg te worden gestraft dat er de dood naarvolgt, voorts desselfs doode lighaam weeder opgehangen sijnde, dus te verblijven totdat door de lugt ende vogelen des heemels sal sijn verteert, met condemnatie in de costen en misen van justitie.
 
-Aldus gedaan ende gesententieert in ’t Casteel de Goede Hoop, den 27^e^
-September 1753, mitsgaders gepronuntieert ende geëxecuteerd den 29^e^
-daaraanvolgende.
+Aldus gedaan ende gesententieert in ’t Casteel de Goede Hoop, den 27^e^ September 1753, mitsgaders gepronuntieert ende geëxecuteerd den 29^e^ daaraanvolgende.
 
 Fiat Executie, \[get.\] R. Tulbagh.
 
@@ -105,110 +20,22 @@ Fiat Executie, \[get.\] R. Tulbagh.
 
 TRANSLATION
 
-As Neptunus van Bengalen, slave of the former *heemraad* Philip du
-Preez, 36 years old at a guess, currently their honours’ prisoner,
-willingly confessed, without torture or coercion of bonds, of irons, or
-even the least threat of suchlike, and as it has also appeared evident
-to the honourable Council of Justice of this government:
+As Neptunus van Bengalen, slave of the former *heemraad* Philip du Preez, 36 years old at a guess, currently their honours’ prisoner, willingly confessed, without torture or coercion of bonds, of irons, or even the least threat of suchlike, and as it has also appeared evident to the honourable Council of Justice of this government:
 
-That the prisoner was assigned to stay by himself for some time on his
-owner’s stock farm, named De Klipkrans, in order to look after the
-livestock, and had to stay with them day and night in the veld during
-bad weather and heavy rain. The prisoner, forced by the severe cold and
-since, as he asserts, being almost stark naked and without clothes,
-sheltered behind some bushes and made a little fire, during which time
-the stock wandered off and some of them went missing. The prisoner’s
-owner, because of this reason, and also because the prisoner had not
-performed to his satisfaction, not only took him away from the aforesaid
-stock farm and brought him to his home farm, while leaving another slave
-by the name of Claas van Macassar as cattle herder in his place, but
-also miserably beat the prisoner twice. Later on, during the month of
-June this year, the prisoner was again sent by his aforementioned owner
-to the aforesaid stock farm with some so-called dry or barren stock. At
-his arrival there, the prisoner did not find the slave Claas at home,
-which is why he waited at that place until the evening, when the said
-Claas came home from the field and sat down next to the prisoner at the
-fire which the prisoner had made. And as the aforesaid Claas then
-started to rake up the story of his faulty looking-after of his owner’s
-livestock and to upbraid him in all manner about it, and also since he,
-Claas, because of his filthy nature, had collected and arranged along
-the walls the horns of cattle, which had been lying around there and had
-long ago died and been accounted for; they started to disagree about
-these matters[^2] and eventually came to blows; during which the
-aforementioned Claas, being already old and decrepit, came to lie down,
-at which point the prisoner freed him and let him loose. Yet, when Claas
-took up his *kirrij* and hit in the direction of the prisoner, he warded
-off the blow and, at the same time getting angry, took up a piece of
-firewood and dealt the aforementioned Claas an unfortunate blow to the
-left side of his head with it, which caused Claas to fall down with
-dizziness to the ground, although he lifted himself up soon after this
-and went out of the house. And as the prisoner then became afraid that
-the aforementioned Claas would go to his owner and complain, and that
-the prisoner would once again be miserably beaten, he therefore, with
-the piece of firewood in his hand, also went out of the house with the
-design to beat to death the said Claas when he found him, in order to
-prevent him from complaining; to which end, and in order to effect this
-wicked design of his, he, upon finding the said Claas lying face down on
-the stones in the Duivenhokrivier, which ran close by the house, gave
-the same such a blow to the neck with the piece of firewood he was
-holding in his hand, that he instantly died. After which the prisoner
-dragged that dead body from the river and some way onto the land;
-remaining at the aforesaid farm with the stock until the son of the
-prisoner’s owner came there a few days later and, asking after the said
-Claas, the prisoner confessed to having perpetrated the murder of the
-same, and was accordingly delivered into the hands of justice.
+That the prisoner was assigned to stay by himself for some time on his owner’s stock farm, named De Klipkrans, in order to look after the livestock, and had to stay with them day and night in the veld during bad weather and heavy rain. The prisoner, forced by the severe cold and since, as he asserts, being almost stark naked and without clothes, sheltered behind some bushes and made a little fire, during which time the stock wandered off and some of them went missing. The prisoner’s owner, because of this reason, and also because the prisoner had not performed to his satisfaction, not only took him away from the aforesaid stock farm and brought him to his home farm, while leaving another slave by the name of Claas van Macassar as cattle herder in his place, but also miserably beat the prisoner twice. Later on, during the month of June this year, the prisoner was again sent by his aforementioned owner to the aforesaid stock farm with some so-called dry or barren stock. At his arrival there, the prisoner did not find the slave Claas at home, which is why he waited at that place until the evening, when the said Claas came home from the field and sat down next to the prisoner at the fire which the prisoner had made. And as the aforesaid Claas then started to rake up the story of his faulty looking-after of his owner’s livestock and to upbraid him in all manner about it, and also since he, Claas, because of his filthy nature, had collected and arranged along the walls the horns of cattle, which had been lying around there and had long ago died and been accounted for; they started to disagree about these matters[^2] and eventually came to blows; during which the aforementioned Claas, being already old and decrepit, came to lie down, at which point the prisoner freed him and let him loose. Yet, when Claas took up his *kirrij* and hit in the direction of the prisoner, he warded off the blow and, at the same time getting angry, took up a piece of firewood and dealt the aforementioned Claas an unfortunate blow to the left side of his head with it, which caused Claas to fall down with dizziness to the ground, although he lifted himself up soon after this and went out of the house. And as the prisoner then became afraid that the aforementioned Claas would go to his owner and complain, and that the prisoner would once again be miserably beaten, he therefore, with the piece of firewood in his hand, also went out of the house with the design to beat to death the said Claas when he found him, in order to prevent him from complaining; to which end, and in order to effect this wicked design of his, he, upon finding the said Claas lying face down on the stones in the Duivenhokrivier, which ran close by the house, gave the same such a blow to the neck with the piece of firewood he was holding in his hand, that he instantly died. After which the prisoner dragged that dead body from the river and some way onto the land; remaining at the aforesaid farm with the stock until the son of the prisoner’s owner came there a few days later and, asking after the said Claas, the prisoner confessed to having perpetrated the murder of the same, and was accordingly delivered into the hands of justice.
 
-And while such a wilful murder cannot be, nor should be, tolerated in a
-country where law and justice are upheld, but on the contrary must be
-punished as an example and deterrent to other similarly inclined
-malefactors.
+And while such a wilful murder cannot be, nor should be, tolerated in a country where law and justice are upheld, but on the contrary must be punished as an example and deterrent to other similarly inclined malefactors.
 
-Thus it is, that the aforementioned honourable Council of Justice,
-serving today, having read and considered with attention the written
-*crimineelen eijsch ende conclusie* drawn up and delivered for and
-against the prisoner by the landdrost of Swellendam, *Sieur* Jan Andries
-Horack, by reason of his office, as well as having noted the prisoner’s
-voluntary, verified confession and the other evidence produced with it,
-further having considered everything serving the case which could
-possibly have moved their honours, practising justice in the name and on
-behalf of the high and mighty Lords States General of the United
-Netherlands, as also of his most serene highness the Lord Prince of
-Orange and Nassouw, as hereditary Stadtholder, Captain and Admiral
-General of the Republic, having judged the prisoner Neptunus van
-Bengalen, is sentencing him with this: to be taken to the place where
-criminal justice is usually executed here, there to be handed over to
-the executioner, to be punished in such a way with the rope on the
-gallows that death will follow, whereupon the same’s dead body is yet
-again to be hanged, to remain thus until consumed by the air and the
-birds of heaven, with sentencing to the costs and expenditure of
-justice.
+Thus it is, that the aforementioned honourable Council of Justice, serving today, having read and considered with attention the written *crimineelen eijsch ende conclusie* drawn up and delivered for and against the prisoner by the landdrost of Swellendam, *Sieur* Jan Andries Horack, by reason of his office, as well as having noted the prisoner’s voluntary, verified confession and the other evidence produced with it, further having considered everything serving the case which could possibly have moved their honours, practising justice in the name and on behalf of the high and mighty Lords States General of the United Netherlands, as also of his most serene highness the Lord Prince of Orange and Nassouw, as hereditary Stadtholder, Captain and Admiral General of the Republic, having judged the prisoner Neptunus van Bengalen, is sentencing him with this: to be taken to the place where criminal justice is usually executed here, there to be handed over to the executioner, to be punished in such a way with the rope on the gallows that death will follow, whereupon the same’s dead body is yet again to be hanged, to remain thus until consumed by the air and the birds of heaven, with sentencing to the costs and expenditure of justice.
 
-Thus done and sentenced in the Castle of Good Hope on 27 September 1753,
-as also pronounced and executed on the 29^th^ thereupon.[^3]
+Thus done and sentenced in the Castle of Good Hope on 27 September 1753, as also pronounced and executed on the 29^th^ thereupon.[^3]
 
 Let the sentence be done, \[signed\] R. Tulbagh.
 
 and 13 others.
 
-[^1]: * Cattle posts were by this period usually converted to loan farms
-    granted to settlers in the pastoral frontier regions (Duly
-    1968:15-20; Guelke 1974: 216-21; Mitchell 2001: 125-28; and Schoeman
-    2004: 285-306).*
+[^1]: * Cattle posts were by this period usually converted to loan farms granted to settlers in the pastoral frontier regions (Duly 1968:15-20; Guelke 1974: 216-21; Mitchell 2001: 125-28; and Schoeman 2004: 285-306).*
 
-[^2]:  It is not clear whether Neptune took this as a provocative
-    indication by Claas of his negligence or inadequacy at his job of
-    looking after the cattle, or whether it had some cultural, even
-    ritualistic, significance. Either way, it led to conflict between
-    them.
+[^2]:  It is not clear whether Neptune took this as a provocative indication by Claas of his negligence or inadequacy at his job of looking after the cattle, or whether it had some cultural, even ritualistic, significance. Either way, it led to conflict between them.
 
-[^3]:  Neptune van Bengalen was sentenced for ‘opsettelijk gepleegde
-    doodslag’ (wilfully committed homicide). He stated, ‘voorts van den
-    doodslagenen slaaf Claas niet anders genoomen te hebben, als
-    desselfs tonteldoos en vuurslag, dat neevens hem op de grond lag’
-    (further, that he had not taken anything from the beaten-to-death
-    slave Claas, other than his steel and tinder, which were lying next
-    to him on the ground), CJ 35, ff. 101-4. This was the sentence
-    recommended in the *eijsch,* CJ 361, f. 356. The testimonies of
-    Neptunus van Bengalen and Johannes Lodewijk du Pre, as well as those
-    of Louis Fourie senior and Willem Meijer, who found Claas’s body,
-    are in CJ 361, ff. 357-63.
+[^3]:  Neptune van Bengalen was sentenced for ‘opsettelijk gepleegde doodslag’ (wilfully committed homicide). He stated, ‘voorts van den doodslagenen slaaf Claas niet anders genoomen te hebben, als desselfs tonteldoos en vuurslag, dat neevens hem op de grond lag’ (further, that he had not taken anything from the beaten-to-death slave Claas, other than his steel and tinder, which were lying next to him on the ground), CJ 35, ff. 101-4. This was the sentence recommended in the *eijsch,* CJ 361, f. 356. The testimonies of Neptunus van Bengalen and Johannes Lodewijk du Pre, as well as those of Louis Fourie senior and Willem Meijer, who found Claas’s body, are in CJ 361, ff. 357-63. 

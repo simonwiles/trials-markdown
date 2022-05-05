@@ -1,204 +1,53 @@
 # JEPHTA VAN DE CAAB
 
-*The sixteen-year-old slave Jephta caused great affront when he pushed
-his way through the crowd of high-ranking Company officials at the
-entrance to the church, to bring his master his coat. The episode gives
-an unusual glimpse of the duties of the private slave of officials and
-their sensitivity to their dignity.[^1] It moreover illustrates
-how sensitive contemporary society was to issues of rank and
-status.[^2] Jephta was charged with insolence and publicly
-whipped.*[^3]
+*The sixteen-year-old slave Jephta caused great affront when he pushed his way through the crowd of high-ranking Company officials at the entrance to the church, to bring his master his coat. The episode gives an unusual glimpse of the duties of the private slave of officials and their sensitivity to their dignity.[^1] It moreover illustrates how sensitive contemporary society was to issues of rank and status.[^2] Jephta was charged with insolence and publicly whipped.*[^3]
 
-*The case had an extraordinary aftermath, as on the afternoon of the
-event Jephta’s mistress, Martha Solliers, went to the fiscal’s house and
-verbally abused him for arresting her slave. This resulted in a
-long-drawn-out civil case in which the fiscal sued her for insulting his
-person and office.*[^4]
+*The case had an extraordinary aftermath, as on the afternoon of the event Jephta’s mistress, Martha Solliers, went to the fiscal’s house and verbally abused him for arresting her slave. This resulted in a long-drawn-out civil case in which the fiscal sued her for insulting his person and office.*[^4]
 
 **CJ 788** Sententiën, 1750-1755, ff. 179-183.
 
-Also het den edelagtbaren Raad van Justitie deeses gouvernements, so
-uijt den door den heer Independent Fiscaal Pieter Reede van Oudshoorn
-overgeleeverden schriftelijken eijsch, als de in judicio gedaane
-bekentenisse door Jephta van de Caab, lijfeijgen van den eersten
-oppermeester deeses hospitaal, sieur Bartho de St. Jean, oud naar
-gissing 16 jaaren, thans ’s heeren gevangen, volkoomen is gebleeken:
+Also het den edelagtbaren Raad van Justitie deeses gouvernements, so uijt den door den heer Independent Fiscaal Pieter Reede van Oudshoorn overgeleeverden schriftelijken eijsch, als de in judicio gedaane bekentenisse door Jephta van de Caab, lijfeijgen van den eersten oppermeester deeses hospitaal, sieur Bartho de St. Jean, oud naar gissing 16 jaaren, thans ’s heeren gevangen, volkoomen is gebleeken:
 
-Dat op Sondag, sijnde geweest den 4^e^ deeser lopenden maand Augustus,
-wanneer den heer Fiscaal, neevens de verdere kerckgemeente ’s
-voordemiddaags, naar volbragte Godsdienst, uijt ’s Heeren huijs alhier,
-sig naar huijs wilde begeeven, en neevens geciteerde gemeente ook reets
-tot aan ’t binnen portaal van de kerk gekoomen was, den gevangen, met
-een jas en een hand sommereel voorsien weesende, heeft kunnen goed
-vinden tusschen den heer Fiscaal ende sommige der meede, ende neevens
-sijn edele tegelijk uijt de kerck gaande, principaale heeren deeser
-regeering ende derselver huijsvrouwen, alsook een meenigte van andere
-juffrouwen, met veel onbeschofthijd, en genoegsaam met forie ofte
-geweld, sig selven tot in de kerck door te dringen, weshalven dan den
-heer Fiscaal, als in ’t eerste denkende dat deese door den gevangen
-gedaan werdende onbeschofte indringinge, uijt enkelde onnoselhijd gedaan
-wierd, hem gevangen, onder ’t seggen: Schrob je ter kerck uijt, van sig
-stiet, in verwagting dat den gevangen daaraan schuldpligtig soude hebben
-gehoorsaamt, dog ’t is daar soo verre vandaan gebleeven, dat den
-gevangen daarop niet alleen voor de tweede maal teegens geciteerde heer
-Fiscaal met een en deselve assurantie, en wesweegens door sijn edele dan
-ook aan denselven een stoot met de rottang gegeeven wierd, is koomen in
-te dringen, maar dat hij ook, terwijl ter sijde van den heer Fiscaal
-door hem geen middel van doordringen gevonden wierd, sijn kans ter
-assuranter indringinge in de kerck op de andere sijde van ’t portaal
-heeft willen waagen, ende hierop bij den heer Fiscaal gesien werdende,
-dat door des gevangens extra ordinaire onbeschofthijd, de uijtgaande
-kerckgemeente seer geërgert wierd, en oversulx door sijn edele aan de
-gemeente gesegt werdende dat sijlieden dien knaap ter kerck moesten doen
-uijtgaan, so heeft den gevangen eijndelijk ook sig nog wel so verre
-derven vervorderen van de heer Fiscaal eeven assurantelijk toe te
-snaauwen: Wel, moet ik de jas van mijn sinjeur niet brengen?; van welke
-assurantie hij gevangen egter op ’t laatste, wanneer van den heer
-Fiscaal publiquelijk hoorde dat hem gevangen strackjes wel vinden en met
-een kaffer naar de tronck soude doen brengen, tot andere gedagten quam,
-alsoo hij gevangen alsdoen, met een seer schielijk opsettend huijlend
-gelaat, aan welgemelde heer Fiscaal, onder belofte van sulx nooijt meer
-te sullen doen, om vergiffenis bad, dog waarmeede sijn edele, als sijnde
-niet alleen, maar ook de kerkgemeente, door sulken vilen schurck
-grootlijks ontstelt geworden, sig geensints kunnende vergenoegen, den
-gevangenen vervolgens heeft doen apprehendeeren en in de boeijen laaten
-brengen.
+Dat op Sondag, sijnde geweest den 4^e^ deeser lopenden maand Augustus, wanneer den heer Fiscaal, neevens de verdere kerckgemeente ’s voordemiddaags, naar volbragte Godsdienst, uijt ’s Heeren huijs alhier, sig naar huijs wilde begeeven, en neevens geciteerde gemeente ook reets tot aan ’t binnen portaal van de kerk gekoomen was, den gevangen, met een jas en een hand sommereel voorsien weesende, heeft kunnen goed vinden tusschen den heer Fiscaal ende sommige der meede, ende neevens sijn edele tegelijk uijt de kerck gaande, principaale heeren deeser regeering ende derselver huijsvrouwen, alsook een meenigte van andere juffrouwen, met veel onbeschofthijd, en genoegsaam met forie ofte geweld, sig selven tot in de kerck door te dringen, weshalven dan den heer Fiscaal, als in ’t eerste denkende dat deese door den gevangen gedaan werdende onbeschofte indringinge, uijt enkelde onnoselhijd gedaan wierd, hem gevangen, onder ’t seggen: Schrob je ter kerck uijt, van sig stiet, in verwagting dat den gevangen daaraan schuldpligtig soude hebben gehoorsaamt, dog ’t is daar soo verre vandaan gebleeven, dat den gevangen daarop niet alleen voor de tweede maal teegens geciteerde heer Fiscaal met een en deselve assurantie, en wesweegens door sijn edele dan ook aan denselven een stoot met de rottang gegeeven wierd, is koomen in te dringen, maar dat hij ook, terwijl ter sijde van den heer Fiscaal door hem geen middel van doordringen gevonden wierd, sijn kans ter assuranter indringinge in de kerck op de andere sijde van ’t portaal heeft willen waagen, ende hierop bij den heer Fiscaal gesien werdende, dat door des gevangens extra ordinaire onbeschofthijd, de uijtgaande kerckgemeente seer geërgert wierd, en oversulx door sijn edele aan de gemeente gesegt werdende dat sijlieden dien knaap ter kerck moesten doen uijtgaan, so heeft den gevangen eijndelijk ook sig nog wel so verre derven vervorderen van de heer Fiscaal eeven assurantelijk toe te snaauwen: Wel, moet ik de jas van mijn sinjeur niet brengen?; van welke assurantie hij gevangen egter op ’t laatste, wanneer van den heer Fiscaal publiquelijk hoorde dat hem gevangen strackjes wel vinden en met een kaffer naar de tronck soude doen brengen, tot andere gedagten quam, alsoo hij gevangen alsdoen, met een seer schielijk opsettend huijlend gelaat, aan welgemelde heer Fiscaal, onder belofte van sulx nooijt meer te sullen doen, om vergiffenis bad, dog waarmeede sijn edele, als sijnde niet alleen, maar ook de kerkgemeente, door sulken vilen schurck grootlijks ontstelt geworden, sig geensints kunnende vergenoegen, den gevangenen vervolgens heeft doen apprehendeeren en in de boeijen laaten brengen.
 
-Ende nademaal sulke gepleegde assurantiën en stoutmoedige brutaliteijten
-geensints te dulden sijn, maar, tot een afschrick van andere diergelijke
-vile schurken, exemplaarlijk moeten werden gestraft.
+Ende nademaal sulke gepleegde assurantiën en stoutmoedige brutaliteijten geensints te dulden sijn, maar, tot een afschrick van andere diergelijke vile schurken, exemplaarlijk moeten werden gestraft.
 
-So is ’t, dat den edelagtbaren Raad van Justitie, voormelt, ten dage
-dienende, met aandagt geleesen en geresumeert hebbende den
-schriftelijken crimineelen eijsch ende conclusie door den heer
-Independent Fiscaal, Pieter Reede van Oudshoorn, *nomine officii*, op
-ende jeegens den gevangen gedaan en genoomen, wijders geleth op des
-gevangens vrijwillige bekentenisse, voorts op alles wat ter saake
-dienende was en haar edelagtbarens konde doen moveeren, doende regt uijt
-naame ende van weegens de hoogmogende heeren Staaten Generaal der
-Vereenigde Neederlande, mitsgaders van sijne doorlugtigste hoogheid, den
-Heere Prince van Oranjen en Nassouw, als Erfstadthouder, Capitain en
-Admiraal Generaal van de Republicq, den gevangen Jephta van de Caab
-hebben gecondemneert, gelijk haar edelagtbaarens denselven condemneeren
-mits deesen: om gebragt te werden ter plaatse alwaar men alhier gewoon
-is crimineele sententiën te executeeren, aldaar den scherpregter
-overgeleevert en aan een paal gebonden sijnde, met roede op de bloote
-rugge strengelijk gegeeselt, en dus sijn lijfheer weederom te huijs
-gesonden te werden, mits denselven betaalende de costen en misen van
-justitie, ontseggende den Raad den verderen eijsch van den heer
-Officier.
+So is ’t, dat den edelagtbaren Raad van Justitie, voormelt, ten dage dienende, met aandagt geleesen en geresumeert hebbende den schriftelijken crimineelen eijsch ende conclusie door den heer Independent Fiscaal, Pieter Reede van Oudshoorn, *nomine officii*, op ende jeegens den gevangen gedaan en genoomen, wijders geleth op des gevangens vrijwillige bekentenisse, voorts op alles wat ter saake dienende was en haar edelagtbarens konde doen moveeren, doende regt uijt naame ende van weegens de hoogmogende heeren Staaten Generaal der Vereenigde Neederlande, mitsgaders van sijne doorlugtigste hoogheid, den Heere Prince van Oranjen en Nassouw, als Erfstadthouder, Capitain en Admiraal Generaal van de Republicq, den gevangen Jephta van de Caab hebben gecondemneert, gelijk haar edelagtbaarens denselven condemneeren mits deesen: om gebragt te werden ter plaatse alwaar men alhier gewoon is crimineele sententiën te executeeren, aldaar den scherpregter overgeleevert en aan een paal gebonden sijnde, met roede op de bloote rugge strengelijk gegeeselt, en dus sijn lijfheer weederom te huijs gesonden te werden, mits denselven betaalende de costen en misen van justitie, ontseggende den Raad den verderen eijsch van den heer Officier.
 
-Aldus gedaan ende gesententieert in ’t Casteel de Goede Hoop, den 15^e^
-Augustus 1754, mitsgaders gepronuncieert ende geëxecuteert den 7^e^ der
-daaraanvolgende maand September.
+Aldus gedaan ende gesententieert in ’t Casteel de Goede Hoop, den 15^e^ Augustus 1754, mitsgaders gepronuncieert ende geëxecuteert den 7^e^ der daaraanvolgende maand September.
 
 Fiat Executie, \[get.\] R. Tulbagh.
 
-\[get.\] S. Swellengrebel, J. Meinertzhagen, Ns. Heijning, Cl. Brand,
-Corns. Eelders, D. d’Aillij, Jn. Raeck.
+\[get.\] S. Swellengrebel, J. Meinertzhagen, Ns. Heijning, Cl. Brand, Corns. Eelders, D. d’Aillij, Jn. Raeck.
 
 Mij present, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
 
 TRANSLATION
 
-Since, from both the written *eijsch* supplied by the honourable
-independent fiscal, Pieter Reede van Oudshoorn, as well as the
-confession made in court by Jephta van de Caab, bondsman of the first
-chief surgeon of the hospital here, *sieur* Bartho de St. Jean, 16 years
-old at a guess, currently their honours’ prisoner, it has appeared
-evident to the honourable Council of Justice of this governement:
+Since, from both the written *eijsch* supplied by the honourable independent fiscal, Pieter Reede van Oudshoorn, as well as the confession made in court by Jephta van de Caab, bondsman of the first chief surgeon of the hospital here, *sieur* Bartho de St. Jean, 16 years old at a guess, currently their honours’ prisoner, it has appeared evident to the honourable Council of Justice of this governement:
 
-That on the morning of Sunday, which was the 4^th^ of this current month
-August, after the service had been concluded, when the honourable
-fiscal, together with the rest of the church congregation, wanted to
-proceed home from the Lord’s house here, and had already, along with the
-said congregation, got to the inside portal of the church: the prisoner,
-provided with a coat and parasol, thought it good to push between – with
-much rudeness and almost with force or fury – the honourable fiscal and
-some of his fellow principal lords of this government,[^5] and their
-wives as well as a throng of other *juffrouwen*, who were all leaving
-the church together, into the church, on account of which the honourable
-fiscal then, thinking at first that this rude intrusion performed by the
-prisoner was done purely out of ignorance, pushed the prisoner from him,
-while saying: “Scoundrel, get out of the church!”, expecting that the
-prisoner would guiltily obey this, but far from it. That the prisoner
-thereupon, not only for the second time pushed against the said
-honourable fiscal with one and the same insolence, and for which he was
-given a blow by his honour with his cane, but that he also, since he
-could not find any space to push through at the side of the honourable
-fiscal, insolently dared to attempt entering the church on the other
-side of the portal, but was seen doing this by the honourable fiscal.
-That the congregation leaving the church was much annoyed by the
-extraordinary rudeness of the prisoner, and therefore the congregation
-was told by his honour that they must let this boy go out of the church,
-but the prisoner finally dared to go so far by also snarling, very
-insolently: “Well, must I not bring the coat of my *sinjeur*?”; which
-insolence, however, the prisoner came to regret in the end when he heard
-publicly from the honourable fiscal that he would soon be found and
-brought to prison by a *caffer*, as the prisoner then very suddenly,
-with a tearful countenance, prayed for forgiveness from the
-aforementioned honourable fiscal, while promising never to do this
-again, but with which his honour – since it was not only him alone but
-also the church congregation who got greatly distressed by such a vile
-scoundrel – can in no ways be content, and then had the prisoner
-apprehended and riveted in chains.
+That on the morning of Sunday, which was the 4^th^ of this current month August, after the service had been concluded, when the honourable fiscal, together with the rest of the church congregation, wanted to proceed home from the Lord’s house here, and had already, along with the said congregation, got to the inside portal of the church: the prisoner, provided with a coat and parasol, thought it good to push between – with much rudeness and almost with force or fury – the honourable fiscal and some of his fellow principal lords of this government,[^5] and their wives as well as a throng of other *juffrouwen*, who were all leaving the church together, into the church, on account of which the honourable fiscal then, thinking at first that this rude intrusion performed by the prisoner was done purely out of ignorance, pushed the prisoner from him, while saying: “Scoundrel, get out of the church!”, expecting that the prisoner would guiltily obey this, but far from it. That the prisoner thereupon, not only for the second time pushed against the said honourable fiscal with one and the same insolence, and for which he was given a blow by his honour with his cane, but that he also, since he could not find any space to push through at the side of the honourable fiscal, insolently dared to attempt entering the church on the other side of the portal, but was seen doing this by the honourable fiscal. That the congregation leaving the church was much annoyed by the extraordinary rudeness of the prisoner, and therefore the congregation was told by his honour that they must let this boy go out of the church, but the prisoner finally dared to go so far by also snarling, very insolently: “Well, must I not bring the coat of my *sinjeur*?”; which insolence, however, the prisoner came to regret in the end when he heard publicly from the honourable fiscal that he would soon be found and brought to prison by a *caffer*, as the prisoner then very suddenly, with a tearful countenance, prayed for forgiveness from the aforementioned honourable fiscal, while promising never to do this again, but with which his honour – since it was not only him alone but also the church congregation who got greatly distressed by such a vile scoundrel – can in no ways be content, and then had the prisoner apprehended and riveted in chains.
 
-And since insolencies and bold brutalities like the ones committed can
-under no circumstances be tolerated, but should be punished exemplarily
-as a deterrent to other similar vile scoundrels.
+And since insolencies and bold brutalities like the ones committed can under no circumstances be tolerated, but should be punished exemplarily as a deterrent to other similar vile scoundrels.
 
-Thus it is that honourable Council of Justice, aforementioned, serving
-today, having seen and read with attention the written *crimineelen
-eijsch ende conclusie*, drawn up and delivered for and against the
-prisoner by the honourable independent fiscal, Pieter Reede van
-Oudshoorn, in his official capacity; moreover, having noted the
-voluntary confession of the prisoner and further everything else which
-served the case and could have moved their honours, practising justice
-in the name and on behalf of the high and mighty Lords States General of
-the United Netherlands, as well as his most serene highness, the Lord
-Prince of Orange and Nassouw, as hereditary Stadholder, Captain and
-Admiral General of the Republic, and having judged the prisoner Jephta
-van de Caab, is sentencing him with this: to be taken to the place where
-criminal sentences are usually executed here, there to be handed over to
-the executioner and to be tied to a stake, to be severely scourged with
-rods on his bare back and thus to be sent back home again to his owner,
-on condition that the same pays the costs and expenditure of justice;
-the Council denying the further *eijsch* of the honourable
-officer.[^6]
+Thus it is that honourable Council of Justice, aforementioned, serving today, having seen and read with attention the written *crimineelen eijsch ende conclusie*, drawn up and delivered for and against the prisoner by the honourable independent fiscal, Pieter Reede van Oudshoorn, in his official capacity; moreover, having noted the voluntary confession of the prisoner and further everything else which served the case and could have moved their honours, practising justice in the name and on behalf of the high and mighty Lords States General of the United Netherlands, as well as his most serene highness, the Lord Prince of Orange and Nassouw, as hereditary Stadholder, Captain and Admiral General of the Republic, and having judged the prisoner Jephta van de Caab, is sentencing him with this: to be taken to the place where criminal sentences are usually executed here, there to be handed over to the executioner and to be tied to a stake, to be severely scourged with rods on his bare back and thus to be sent back home again to his owner, on condition that the same pays the costs and expenditure of justice; the Council denying the further *eijsch* of the honourable officer.[^6]
 
-Thus done and sentenced in the Castle of Good Hope on 15 August 1754, as
-also pronounced and executed on the 7^th\ ^of the following month
-September.
+Thus done and sentenced in the Castle of Good Hope on 15 August 1754, as also pronounced and executed on the 7^th\ ^of the following month September.
 
 Let the execution be done, \[signed\] R. Tulbagh.
 
-\[signed\] S. Swellengrebel, J. Meinertzhagen, Ns. Heijning, Cl. Brand,
-Corns. Eelders, D. d’Aillij, Jn. Raeck.
+\[signed\] S. Swellengrebel, J. Meinertzhagen, Ns. Heijning, Cl. Brand, Corns. Eelders, D. d’Aillij, Jn. Raeck.
 
 In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-[^1]: * Jephta was the slave of Bartho de St. Jean, long-standing chief
-    surgeon of the Company who had arrived at the Cape in 1719 and
-    served there until his death in 1763 (VOC 5732, ff. 22, 27, 30-9).
-    Unlike the burgher slaves or the Company slaves housed in the Lodge,
-    the slaves of Company officials were usually not listed in the
-    records and almost nothing is known about them (Shell 1994:
-    149-51).*
+[^1]: * Jephta was the slave of Bartho de St. Jean, long-standing chief surgeon of the Company who had arrived at the Cape in 1719 and served there until his death in 1763 (VOC 5732, ff. 22, 27, 30-9). Unlike the burgher slaves or the Company slaves housed in the Lodge, the slaves of Company officials were usually not listed in the records and almost nothing is known about them (Shell 1994: 149-51).*
 
 [^2]: * See on this, Ross 1999. *
 
-[^3]: * CJ 36, ff. 72-4. He begged forgiveness and said he would never
-    do such a thing again. *
+[^3]: * CJ 36, ff. 72-4. He begged forgiveness and said he would never do such a thing again. *
 
 [^4]: * CJ 848, ff. 67-8 and 74-5; CJ 1069, ff. 227-33.*
 
-[^5]:  Jephta had the misfortune of getting in the way of Baron Pieter
-    van Reede van Oudshoorn, who came to the Cape as independent fiscal
-    with the rank of *opperkoopman* in 1741. This office was the third
-    highest position at the Cape. In 1768 he became the successor to
-    Governor Rijk Tulbagh, but died before he could take up office (DSAB
-    II: 795). People left (and entered) the church according to rank,
-    with the governor going out first.
+[^5]:  Jephta had the misfortune of getting in the way of Baron Pieter van Reede van Oudshoorn, who came to the Cape as independent fiscal with the rank of *opperkoopman* in 1741. This office was the third highest position at the Cape. In 1768 he became the successor to Governor Rijk Tulbagh, but died before he could take up office (DSAB II: 795). People left (and entered) the church according to rank, with the governor going out first.
 
-[^6]:  The *eijsch* had recommended that Jephta also be sent to work in
-    chains at the public works for five years, CJ 363, f. 331.
+[^6]:  The *eijsch* had recommended that Jephta also be sent to work in chains at the public works for five years, CJ 363, f. 331. 

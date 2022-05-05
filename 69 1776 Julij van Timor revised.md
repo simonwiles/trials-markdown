@@ -1,109 +1,24 @@
 # JULIJ VAN TIMOR
 
-*Julij van Timor[^1] stole items from his owner’s bedroom at night
-and then attacked other members of the family, slaves and a *knecht* who
-tried to apprehend him. He had been recently purchased in order to do
-blacksmith work on the farm, under the unusual arrangement that he could
-be returned if he did not prove satisfactory.[^2] *
+*Julij van Timor[^1] stole items from his owner’s bedroom at night and then attacked other members of the family, slaves and a *knecht* who tried to apprehend him. He had been recently purchased in order to do blacksmith work on the farm, under the unusual arrangement that he could be returned if he did not prove satisfactory.[^2] *
 
-*Julij fled after these events and was only recaptured several days
-later on the beach in Cape Town.[^3] Although the events took
-place in April, some of the testimonies were only collected several
-weeks later and sentence was not passed until August.[^4] *
+*Julij fled after these events and was only recaptured several days later on the beach in Cape Town.[^3] Although the events took place in April, some of the testimonies were only collected several weeks later and sentence was not passed until August.[^4] *
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
 
-Relaas gegeven, ter requisitie van den heer landdrost, Marthinus
-Adrianus Bergh, door den burger Johan Hendrik Ehlers, van competenten
-ouderdom, zijnde van den volgende inhoud, namentlijk:
+Relaas gegeven, ter requisitie van den heer landdrost, Marthinus Adrianus Bergh, door den burger Johan Hendrik Ehlers, van competenten ouderdom, zijnde van den volgende inhoud, namentlijk:
 
-Dat den relatant, nu omtrent vijf maanden geleeden, een slaaf, in naame
-Julij van Timor, van den burger aan Cabo, Coenraad Eb, voor de somma van
-een hondert seven en negentig rijksdaalders gekogt hebbende, onder
-conditie dat den relatant gemelde slaaf vier à vijf maanden op de proef
-konden houden en wanneer denselven hem niet mogte aanstaan, alsdan
-wederom aan opgemelde verkoper teruggeeven konde, mits betalende voor
-huur van gemelde jongen vier rijksdaalders per maand.
+Dat den relatant, nu omtrent vijf maanden geleeden, een slaaf, in naame Julij van Timor, van den burger aan Cabo, Coenraad Eb, voor de somma van een hondert seven en negentig rijksdaalders gekogt hebbende, onder conditie dat den relatant gemelde slaaf vier à vijf maanden op de proef konden houden en wanneer denselven hem niet mogte aanstaan, alsdan wederom aan opgemelde verkoper teruggeeven konde, mits betalende voor huur van gemelde jongen vier rijksdaalders per maand.
 
-Gemelde slaaf Julij zig bij den relatant wel gedragen had, tot laatst
-gepasseerde Zondag, den 31^e^ der even afgeweekene maand Maart, als
-wanneer den relatant, des avonds ten half negen uuren, naar bed gegaan
-zijnde, zonder eenig ’t minste onraad op zijn plaats te hebben vernomen,
-en zig met zijn voorsoontje, Jacobus Dafel[^5] (als zijnde ’s
-relatants huijsvrouw toen niet t’ huijs geweest), te slapen nedergelegd
-had, des nagt omtrent 12 uuren wakker was geworden, horende eenige
-beweeging alsof er iets in de kamer gesleept wierd, dat den relatant zig
-stil gehouden en een wijle tijds daarna iets hebbende horen vallen,
-alsof ’t een sleutel was; denselven zijnen gemelde soontje opgewekt en
-gesegd had de kaars, die voor ’t bed geset was op te steeken, dewelke
-opgestaan een \[*sic*\] geen kaars hebbende kunnen vinden, den relatant
-daarop eenige beweging aan de deur horende, alsof er iemand uit de kamer
-ging, zelfs opgestaan en door de combuijs naar buijten was gegaan,
-zonder iets te hebben vernomen.
+Gemelde slaaf Julij zig bij den relatant wel gedragen had, tot laatst gepasseerde Zondag, den 31^e^ der even afgeweekene maand Maart, als wanneer den relatant, des avonds ten half negen uuren, naar bed gegaan zijnde, zonder eenig ’t minste onraad op zijn plaats te hebben vernomen, en zig met zijn voorsoontje, Jacobus Dafel[^5] (als zijnde ’s relatants huijsvrouw toen niet t’ huijs geweest), te slapen nedergelegd had, des nagt omtrent 12 uuren wakker was geworden, horende eenige beweeging alsof er iets in de kamer gesleept wierd, dat den relatant zig stil gehouden en een wijle tijds daarna iets hebbende horen vallen, alsof ’t een sleutel was; denselven zijnen gemelde soontje opgewekt en gesegd had de kaars, die voor ’t bed geset was op te steeken, dewelke opgestaan een \[*sic*\] geen kaars hebbende kunnen vinden, den relatant daarop eenige beweging aan de deur horende, alsof er iemand uit de kamer ging, zelfs opgestaan en door de combuijs naar buijten was gegaan, zonder iets te hebben vernomen.
 
-Dat den relatant voorts een kaars opgestoken hebbende, alstoen had
-ontwaard dat ’t cabinet in gemelde slaapkamer openstond, en de daarin
-geborgene sleutels weggenomen waren, mitsgaders dat er een nieuwe velg
-tot een wagen wiel in ’t gemelde vertrek op den vloer leggende was;
-waarop hij relatant den, bij hem wonenden, wagenmaker, Jan Wagemakers
-\[*sic*\] genaamt, die in een buijtenkamer slapende was, geroept en hem
-sulx aangeweesen had,[^6] zij vervolgens naar ’t slaven[^7] waren
-gegaan om visitatie te doen, als zijnde den relatant in mening geweest
-dat de slavinne Eva van de Caab, die des avonds in de kamer het bed
-opgemaakt had, van dit geval iets weten, of zelfs handdadig weesen
-zouden; als wanneer gedagte slavinne Eva, nevens haren man Amsterdam van
-Mosambicque, uit hun bed gehaald en hun goed gevisiteerd geword zijnde,
-egter niets ontdekt geworden was; leggende voorseijde Julij, waarop nog
-geen vermoeden gevallen was, toen op zijn kooij needer alsof hij sliep.
-Waarna den relatant wederom naar desselfs slaapkamer, gelijk voornoemde
-Jan Wagemakers naar de zijne, gegaan weesende, hij relatant omtrent een
-half uur daarna eenig gestommel buijten horende, alsof er met een stok
-of kirrij op een aldaar staande watervat geslagen en om ’t huijs gelopen
-wierd, zig weder naar buijten had begeven, zonder nogthans iemand te
-hebben ontwaard; waarop den relatant zig wederom ter ruste nedergelegd
-hebbende, op ’t horen van een sware slag op de voordeur, alsof deselve
-ingeslagen wierd, weder buijtenwaards gegaan en voor de deur geroepen
-had, wie daar was, dog geen antwoord gekregen, nog iemand gesien had; op
-’twelke den relatant binnen gekomen en de deur toegeslooten hebbende, na
-verloop van een quartier uurs wederom op de deur, als voren, hoorende
-slaan, had gevraagd, wie daar was, ten antwoord bequam (s.v.):
-Moern.[^8], maak open!, waarop den relatant weder had gevraagd: Wie
-ben jij dan?, wierd g’antwoord: Hondejongen, maak open!, dat hij
-relatant daarop zijne kinders \[*sic*\] toegeroepen hebbende: Neemd een
-roer en schiet dat hem de damp de keel uitkomt! hij verder geen gewag
-aan de deur vernomen had. Dat den relatant vervolgens binnenshuijs
-gebleven zijnde en buijtenwaards eenig geschreeuw horende, den slaaf
-Alij, die in de combuijs was, naar buijten had doen gaan om te vernemen
-wat er te doen was, als wanneer voorseijde Jan Wagemakers binnen gekomen
-zijnde, den relatant verhaald had dat meergemelde slaaf Julij daar
-buijten beesig was geweest, die met een assegaaij naar ’t volk, dat
-intusschen opgestaan was gestoken had, hebbende denselven eerst des
-relatants voorsoon, Christoffel Dafel, onder ’t seggen, wat hij na hem
-quam kijken, op de borst gestoken, zonder hem nogthans te quetsen, wijl
-dat instrument stomp was geworden. Dat hij Julij voorts op meergemelde
-Jan Wagemakers ingekom zijnde, nadat hij gemelde Julij had gevraagd: Wat
-volk?, en: Wat er te doen was?, ook na gerepte Wagemakers gestoken had,
-terwijl denselven daarop gemelde Julij zodanig met een koornvork
-geslagen en gestoken had, dat meergemelde slaaf Julij, tot drie à vier
-malen, neder gevallen zijnde; egter zig zeer geswind ter vlugt
-wegbegeven had, zonder dat denselven, in ’t vervolgen en najagen, had
-kunne agterhaald werden. Wijders dat men des volgende morgens, ter
-plaats alwaar meergedagte Julij naar Christoffel Dafel met d’ assegaaij
-had gestoken, het mes van hem Julij in de sheur \[*sic*\] op den grond
-gevonden had.
+Dat den relatant voorts een kaars opgestoken hebbende, alstoen had ontwaard dat ’t cabinet in gemelde slaapkamer openstond, en de daarin geborgene sleutels weggenomen waren, mitsgaders dat er een nieuwe velg tot een wagen wiel in ’t gemelde vertrek op den vloer leggende was; waarop hij relatant den, bij hem wonenden, wagenmaker, Jan Wagemakers \[*sic*\] genaamt, die in een buijtenkamer slapende was, geroept en hem sulx aangeweesen had,[^6] zij vervolgens naar ’t slaven[^7] waren gegaan om visitatie te doen, als zijnde den relatant in mening geweest dat de slavinne Eva van de Caab, die des avonds in de kamer het bed opgemaakt had, van dit geval iets weten, of zelfs handdadig weesen zouden; als wanneer gedagte slavinne Eva, nevens haren man Amsterdam van Mosambicque, uit hun bed gehaald en hun goed gevisiteerd geword zijnde, egter niets ontdekt geworden was; leggende voorseijde Julij, waarop nog geen vermoeden gevallen was, toen op zijn kooij needer alsof hij sliep. Waarna den relatant wederom naar desselfs slaapkamer, gelijk voornoemde Jan Wagemakers naar de zijne, gegaan weesende, hij relatant omtrent een half uur daarna eenig gestommel buijten horende, alsof er met een stok of kirrij op een aldaar staande watervat geslagen en om ’t huijs gelopen wierd, zig weder naar buijten had begeven, zonder nogthans iemand te hebben ontwaard; waarop den relatant zig wederom ter ruste nedergelegd hebbende, op ’t horen van een sware slag op de voordeur, alsof deselve ingeslagen wierd, weder buijtenwaards gegaan en voor de deur geroepen had, wie daar was, dog geen antwoord gekregen, nog iemand gesien had; op ’twelke den relatant binnen gekomen en de deur toegeslooten hebbende, na verloop van een quartier uurs wederom op de deur, als voren, hoorende slaan, had gevraagd, wie daar was, ten antwoord bequam (s.v.): Moern.[^8], maak open!, waarop den relatant weder had gevraagd: Wie ben jij dan?, wierd g’antwoord: Hondejongen, maak open!, dat hij relatant daarop zijne kinders \[*sic*\] toegeroepen hebbende: Neemd een roer en schiet dat hem de damp de keel uitkomt! hij verder geen gewag aan de deur vernomen had. Dat den relatant vervolgens binnenshuijs gebleven zijnde en buijtenwaards eenig geschreeuw horende, den slaaf Alij, die in de combuijs was, naar buijten had doen gaan om te vernemen wat er te doen was, als wanneer voorseijde Jan Wagemakers binnen gekomen zijnde, den relatant verhaald had dat meergemelde slaaf Julij daar buijten beesig was geweest, die met een assegaaij naar ’t volk, dat intusschen opgestaan was gestoken had, hebbende denselven eerst des relatants voorsoon, Christoffel Dafel, onder ’t seggen, wat hij na hem quam kijken, op de borst gestoken, zonder hem nogthans te quetsen, wijl dat instrument stomp was geworden. Dat hij Julij voorts op meergemelde Jan Wagemakers ingekom zijnde, nadat hij gemelde Julij had gevraagd: Wat volk?, en: Wat er te doen was?, ook na gerepte Wagemakers gestoken had, terwijl denselven daarop gemelde Julij zodanig met een koornvork geslagen en gestoken had, dat meergemelde slaaf Julij, tot drie à vier malen, neder gevallen zijnde; egter zig zeer geswind ter vlugt wegbegeven had, zonder dat denselven, in ’t vervolgen en najagen, had kunne agterhaald werden. Wijders dat men des volgende morgens, ter plaats alwaar meergedagte Julij naar Christoffel Dafel met d’ assegaaij had gestoken, het mes van hem Julij in de sheur \[*sic*\] op den grond gevonden had.
 
-Laatstelijk, dat op gisteren, den 3^e^ deeser, ’s voormiddags, des
-relatants huijsvrouw, de uijt ’t cabinet vermiste sleutels in ’t
-slavenhuijs, boven de kooij van veelgemelde Julij, tusschen het, op de
-balken gestapeld, hout had gevonden.
+Laatstelijk, dat op gisteren, den 3^e^ deeser, ’s voormiddags, des relatants huijsvrouw, de uijt ’t cabinet vermiste sleutels in ’t slavenhuijs, boven de kooij van veelgemelde Julij, tusschen het, op de balken gestapeld, hout had gevonden.
 
-Anders niet relateerende, geeft de relatant voor reedenen van wetenschap
-als in den text, bereijd zijnde het voorenstaande, des vereischt
-werdende, met solmneelen eede nader te sullen gestand doen.
+Anders niet relateerende, geeft de relatant voor reedenen van wetenschap als in den text, bereijd zijnde het voorenstaande, des vereischt werdende, met solmneelen eede nader te sullen gestand doen.
 
-Aldus gerelateerd ter secretarije aan Stellenbosch, de 4^e^ April 1776,
-in ’t bijweesen van den bode Morits Herman Otto Woeke en den burger
-Hendrik Stoltenkamp, als getuijgen.
+Aldus gerelateerd ter secretarije aan Stellenbosch, de 4^e^ April 1776, in ’t bijweesen van den bode Morits Herman Otto Woeke en den burger Hendrik Stoltenkamp, als getuijgen.
 
 \[get.\] Johan Hendrik Ehlers.
 
@@ -113,242 +28,47 @@ In kennisse van mij, \[get.\] A. Faure, secretaris.
 
 **CJ 793** Sententiën, 1771-1776, ff. 270-85.
 
-Nademaal Julij van Boegies, slaaf van den burger Johan Hendrik Elers
-\[*sic*\], oud naar gissing ses en twintig jaaren, thans ’s heeren
-gevangen, vrijwillig beleeden heeft, en den edelagtbaare Raad van
-Justitie deeses gouvernements, uijt de verdere, ten processe gevoegde
-stucken, evident gebleeken is:
+Nademaal Julij van Boegies, slaaf van den burger Johan Hendrik Elers \[*sic*\], oud naar gissing ses en twintig jaaren, thans ’s heeren gevangen, vrijwillig beleeden heeft, en den edelagtbaare Raad van Justitie deeses gouvernements, uijt de verdere, ten processe gevoegde stucken, evident gebleeken is:
 
-Dat den gevangen, die bescheijden geweest is op sijn lijfheers
-woonplaats, geleegen bij Stellenbosch, op Sondag, den laatsten der
-jongstleeden maand Maart, des nagts, de klocke omtrent twaalf uuren, sig
-vanuijt het slavenhuijs, alwaar sijn gewoone slaapplaats was, soo hij
-segt, door de openstaande combuijsdeur, naar sijn lijfheers woonhuijs,
-en voorts in de kamer, waarin gemelde sijn lijfheer, met sijnen klijnen
-voorsoon, te slapen lag, begeeven hebbende; seekerlijk met oogmerk om te
-steelen, dog, volgens sijn gevangens voorgeeven, slegts om de sleutels,
-die aldaar aan de muur hongen, te haalen. Des gevangens lijfheer, door
-het hooren van eenige beweeging, even alsof iets in de kamer gesleept
-wierd, wacker geworden was, sig egter stil gehouden had, totdat iets had
-hooren vallen, ’tgunt hij gedagt had een sleutel te sijn, als wanneer
-denselven gemelde sijn soontje wacker gemaakt en tot denselven gesegt
-had dat hij de kaars, die voor ’t bed was geset, op steeken moest,
-invoegen dat kind ook opgestaan was, dan dat kind de kaars niet hebbende
-kunnen vinden, was des gevangens lijfheer, dewijl inmiddens eenige
-beweeging aan de deur hoordde, eeven alsof iemand uijt de kamer ging,
-oversulx selfs opgestaan, en door de combuijs naar buijten gegaan,
-sonder egter, alhoewel het helder maanschijn was, iets vernoomen te
-hebben.
+Dat den gevangen, die bescheijden geweest is op sijn lijfheers woonplaats, geleegen bij Stellenbosch, op Sondag, den laatsten der jongstleeden maand Maart, des nagts, de klocke omtrent twaalf uuren, sig vanuijt het slavenhuijs, alwaar sijn gewoone slaapplaats was, soo hij segt, door de openstaande combuijsdeur, naar sijn lijfheers woonhuijs, en voorts in de kamer, waarin gemelde sijn lijfheer, met sijnen klijnen voorsoon, te slapen lag, begeeven hebbende; seekerlijk met oogmerk om te steelen, dog, volgens sijn gevangens voorgeeven, slegts om de sleutels, die aldaar aan de muur hongen, te haalen. Des gevangens lijfheer, door het hooren van eenige beweeging, even alsof iets in de kamer gesleept wierd, wacker geworden was, sig egter stil gehouden had, totdat iets had hooren vallen, ’tgunt hij gedagt had een sleutel te sijn, als wanneer denselven gemelde sijn soontje wacker gemaakt en tot denselven gesegt had dat hij de kaars, die voor ’t bed was geset, op steeken moest, invoegen dat kind ook opgestaan was, dan dat kind de kaars niet hebbende kunnen vinden, was des gevangens lijfheer, dewijl inmiddens eenige beweeging aan de deur hoordde, eeven alsof iemand uijt de kamer ging, oversulx selfs opgestaan, en door de combuijs naar buijten gegaan, sonder egter, alhoewel het helder maanschijn was, iets vernoomen te hebben.
 
-Dat des gevangens lijfheer, voorts eene kaars opgestooken en toen
-ontwaard hebbende dat het, in de kamer staande, cabinet open stond en de
-daarin geborgene sleutels weggenoomen waaren, mitsgaders dat op de aarde
-eene nieuwe velg van eene wagen wiel quam te leggen; had denselven sig
-uijt de kamer naar een, buijten ’s huijs sijnde, vertrek begeeven, den
-aldaar, beneevens een sijner voorsoonen, in naame Christoffel Tafel,
-slapenden wagenmaker, in name Jan Wagenmakers, wacker gemaakt, denselven
-in huijs geroepen en het voorgevallene aan hem verhaald; als wanneer
-sijlieden goed gevonden hadden, beijde naar ’t slavenhuijs te gaan ten
-eijnde te ontwaaren of de slavinne Eva, die het bed van voorseijde Elers
-opgemaakt had, van dat geval iets weeten, ofte wel selfs daaraan
-handdadig weesen mogte, maar vermits sijlieden, naar gedaane visitatie,
-niets ontdekt hadden, en den gevangen, op wien sij geen vermoeden hadden
-gehad, op sijn kooij, eeven alsof sliep, geleegen had; was voorseijde
-Wagenmakers naar sijn slaapplaats, en des gevangens lijfheer naar de
-kamer terug gekeert, en hadden hun weeder tot slaapen needer gelegt.
+Dat des gevangens lijfheer, voorts eene kaars opgestooken en toen ontwaard hebbende dat het, in de kamer staande, cabinet open stond en de daarin geborgene sleutels weggenoomen waaren, mitsgaders dat op de aarde eene nieuwe velg van eene wagen wiel quam te leggen; had denselven sig uijt de kamer naar een, buijten ’s huijs sijnde, vertrek begeeven, den aldaar, beneevens een sijner voorsoonen, in naame Christoffel Tafel, slapenden wagenmaker, in name Jan Wagenmakers, wacker gemaakt, denselven in huijs geroepen en het voorgevallene aan hem verhaald; als wanneer sijlieden goed gevonden hadden, beijde naar ’t slavenhuijs te gaan ten eijnde te ontwaaren of de slavinne Eva, die het bed van voorseijde Elers opgemaakt had, van dat geval iets weeten, ofte wel selfs daaraan handdadig weesen mogte, maar vermits sijlieden, naar gedaane visitatie, niets ontdekt hadden, en den gevangen, op wien sij geen vermoeden hadden gehad, op sijn kooij, eeven alsof sliep, geleegen had; was voorseijde Wagenmakers naar sijn slaapplaats, en des gevangens lijfheer naar de kamer terug gekeert, en hadden hun weeder tot slaapen needer gelegt.
 
-Dat des gevangens lijfheer, omtrent een half uur daarna, buijten ’s
-huijs eenige gestommel gehoord hebbende, eeven alsof iemand met een stok
-of kirrij, op een aldaar staande waschvat sloeg, en voorts om het huijs
-heen geloopen wierd; gemelde Elers mitsdien weeder uijt het bed
-opgestaan en naar buijten gegaan was, sonder nogthans iemand ontwaard te
-hebben, weshalven denselven sig naar sijne kamer terug en ter rust
-begeeven had; dog, een poosje daaraan, een swaare slag op de voordeur,
-eeven alsof die deur ingeslagen wierd, gehoord hebbende, was denselven
-weederom naar buijten gegaan, en had voor de deur overluijd geroepen:
-Wie is daar?, sonder egter eenige antwoord bekoomen, nog iemand gesien
-te hebben; des meergemelde Elers, terug keerende, de deur toegeslooten
-had.
+Dat des gevangens lijfheer, omtrent een half uur daarna, buijten ’s huijs eenige gestommel gehoord hebbende, eeven alsof iemand met een stok of kirrij, op een aldaar staande waschvat sloeg, en voorts om het huijs heen geloopen wierd; gemelde Elers mitsdien weeder uijt het bed opgestaan en naar buijten gegaan was, sonder nogthans iemand ontwaard te hebben, weshalven denselven sig naar sijne kamer terug en ter rust begeeven had; dog, een poosje daaraan, een swaare slag op de voordeur, eeven alsof die deur ingeslagen wierd, gehoord hebbende, was denselven weederom naar buijten gegaan, en had voor de deur overluijd geroepen: Wie is daar?, sonder egter eenige antwoord bekoomen, nog iemand gesien te hebben; des meergemelde Elers, terug keerende, de deur toegeslooten had.
 
-Dat des gevangens lijfheer, vervolgens, naar verloop van wel een
-quartier uur, eeven als bevoorens op de deur hebbende hooren slaan,
-oversulx gevraagt had: Wie is daar?, en alsdoen, onder bijvoeging van
-eene indecente uijtdrucking, ten antwoord bekoomen had: Maak open!, op
-’twelke des gevangens lijfheer weederom gevraagt hebbende: Wie zijt gij
-dan?, daarop was geantwoord geworden: Hondejongen, maak open!, als
-wanneer meergenoemde Elers sijne kinderen toegeroepen had: Neemt een
-roer, en schiet dat hem de damp de keel uijtkomt!, sonder, voor alsdoen,
-eenig verder gewag vernoomen te hebben.
+Dat des gevangens lijfheer, vervolgens, naar verloop van wel een quartier uur, eeven als bevoorens op de deur hebbende hooren slaan, oversulx gevraagt had: Wie is daar?, en alsdoen, onder bijvoeging van eene indecente uijtdrucking, ten antwoord bekoomen had: Maak open!, op ’twelke des gevangens lijfheer weederom gevraagt hebbende: Wie zijt gij dan?, daarop was geantwoord geworden: Hondejongen, maak open!, als wanneer meergenoemde Elers sijne kinderen toegeroepen had: Neemt een roer, en schiet dat hem de damp de keel uijtkomt!, sonder, voor alsdoen, eenig verder gewag vernoomen te hebben.
 
-Dat voorseijde Wagenmaker, soo wel als gemelde Christoffel Tafel,
-inmiddens, door ’t hooren van sterke slagen, wacker geworden, beijde
-opgestaan, mitsgaders eevengemelde Tafel eerst buijten de deur en tot op
-de hoek van dat gebouw gegaan sijnde, den gevangen, die de cours van
-sijn lijfheers woonhuijs quam loopen, dien jongeling aldaar als te
-gemoed gekoomen was en, onder ’t seggen: Komt gij ook naar mij kijken!,
-aan hem, met eene, in handen hebbende, assagaaij een steek op de borst
-toegebragt had, dewelke, ofschoon dien jongeling slegts een hembd had
-aangehad, vermits de assagaaij stomp was geweest, egter niet
-gepenetreert, maar daardoor eenelijk een schram in sijne huijd
-veroorsaakt was en, dewijl op dat moment voorseijde Jan Wagenmakers,
-die, sustineerende dat er misschien drossers weesen mogten, eene
-mistvork in handen genoomen had, meede buijten gekoomen was, had
-voorseijde Tafel, intusschen dat den gevangen naar dien man toeliep,
-denselven toegeroepen: Past op, ’t is klijne Julij, die eene assagaaij
-in handen en naar mij gestooken heeft!
+Dat voorseijde Wagenmaker, soo wel als gemelde Christoffel Tafel, inmiddens, door ’t hooren van sterke slagen, wacker geworden, beijde opgestaan, mitsgaders eevengemelde Tafel eerst buijten de deur en tot op de hoek van dat gebouw gegaan sijnde, den gevangen, die de cours van sijn lijfheers woonhuijs quam loopen, dien jongeling aldaar als te gemoed gekoomen was en, onder ’t seggen: Komt gij ook naar mij kijken!, aan hem, met eene, in handen hebbende, assagaaij een steek op de borst toegebragt had, dewelke, ofschoon dien jongeling slegts een hembd had aangehad, vermits de assagaaij stomp was geweest, egter niet gepenetreert, maar daardoor eenelijk een schram in sijne huijd veroorsaakt was en, dewijl op dat moment voorseijde Jan Wagenmakers, die, sustineerende dat er misschien drossers weesen mogten, eene mistvork in handen genoomen had, meede buijten gekoomen was, had voorseijde Tafel, intusschen dat den gevangen naar dien man toeliep, denselven toegeroepen: Past op, ’t is klijne Julij, die eene assagaaij in handen en naar mij gestooken heeft!
 
-Dat den wagenmaker inmiddens dan den gevangen gevraagt hebbende: Julij!
-wat is er aan de baas sijn huijs te doen?, den gevangen, onder ’t
-seggen: Komt gij ook na mijn kijken!, tot drie à vier maalen toe,
-ofschoon denselven sig, met de, in handen hebbende, mistvork
-gedefendeert, en den gevangen ook, tot twee à drie rheijsen toe, teegens
-de aarde geslagen had, met de assagaaij naar dien man had gestooken, dog
-van welke steeken slegts een door een der mouwen van sijn aanhebbend
-baaijtje gegaan was; terwijl den gevangen, telkens weeder van de aarde
-opgereesen sijnde, het voorts op een loop geset, en sig dus met de
-vlugt, veldwaards in, gesalveert had; sijnde ’s volgende morgens, ter
-plaatse alwaar den gevangen met de assagaaij naar meergemelde Tafel had
-gestooken, des gevangens mes, in de scheede steekende, op den grond; en
-vervolgens, in ’t slavenhuijs, boven des gevangens kooij, tusschen het
-aldaar, op de balken gestapelde hout, de uijt het cabinet vermiste
-sleutels gevonden geworden; middelerwijl dat den gevangen sig Caabwaards
-begeeven had, alwaar densselven, naar een paar dagen rondgesworven te
-hebben, door een der dienaaren van justitie aan strand gevangen
-genoomen, en dus in hegtenisse geraakt is.
+Dat den wagenmaker inmiddens dan den gevangen gevraagt hebbende: Julij! wat is er aan de baas sijn huijs te doen?, den gevangen, onder ’t seggen: Komt gij ook na mijn kijken!, tot drie à vier maalen toe, ofschoon denselven sig, met de, in handen hebbende, mistvork gedefendeert, en den gevangen ook, tot twee à drie rheijsen toe, teegens de aarde geslagen had, met de assagaaij naar dien man had gestooken, dog van welke steeken slegts een door een der mouwen van sijn aanhebbend baaijtje gegaan was; terwijl den gevangen, telkens weeder van de aarde opgereesen sijnde, het voorts op een loop geset, en sig dus met de vlugt, veldwaards in, gesalveert had; sijnde ’s volgende morgens, ter plaatse alwaar den gevangen met de assagaaij naar meergemelde Tafel had gestooken, des gevangens mes, in de scheede steekende, op den grond; en vervolgens, in ’t slavenhuijs, boven des gevangens kooij, tusschen het aldaar, op de balken gestapelde hout, de uijt het cabinet vermiste sleutels gevonden geworden; middelerwijl dat den gevangen sig Caabwaards begeeven had, alwaar densselven, naar een paar dagen rondgesworven te hebben, door een der dienaaren van justitie aan strand gevangen genoomen, en dus in hegtenisse geraakt is.
 
-Ofschoon nu den gevangen bij de justitieele inquisitie geensins heeft
-willen beleijden dat hij met voorneemen om te steelen sig naar sijn
-lijfheers woonhuijs en kamer begeeven en het cabinet geopent heeft, maar
-hertneckig \[*sic*\] bij de negative is blijven persisteeren, is
-deselven egter soo daarvan, als van sijne verdere quaade intentie en
-gepleegde malitieuse bedrijven, regtelijk overtuijgt, dermaaten dat hij
-de wel verdiende straffe geensins ontduijken kan; maar, ter beveijliging
-van de goede ingeseetenen ten plattenlande, mitsgaders ten spiegel en
-afschrik van andere sulke boosdoenders, voorbeeldelijk gestraft werden
-moet.
+Ofschoon nu den gevangen bij de justitieele inquisitie geensins heeft willen beleijden dat hij met voorneemen om te steelen sig naar sijn lijfheers woonhuijs en kamer begeeven en het cabinet geopent heeft, maar hertneckig \[*sic*\] bij de negative is blijven persisteeren, is deselven egter soo daarvan, als van sijne verdere quaade intentie en gepleegde malitieuse bedrijven, regtelijk overtuijgt, dermaaten dat hij de wel verdiende straffe geensins ontduijken kan; maar, ter beveijliging van de goede ingeseetenen ten plattenlande, mitsgaders ten spiegel en afschrik van andere sulke boosdoenders, voorbeeldelijk gestraft werden moet.
 
-Soo is ’t, dat den edelagtbaare Raad van Justitie, voormeld, ten dage
-dienende, met nadruk geleesen en overwoogen hebbende, den schriftelijken
-crimineelen eijsch ende conclusie, door den landdrost van Stellenbosch
-en Drakenstein, sieur Marthinus Adrianus Bergh, *nomine officii*, op
-ende jeegens den gevangen gedaan ende genoomen, mitsgaders geleth op des
-gevangens vrijwillige confessie en andere stucken daarneevens gevoegt,
-alle in judicio behoorlijk gerecolleert, voorts op alle hetgeene ter
-saake dienende was, en haar edelagtbaarens eenigsins konde doen
-moveeren, regt doende uijt name ende van weegens de hoogmoogende Heeren
-Staaten Generaal der Verenigde Neederlanden, den gevangen Julij van
-Boegies hebben gecondemneert, gelijk haar edelagtbaarens denselven
-condemneeren mits deesen: omme gebragt te werden ter plaatse alwaar men
-alhier gewoon is crimineele sententiën te executeeren, aldaar den
-scherpregter overgeleevert, met een strop om den hals aan een der
-stijlen van den galg ten toon gesteld, voorts aan een paal gebonden, met
-roeden op den blooten rugge strengelijk gegeesselt, daarop gebrandmerkt,
-en voorts in de ketting geklonken sijnde, daarin den tijd sijn ’s
-leevens ten Robben Eijlande aan de gemeene werken te arbeijden, met
-condemnatie in de kosten en misen van justitie.
+Soo is ’t, dat den edelagtbaare Raad van Justitie, voormeld, ten dage dienende, met nadruk geleesen en overwoogen hebbende, den schriftelijken crimineelen eijsch ende conclusie, door den landdrost van Stellenbosch en Drakenstein, sieur Marthinus Adrianus Bergh, *nomine officii*, op ende jeegens den gevangen gedaan ende genoomen, mitsgaders geleth op des gevangens vrijwillige confessie en andere stucken daarneevens gevoegt, alle in judicio behoorlijk gerecolleert, voorts op alle hetgeene ter saake dienende was, en haar edelagtbaarens eenigsins konde doen moveeren, regt doende uijt name ende van weegens de hoogmoogende Heeren Staaten Generaal der Verenigde Neederlanden, den gevangen Julij van Boegies hebben gecondemneert, gelijk haar edelagtbaarens denselven condemneeren mits deesen: omme gebragt te werden ter plaatse alwaar men alhier gewoon is crimineele sententiën te executeeren, aldaar den scherpregter overgeleevert, met een strop om den hals aan een der stijlen van den galg ten toon gesteld, voorts aan een paal gebonden, met roeden op den blooten rugge strengelijk gegeesselt, daarop gebrandmerkt, en voorts in de ketting geklonken sijnde, daarin den tijd sijn ’s leevens ten Robben Eijlande aan de gemeene werken te arbeijden, met condemnatie in de kosten en misen van justitie.
 
-Aldus gedaan en gesententieert in ’t Casteel de Goede Hoop, den eersten
-Augustus 1776, mitsgaders gepronuntieert ende geëxecuteert den thiende
-daaraanvolgende.
+Aldus gedaan en gesententieert in ’t Casteel de Goede Hoop, den eersten Augustus 1776, mitsgaders gepronuntieert ende geëxecuteert den thiende daaraanvolgende.
 
 Fiat Executie, \[get.\] Jm. van Plettenberg.
 
-\[get.\] Otto Ludij Hemmij, W.C. Boers, P. Hacker, O.M. Bergh, A. van
-Schoor, L.C. Warneck, J.A. la Febre, G.H. Meijer.
+\[get.\] Otto Ludij Hemmij, W.C. Boers, P. Hacker, O.M. Bergh, A. van Schoor, L.C. Warneck, J.A. la Febre, G.H. Meijer.
 
 Mij present, \[get.\] C.L. Neethling, secretaris.
 
 TRANSLATION
 
-Statement, given on the requisition of the honourable landdrost,
-Marthinus Adrianus Bergh, by the burgher Johan Hendrik Ehlers, of
-competent age, which is of the following contents, namely:
+Statement, given on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, by the burgher Johan Hendrik Ehlers, of competent age, which is of the following contents, namely:
 
-That about five months ago now, the testifier bought a slave, by the
-name of Julij van Timor, from the burgher at the Cape, Coenraad Eb, for
-the sum of one hundred and ninety-seven rixdollars, on the condition
-that the testifier could keep the said slave on trial for four to five
-months and if the slave did not please him, he could then return him to
-the aforementioned seller, on condition that he paid four rixdollars per
-month for hiring the said *jongen*.
+That about five months ago now, the testifier bought a slave, by the name of Julij van Timor, from the burgher at the Cape, Coenraad Eb, for the sum of one hundred and ninety-seven rixdollars, on the condition that the testifier could keep the said slave on trial for four to five months and if the slave did not please him, he could then return him to the aforementioned seller, on condition that he paid four rixdollars per month for hiring the said *jongen*.
 
-The said slave Julij behaved himself well at the testifier’s until last
-Sunday, the 31^st^ of the just passed month of March, on which occasion
-the testifier went to bed at half past eight in the evening, without
-having noticed anything wrong on his farm and lay down to sleep with his
-little *voorzoon*[^9] Jacobus Dafel (since the testifier’s wife was
-not at home at this time), until he was awakened at about twelve o’clock
-that night, hearing a movement as if something was being dragged in the
-room. That the testifier kept silent and shortly thereafter heard
-something fall, sounding like a key, when he roused his said son and
-told him to light the candle which had been put before the bed, and when
-the same got up and could not find any candle, and the testifier then
-heard some movement at the door as if somebody was leaving the room, he
-himself got up and went outside through the kitchen, without having
-noticed anything.
+The said slave Julij behaved himself well at the testifier’s until last Sunday, the 31^st^ of the just passed month of March, on which occasion the testifier went to bed at half past eight in the evening, without having noticed anything wrong on his farm and lay down to sleep with his little *voorzoon*[^9] Jacobus Dafel (since the testifier’s wife was not at home at this time), until he was awakened at about twelve o’clock that night, hearing a movement as if something was being dragged in the room. That the testifier kept silent and shortly thereafter heard something fall, sounding like a key, when he roused his said son and told him to light the candle which had been put before the bed, and when the same got up and could not find any candle, and the testifier then heard some movement at the door as if somebody was leaving the room, he himself got up and went outside through the kitchen, without having noticed anything.
 
-That the testifier then lit a candle, which is when he discovered that
-the cabinet, which is in the said room, was opened and that the keys
-which were kept in it had been taken away, as well as that a new felly
-of a wagon wheel was lying on the floor of the said room. Upon this, the
-testifier called the wagonmaker, Jan Wagemakers, who lived with him and
-was sleeping in an outer room, and showed him this; whereafter they went
-to the slave house to investigate, since the testifier was of the
-opinion that the slave Eva van de Caab, who had made the bed in the room
-that evening, would know something about this case or might even have
-been involved with it, but when the said slave Eva, as also her husband,
-Amsterdam van Mosambicque, were taken from their bed and their goods
-searched, nothing could be discovered; while the aforesaid Julij,
-against whom nothing was yet suspected, was at this time lying in his
-bed as if he were asleep. After this, the testifier again went to his
-bedroom, and likewise the aforementioned Jan Wagemakers to his; until
-about half an hour thereafter when the testifier heard some noise at the
-outside as if somebody was beating with a stick or *kirrij* on the water
-barrel standing there and running around the house; when he again went
-outside without, however, having discovered anybody, whereupon the
-testifier went back to lie down; but when he heard a heavy blow on the
-front door, as if the same was being beaten in, he again went to the
-outside and called before the door, asking who was there, yet, not
-receiving any answer, nor having seen anybody, the testifier came inside
-and locked the door. After about a quarter of an hour had passed, he
-again heard somebody beating upon the door as before, and when he asked
-who was there, received as an answer (by your leave): “Motherfucker,
-open up!”, upon which the testifier again asked: “Who are you then?” and
-was answered: “Son of a bitch, open up!” That the testifier upon this
-called to his children: “Take a musket and shoot him so that the smoke
-comes from his throat!” but did not hear anything else being said at the
-door. That after this, the testifier remained inside the house and, when
-he heard some shouting outside, he had the slave Alij, who was in the
-kitchen, go outside to find out what was going on, which is when the
-aforesaid Jan Wagemakers came inside and told the testifier what the
-aforementioned slave Julij had been busy doing out there, that he had
-stabbed at the *volk*, who in the meantime had got up, with an
-*assegaaij*, that he first stabbed the testifier’s *voorzoon*
-Christoffel Dafel, while asking why he was looking at him, in the chest,
-without however injuring him since that weapon had become blunt, and
-that Julij then stormed Jan Wagemakers after he had asked the said
-Julij: “What *volk*?”, and: “What is going on?”, and also stabbed at the
-said Wagemakers, while he then beat and stabbed at the said Julij with a
-pitchfork in such a way that the aforementioned slave fell down three to
-four times, but then took off in flight very swiftly, without him being
-caught up with during the chase and hunt. Further, that on the following
-morning they found on the ground, at the place where the aforementioned
-Julij had stabbed Christoffel Dafel with the *assegaaij*, the knife of
-Julij, still in its sheath.[^10]
+That the testifier then lit a candle, which is when he discovered that the cabinet, which is in the said room, was opened and that the keys which were kept in it had been taken away, as well as that a new felly of a wagon wheel was lying on the floor of the said room. Upon this, the testifier called the wagonmaker, Jan Wagemakers, who lived with him and was sleeping in an outer room, and showed him this; whereafter they went to the slave house to investigate, since the testifier was of the opinion that the slave Eva van de Caab, who had made the bed in the room that evening, would know something about this case or might even have been involved with it, but when the said slave Eva, as also her husband, Amsterdam van Mosambicque, were taken from their bed and their goods searched, nothing could be discovered; while the aforesaid Julij, against whom nothing was yet suspected, was at this time lying in his bed as if he were asleep. After this, the testifier again went to his bedroom, and likewise the aforementioned Jan Wagemakers to his; until about half an hour thereafter when the testifier heard some noise at the outside as if somebody was beating with a stick or *kirrij* on the water barrel standing there and running around the house; when he again went outside without, however, having discovered anybody, whereupon the testifier went back to lie down; but when he heard a heavy blow on the front door, as if the same was being beaten in, he again went to the outside and called before the door, asking who was there, yet, not receiving any answer, nor having seen anybody, the testifier came inside and locked the door. After about a quarter of an hour had passed, he again heard somebody beating upon the door as before, and when he asked who was there, received as an answer (by your leave): “Motherfucker, open up!”, upon which the testifier again asked: “Who are you then?” and was answered: “Son of a bitch, open up!” That the testifier upon this called to his children: “Take a musket and shoot him so that the smoke comes from his throat!” but did not hear anything else being said at the door. That after this, the testifier remained inside the house and, when he heard some shouting outside, he had the slave Alij, who was in the kitchen, go outside to find out what was going on, which is when the aforesaid Jan Wagemakers came inside and told the testifier what the aforementioned slave Julij had been busy doing out there, that he had stabbed at the *volk*, who in the meantime had got up, with an *assegaaij*, that he first stabbed the testifier’s *voorzoon* Christoffel Dafel, while asking why he was looking at him, in the chest, without however injuring him since that weapon had become blunt, and that Julij then stormed Jan Wagemakers after he had asked the said Julij: “What *volk*?”, and: “What is going on?”, and also stabbed at the said Wagemakers, while he then beat and stabbed at the said Julij with a pitchfork in such a way that the aforementioned slave fell down three to four times, but then took off in flight very swiftly, without him being caught up with during the chase and hunt. Further, that on the following morning they found on the ground, at the place where the aforementioned Julij had stabbed Christoffel Dafel with the *assegaaij*, the knife of Julij, still in its sheath.[^10]
 
-Finally, that yesterday morning, the third of this month, the
-testifier’s wife found the keys, which were missing from the cabinet, in
-the slave house above the bed of the aforementioned Julij amongst the
-wood piled on top of the beams.
+Finally, that yesterday morning, the third of this month, the testifier’s wife found the keys, which were missing from the cabinet, in the slave house above the bed of the aforementioned Julij amongst the wood piled on top of the beams.
 
-There being nothing more to declare, the testifier asserts to be
-convinced of the certainty of his statement as in the text, being
-willing to subsequently confirm the above with a solemn oath, if so
-required.
+There being nothing more to declare, the testifier asserts to be convinced of the certainty of his statement as in the text, being willing to subsequently confirm the above with a solemn oath, if so required.
 
-Thus related at the office of the secretary at Stellenbosch on 4 April
-1776 in the presence of the messenger of the court Morits Herman Otto
-Woeke and the burgher Hendrik Stoltenkamp, as witnesses.
+Thus related at the office of the secretary at Stellenbosch on 4 April 1776 in the presence of the messenger of the court Morits Herman Otto Woeke and the burgher Hendrik Stoltenkamp, as witnesses.
 
 \[signed\] Johan Hendrik Ehlers.
 
@@ -358,203 +78,54 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 TRANSLATION
 
-Since Julij van Boegies, slave of the burgher Johan Hendrik Elers,
-twenty-six years old at a guess, currently their honours’ prisoner, has
-voluntarily confessed and since, from the other documents produced in
-the case, it has appeared evident to the honourable Council of Justice:
+Since Julij van Boegies, slave of the burgher Johan Hendrik Elers, twenty-six years old at a guess, currently their honours’ prisoner, has voluntarily confessed and since, from the other documents produced in the case, it has appeared evident to the honourable Council of Justice:
 
-That at twelve o’clock on the night of Sunday, the last day of the month
-March of this year, the prisoner, who was stationed on his owner’s farm,
-situated at Stellenbosch, proceeded from the slave house, where his
-usual sleeping place was, through the kitchen door, which was open
-according to him, into his owner’s house and then into the room in which
-his said owner was lying asleep with his little *voorzoon*, certainly
-with the intention to steal, but the prisoner pretends it was only to
-fetch the keys which were hanging on the wall there. That the prisoner’s
-owner woke up from hearing some movement, just as if something was being
-dragged in the room, but kept himself still, until he heard something
-fall, which he thought was a key, which is when he roused his little son
-and told to him to light the candle which had been put before the bed,
-for which reason this child then got up, but when he could not find a
-candle, the prisoner’s owner, because he had heard some movement at the
-door, as if somebody was leaving the room, got up himself, and went
-through the kitchen to the outside, without, however, even though it had
-been clear moonlight, discovering anything.
+That at twelve o’clock on the night of Sunday, the last day of the month March of this year, the prisoner, who was stationed on his owner’s farm, situated at Stellenbosch, proceeded from the slave house, where his usual sleeping place was, through the kitchen door, which was open according to him, into his owner’s house and then into the room in which his said owner was lying asleep with his little *voorzoon*, certainly with the intention to steal, but the prisoner pretends it was only to fetch the keys which were hanging on the wall there. That the prisoner’s owner woke up from hearing some movement, just as if something was being dragged in the room, but kept himself still, until he heard something fall, which he thought was a key, which is when he roused his little son and told to him to light the candle which had been put before the bed, for which reason this child then got up, but when he could not find a candle, the prisoner’s owner, because he had heard some movement at the door, as if somebody was leaving the room, got up himself, and went through the kitchen to the outside, without, however, even though it had been clear moonlight, discovering anything.
 
-That the prisoner’s owner lit a candle and discovered then that the
-cabinet standing in the room had been opened and that the keys which
-were kept in it had been taken, as well as that a new felly of a wagon
-wheel was lying on the ground, whereupon he went from his room to a room
-outside the house and roused the wagonmaker, by the name of Jan
-Wagenmakers, who was sleeping there along with one of his other
-*voorzoons*, by the name of Christoffel Tafel, and called him into the
-house to tell him about what had happened, which is when they thought it
-good to both go to the slave house in order to find out if the slave
-Eva, who had made up the bed of the aforesaid Elers, knew anything of
-the case, or might even have been involved with it, but since they did
-not discover anything after a proper investigation; and the prisoner,
-whom they did not suspect at all, was lying on his bed as if he were
-asleep, the aforesaid Wagenmakers returned to his sleeping place and the
-prisoner’s owner to his bedroom and again lay themselves down to sleep.
+That the prisoner’s owner lit a candle and discovered then that the cabinet standing in the room had been opened and that the keys which were kept in it had been taken, as well as that a new felly of a wagon wheel was lying on the ground, whereupon he went from his room to a room outside the house and roused the wagonmaker, by the name of Jan Wagenmakers, who was sleeping there along with one of his other *voorzoons*, by the name of Christoffel Tafel, and called him into the house to tell him about what had happened, which is when they thought it good to both go to the slave house in order to find out if the slave Eva, who had made up the bed of the aforesaid Elers, knew anything of the case, or might even have been involved with it, but since they did not discover anything after a proper investigation; and the prisoner, whom they did not suspect at all, was lying on his bed as if he were asleep, the aforesaid Wagenmakers returned to his sleeping place and the prisoner’s owner to his bedroom and again lay themselves down to sleep.
 
-That about half an hour after this, when the prisoner’s owner heard some
-noise outside the house as if somebody was beating on a washing tub
-standing there and then ran around the house, he again got up from bed
-and went outside, but without having perceived anybody, wherefore he
-returned to his room again and lay down to sleep. However, a short while
-thereafter, when he heard a heavy blow on the front door, just as if
-this door was being beaten in, he again went to the outside and called
-loudly before the door: “Who is there?”, without however receiving any
-answer, nor having seen anybody, whereupon the said Elers returned and
-locked the door.
+That about half an hour after this, when the prisoner’s owner heard some noise outside the house as if somebody was beating on a washing tub standing there and then ran around the house, he again got up from bed and went outside, but without having perceived anybody, wherefore he returned to his room again and lay down to sleep. However, a short while thereafter, when he heard a heavy blow on the front door, just as if this door was being beaten in, he again went to the outside and called loudly before the door: “Who is there?”, without however receiving any answer, nor having seen anybody, whereupon the said Elers returned and locked the door.
 
-After about a quarter of an hour had passed, when the prisoner’s owner
-heard, just as before, somebody beating upon the door, he asked: “Who is
-there?”, and then received as answer, accompanied by an indecent
-expression: “Open up!”, to which the prisoner’s owner again asked: “Who
-are you then?”, whereupon he was answered: “Son of a bitch, open up!”,
-which is when the aforementioned Elers called to his children: “Take a
-musket and shoot him so that the smoke comes from his throat!”, without
-then hearing anything else being mentioned, as before.
+After about a quarter of an hour had passed, when the prisoner’s owner heard, just as before, somebody beating upon the door, he asked: “Who is there?”, and then received as answer, accompanied by an indecent expression: “Open up!”, to which the prisoner’s owner again asked: “Who are you then?”, whereupon he was answered: “Son of a bitch, open up!”, which is when the aforementioned Elers called to his children: “Take a musket and shoot him so that the smoke comes from his throat!”, without then hearing anything else being mentioned, as before.
 
-That in the meantime, the aforesaid Wagenmaker, as well as the said
-Christoffel Tafel, woke up from hearing these heavy blows, both of them
-got up, when the said Tafel went outside the door first and up to the
-corner of that building when the prisoner, who was walking away from his
-owner’s house, came towards this young man there and, while saying:
-“Have you also come to look at me!”, gave him a stab in the chest, with
-an *assegaaij* he was holding in his hands, which, even though this
-youth was only wearing a nightshirt, did not penetrate as this
-*assegaaij* was blunt, but only caused a scrape on his skin and since,
-at that moment, the aforesaid Jan Wagenmakers – who, thinking that there
-might have been runaway slaves on the farm, had picked up a pitchfork –
-also came outside, when the said Tafel, while the prisoner was running
-towards this man \[Wagenmakers\], called to him: “Beware, it is little
-Julij,[^11] who has an *assegaaij* in his hands, and who has stabbed
-at me with it!”
+That in the meantime, the aforesaid Wagenmaker, as well as the said Christoffel Tafel, woke up from hearing these heavy blows, both of them got up, when the said Tafel went outside the door first and up to the corner of that building when the prisoner, who was walking away from his owner’s house, came towards this young man there and, while saying: “Have you also come to look at me!”, gave him a stab in the chest, with an *assegaaij* he was holding in his hands, which, even though this youth was only wearing a nightshirt, did not penetrate as this *assegaaij* was blunt, but only caused a scrape on his skin and since, at that moment, the aforesaid Jan Wagenmakers – who, thinking that there might have been runaway slaves on the farm, had picked up a pitchfork – also came outside, when the said Tafel, while the prisoner was running towards this man \[Wagenmakers\], called to him: “Beware, it is little Julij,[^11] who has an *assegaaij* in his hands, and who has stabbed at me with it!”
 
-That the wagonmaker then asked the prisoner: “Julij! what have you done
-at the house of the *baas*?”, whereupon the prisoner, while saying:
-“Have you also come to look at me?”, stabbed three or four times with
-the *assegaaij* at this man – although only one of these stabs
-penetrated through the sleeves of the jacket he was wearing – even
-though the same defended himself with the pitchfork he held in his hands
-and also shoved the prisoner two or three times to the ground, yet the
-prisoner got up from the ground every time and then started to run away
-and saved himself thus with fleeing into the veld. On the following
-morning, they found the prisoner’s knife, still in its sheath, on the
-ground at the place where the prisoner had stabbed at the aforementioned
-Tafel with the *assegaaij* and, later on, the keys missing from the
-cabinet above the prisoner’s bed amongst the wood piled on top of the
-beams there. In the meantime, the prisoner had set out to the Cape where
-he, after having roamed around for a couple of days, was taken prisoner
-on the beach by a servant of justice, and thus was taken into
-arrest.[^12]
+That the wagonmaker then asked the prisoner: “Julij! what have you done at the house of the *baas*?”, whereupon the prisoner, while saying: “Have you also come to look at me?”, stabbed three or four times with the *assegaaij* at this man – although only one of these stabs penetrated through the sleeves of the jacket he was wearing – even though the same defended himself with the pitchfork he held in his hands and also shoved the prisoner two or three times to the ground, yet the prisoner got up from the ground every time and then started to run away and saved himself thus with fleeing into the veld. On the following morning, they found the prisoner’s knife, still in its sheath, on the ground at the place where the prisoner had stabbed at the aforementioned Tafel with the *assegaaij* and, later on, the keys missing from the cabinet above the prisoner’s bed amongst the wood piled on top of the beams there. In the meantime, the prisoner had set out to the Cape where he, after having roamed around for a couple of days, was taken prisoner on the beach by a servant of justice, and thus was taken into arrest.[^12]
 
-Now, although the prisoner did not at all want to confess during the
-judicial enquiry that it was with the intention to steal that he had
-gone into his owner’s house and room, and opened the cabinet, but
-stubbornly continued to persist in his denial; he was, however,
-judicially convinced of this, as also of his other evil intentions and
-the malicious deeds he perpetrated, in such a manner that he in no ways
-can escape his well-deserved punishment, but should be punished as an
-example and deterrent to other such malefactors, in order to protect the
-good inhabitants of the rural areas.
+Now, although the prisoner did not at all want to confess during the judicial enquiry that it was with the intention to steal that he had gone into his owner’s house and room, and opened the cabinet, but stubbornly continued to persist in his denial; he was, however, judicially convinced of this, as also of his other evil intentions and the malicious deeds he perpetrated, in such a manner that he in no ways can escape his well-deserved punishment, but should be punished as an example and deterrent to other such malefactors, in order to protect the good inhabitants of the rural areas.
 
-Thus it is, that the honourable Council of Justice, aforementioned,
-serving today, having read and considered with care the written
-*crimineelen eijsch ende conclusie*, drawn up and delivered for and
-against the prisoner by the landdrost of Stellenbosch and Drakenstein,
-*Sieur* Marthinus Adrianus Bergh, in his official capacity, as well as
-having noted the prisoner’s voluntary confession, and the other
-documents added to it, all properly verified in court, further
-everything else that served the case and could possibly have moved their
-honours, practising justice in the name and on behalf the high and
-mighty Lords States General of the United Netherlands, and having judged
-the prisoner Julij van Boegies, is sentencing him with this: to be taken
-to the place where criminal sentences are usually executed here, there
-to be handed over to the executioner, to be exposed with the rope around
-his neck on one of the posts of the gallows, further to be tied to a
-stake and be severely scourged with rods on his bare back, thereupon to
-be branded, then to be riveted in chains, in which to labour on the
-public works on Robben Island for the remainder of his life, with
-sentencing to the costs and expenditure of justice.[^13]
+Thus it is, that the honourable Council of Justice, aforementioned, serving today, having read and considered with care the written *crimineelen eijsch ende conclusie*, drawn up and delivered for and against the prisoner by the landdrost of Stellenbosch and Drakenstein, *Sieur* Marthinus Adrianus Bergh, in his official capacity, as well as having noted the prisoner’s voluntary confession, and the other documents added to it, all properly verified in court, further everything else that served the case and could possibly have moved their honours, practising justice in the name and on behalf the high and mighty Lords States General of the United Netherlands, and having judged the prisoner Julij van Boegies, is sentencing him with this: to be taken to the place where criminal sentences are usually executed here, there to be handed over to the executioner, to be exposed with the rope around his neck on one of the posts of the gallows, further to be tied to a stake and be severely scourged with rods on his bare back, thereupon to be branded, then to be riveted in chains, in which to labour on the public works on Robben Island for the remainder of his life, with sentencing to the costs and expenditure of justice.[^13]
 
-Thus done and sentenced in the Castle of Good Hope on the first of
-August 1776, as also pronounced and executed on the tenth thereupon.
+Thus done and sentenced in the Castle of Good Hope on the first of August 1776, as also pronounced and executed on the tenth thereupon.
 
 Let the execution be done, \[signed\] Jm. van Plettenburg.
 
-\[signed\] Otto Ludij Hemmij, W.C. Boers, P. Hacker, O.M. Bergh, A. van
-Schoor, L.C. Warneck, J.A. la Febre, G.H. Meijer.
+\[signed\] Otto Ludij Hemmij, W.C. Boers, P. Hacker, O.M. Bergh, A. van Schoor, L.C. Warneck, J.A. la Febre, G.H. Meijer.
 
 In my presence, \[signed\] C.L. Neethling, secretary.
 
-[^1]:  Julij gave his name as Julij van Boegies in his interrogation, CJ
-    410, f. 305, article 1, and was referred to as such in the
-    *regtsrollen* and the *sententie*, but in all of the documentation
-    in the Stellenbosch landdrost archive he is consistently called
-    Julij van Timor. This is an indication of the inconsistency of slave
-    toponyms.
+[^1]:  Julij gave his name as Julij van Boegies in his interrogation, CJ 410, f. 305, article 1, and was referred to as such in the *regtsrollen* and the *sententie*, but in all of the documentation in the Stellenbosch landdrost archive he is consistently called Julij van Timor. This is an indication of the inconsistency of slave toponyms.
 
-[^2]: * In his interrogation, Julij stated that he worked as a
-    blacksmith on the Ehlers farm, CJ 410, f. 305, article 1 and this
-    explains why he was sold on approval. Presumably his skills as a
-    smith needed to be tested and proved. Artisans at the Cape often had
-    slaves with particular skills (Shell 1994: 164-65, and see 1719
-    Jonas van Manado and 1757 Baatjoe van Mandhaar for other examples).
-    On the hiring of artisan slaves, see De Kock 1950: 57-8, Schoeman
-    2001: 585-86; and 1794 Abraham van Maccassar, n. 5. *
+[^2]: * In his interrogation, Julij stated that he worked as a blacksmith on the Ehlers farm, CJ 410, f. 305, article 1 and this explains why he was sold on approval. Presumably his skills as a smith needed to be tested and proved. Artisans at the Cape often had slaves with particular skills (Shell 1994: 164-65, and see 1719 Jonas van Manado and 1757 Baatjoe van Mandhaar for other examples). On the hiring of artisan slaves, see De Kock 1950: 57-8, Schoeman 2001: 585-86; and 1794 Abraham van Maccassar, n. 5. *
 
-[^3]: * It is interesting that he ran away to Cape Town rather than into
-    the interior. By the later eighteenth century, Cape Town was
-    becoming a larger community in which runaways might hope to conceal
-    themselves and obtain shelter (particularly if they had kin or
-    friends there), although this phenomenon only became marked in the
-    earlier nineteenth century, Worden 1994: 37-8.*
+[^3]: * It is interesting that he ran away to Cape Town rather than into the interior. By the later eighteenth century, Cape Town was becoming a larger community in which runaways might hope to conceal themselves and obtain shelter (particularly if they had kin or friends there), although this phenomenon only became marked in the earlier nineteenth century, Worden 1994: 37-8.*
 
-[^4]: * The case came to court in August, since Julij steadfastly denied
-    guilt. The paragraph at the end of the *sententie *states that he
-    was finally ‘judicially convinced’ of his guilt, which may indicate
-    that he was tortured. Documentation for the case included the
-    *eijsch *(dated 20 June 1776), two testimonies of Johann Ehlers, and
-    testimonies of Christoffel Davel, Jan Wagenmaker of Bergen op den
-    Zoom, Johanna Catharina Nel, Ontong van Boegies and Julij van Timor,
-    CJ 410, ff. 257-316.*
+[^4]: * The case came to court in August, since Julij steadfastly denied guilt. The paragraph at the end of the *sententie *states that he was finally ‘judicially convinced’ of his guilt, which may indicate that he was tortured. Documentation for the case included the *eijsch *(dated 20 June 1776), two testimonies of Johann Ehlers, and testimonies of Christoffel Davel, Jan Wagenmaker of Bergen op den Zoom, Johanna Catharina Nel, Ontong van Boegies and Julij van Timor, CJ 410, ff. 257-316.*
 
-[^5]:  In the *sententie* it is spelled *Tafel*: the letters *d* and *t*
-    were often interchanged in the eighteenth century.
+[^5]:  In the *sententie* it is spelled *Tafel*: the letters *d* and *t* were often interchanged in the eighteenth century.
 
-[^6]:  At first the scribe wrote *hebbende*, and then wrote *had* over
-    the first part of the word without deleting the rest.
+[^6]:  At first the scribe wrote *hebbende*, and then wrote *had* over the first part of the word without deleting the rest.
 
 [^7]:  *Sic*. Clearly *’t slavenhuijs* is meant.
 
 [^8]:  See 1775 Moses van de Caab, n. 7.
 
-[^9]:  Literally ‘pre/before son’. Children born to a person before his
-    or her marriage were called *voorkinderen*, but so too children
-    brought into a marriage by one or the other of the spouses from a
-    previous one, as in this case. Ehlers was married to Johanna
-    Catharina Nel who had nine children by her previous husband, Johann
-    Christian Davel (Hoge 1946: 68 and 85).
+[^9]:  Literally ‘pre/before son’. Children born to a person before his or her marriage were called *voorkinderen*, but so too children brought into a marriage by one or the other of the spouses from a previous one, as in this case. Ehlers was married to Johanna Catharina Nel who had nine children by her previous husband, Johann Christian Davel (Hoge 1946: 68 and 85).
 
-[^10]:  Assuming that *sheur* is *scheur*, and that this was a synonym
-    for *schede* (which interpretation is supported by the *sententie*
-    where the word *schede* is used).
+[^10]:  Assuming that *sheur* is *scheur*, and that this was a synonym for *schede* (which interpretation is supported by the *sententie* where the word *schede* is used).
 
-[^11]:  This must have been a literal reference to Julij’s shortness,
-    since he was 26 years old.
+[^11]:  This must have been a literal reference to Julij’s shortness, since he was 26 years old.
 
-[^12]:  On the night before he was taken prisoner, Julij went to the
-    house of his previous owner, Coenraad Eb, in Cape Town and told one
-    of the slaves there that he had done *quaad* (literally ‘evil’ or
-    ‘bad’) on his owner’s farm and had stabbed the *knecht* and the son
-    of his owner. He added, however, that he did not mean to harm them,
-    but wanted only to have hurt his *baas*, CJ 410, ff. 296-97,
-    testimony of Johan Ehlers, 13 May 1776.
+[^12]:  On the night before he was taken prisoner, Julij went to the house of his previous owner, Coenraad Eb, in Cape Town and told one of the slaves there that he had done *quaad* (literally ‘evil’ or ‘bad’) on his owner’s farm and had stabbed the *knecht* and the son of his owner. He added, however, that he did not mean to harm them, but wanted only to have hurt his *baas*, CJ 410, ff. 296-97, testimony of Johan Ehlers, 13 May 1776.
 
-[^13]:  This was the sentence called for in the *eijsch *and it was
-    recorded in the *regtsrollen *on 1 August, CJ 58, ff. 24-5. It is
-    not clear why it was not executed until 10 August, since punishments
-    were usually administered within two days of sentencing.
+[^13]:  This was the sentence called for in the *eijsch *and it was recorded in the *regtsrollen *on 1 August, CJ 58, ff. 24-5. It is not clear why it was not executed until 10 August, since punishments were usually administered within two days of sentencing. 

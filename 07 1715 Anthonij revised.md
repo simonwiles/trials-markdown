@@ -1,56 +1,16 @@
 # ANTHONIJ
 
-*These testimonies given to the Stellenbosch authorities concern the
-sale of Anthonij, a slave who had been sick for some time. Although the
-purchaser believed that Anthonij could be ‘fattened up’ and would
-recover his health, his inability to eat alarmed the *knecht* working on
-his new owner’s farm. The previous owner was called, together with a
-doctor. We do not know if Anthonij survived his illness, but it seems
-unlikely, since the new purchaser apparently wanted to recoup his losses
-from Anthonij’s previous owner, on the grounds that he had known that he
-was terminally ill when he sold him.[^1] To this end he had drawn
-up attestations of people who could testify to the slave’s illness. Note
-the surprise of the burgher Jacob Mundes, that Anthonij was being
-transported by the wife of his new owner on horseback, rather than
-walking alongside her. Whether this was because all slaves were expected
-to walk, or because it was considered unseemly for a male slave to be on
-horseback with a burgher woman, is not clear.*[^2]
+*These testimonies given to the Stellenbosch authorities concern the sale of Anthonij, a slave who had been sick for some time. Although the purchaser believed that Anthonij could be ‘fattened up’ and would recover his health, his inability to eat alarmed the *knecht* working on his new owner’s farm. The previous owner was called, together with a doctor. We do not know if Anthonij survived his illness, but it seems unlikely, since the new purchaser apparently wanted to recoup his losses from Anthonij’s previous owner, on the grounds that he had known that he was terminally ill when he sold him.[^1] To this end he had drawn up attestations of people who could testify to the slave’s illness. Note the surprise of the burgher Jacob Mundes, that Anthonij was being transported by the wife of his new owner on horseback, rather than walking alongside her. Whether this was because all slaves were expected to walk, or because it was considered unseemly for a male slave to be on horseback with a burgher woman, is not clear.*[^2]
 
 **1/STB 18/157** Notariële Verklaringen, 1715-1720, unpaginated.
 
-Huijden, den 6^e^ Februarij anno 1715, compareerde voor mij, Ernst
-Fredrik de Swart, secretaris van Stellenbosch en Drakenstijn etc.,
-present de naargenoemde getuijgen, de burger Jacob Mundes, d’welke, per
-requisitie van den burger en chirurgijn Dirk Snith, verklaart hoe waar
-en waaraghtigh is:
+Huijden, den 6^e^ Februarij anno 1715, compareerde voor mij, Ernst Fredrik de Swart, secretaris van Stellenbosch en Drakenstijn etc., present de naargenoemde getuijgen, de burger Jacob Mundes, d’welke, per requisitie van den burger en chirurgijn Dirk Snith, verklaart hoe waar en waaraghtigh is:
 
-Dat hij deposant heeft gesien op den 3^e^ November 1714 dat de requirant
-zijn huijsvrouw te paard is coomen rijden van Stellenbosch naar des
-requirants hofsteede, leggende omtrent een uur van Stellenbosch, agter
-op haar paard hebbende een slaaff, genaamt Antonij, die den
-krankbesoeker Jan Mahieu denselven dagh aan den requirant verkogt had.
-Den disposant \[*sic*\] aan des requirants huijsvrouwe gevragt \[*sic*\]
-hebbende watter \[*sic*\] aan scheelde dat sij den slaaff bij haar op
-het paard nam, en niet te voet naar booven liet gaan, d’welke den
-disposant antwoorde dat den gemelde slaaff soo flau en swak was, dat hij
-soo verre niet konde voeteeren, dogh daarbij voegde: Soo in gevalle hem
-anders maar niet en scheelt als mager oft flauwigheijt, sal ik hem wel
-haast teregt helpen en vet maaken. Daarop is meergemelde slaaff Anthonij
-den anderen dagh gecoomen bij den disposant op de post van den out
-heemraad Jan Botma, alwaar hij disposant voor knegt bescheijden was, en
-aan hem disposant geklaagt dat hij niet in staat was om eenigh werk te
-kunne doen, vermits nu all eenigh tijd siekelijk was geweest. Den
-disposant nogh aan den voornoemde slaaff Anthonij een stuk eeten
-presenteerde, maar wilden ’tselve niet accepteeren, met seggen: Sinijeur
-\[*sic*\], ik en kan niet eeten, ik heb te grote pijn op mijn borst.
+Dat hij deposant heeft gesien op den 3^e^ November 1714 dat de requirant zijn huijsvrouw te paard is coomen rijden van Stellenbosch naar des requirants hofsteede, leggende omtrent een uur van Stellenbosch, agter op haar paard hebbende een slaaff, genaamt Antonij, die den krankbesoeker Jan Mahieu denselven dagh aan den requirant verkogt had. Den disposant \[*sic*\] aan des requirants huijsvrouwe gevragt \[*sic*\] hebbende watter \[*sic*\] aan scheelde dat sij den slaaff bij haar op het paard nam, en niet te voet naar booven liet gaan, d’welke den disposant antwoorde dat den gemelde slaaff soo flau en swak was, dat hij soo verre niet konde voeteeren, dogh daarbij voegde: Soo in gevalle hem anders maar niet en scheelt als mager oft flauwigheijt, sal ik hem wel haast teregt helpen en vet maaken. Daarop is meergemelde slaaff Anthonij den anderen dagh gecoomen bij den disposant op de post van den out heemraad Jan Botma, alwaar hij disposant voor knegt bescheijden was, en aan hem disposant geklaagt dat hij niet in staat was om eenigh werk te kunne doen, vermits nu all eenigh tijd siekelijk was geweest. Den disposant nogh aan den voornoemde slaaff Anthonij een stuk eeten presenteerde, maar wilden ’tselve niet accepteeren, met seggen: Sinijeur \[*sic*\], ik en kan niet eeten, ik heb te grote pijn op mijn borst.
 
-Verder verklaart hij disposant niets, maar geeft het voor reeden van
-weetenschappen als in den text, met presentatie, sulks desnoots en
-daartoe versogt zijn, ’tselve met eeden nader gestand te doen.
+Verder verklaart hij disposant niets, maar geeft het voor reeden van weetenschappen als in den text, met presentatie, sulks desnoots en daartoe versogt zijn, ’tselve met eeden nader gestand te doen.
 
-Aldus gepasseert ter secretarij \[*sic*\] van Stellenbosch ten overstaan
-van de coster Bastiaan Cevaal en den burger Roeloff Joonasse, als
-getuijgen hiertoe versogt.
+Aldus gepasseert ter secretarij \[*sic*\] van Stellenbosch ten overstaan van de coster Bastiaan Cevaal en den burger Roeloff Joonasse, als getuijgen hiertoe versogt.
 
 Dit X is het merk van Jacob Mundes.
 
@@ -60,40 +20,15 @@ In kennisse van mij, \[get.\] E. Fk. de Swart, secretaris.
 
 **1/STB 18/157** Notariële Verklaringen, 1715-1720, unpaginated.
 
-Huijden, den 6^e^ Februarij anno 1715, compareerde voor mij, Ernst
-Fredrik de Swart, secretaris van Stellenbosch en Drakenstijn etc.,
-present de naargenoemde getuijgen, Margarita Coenen, weduwe den
-\[*sic*\] geweese secretaris Jan Swart, en Eliesabeth \[*sic*\] Jansz,
-huijsvrouw van den burger Hendrik Loos, d’welke, ter reqesitie \[*sic*\]
-van den burger en chirurgijn Dirk Snidt, verklaaren dit naar volgende:
+Huijden, den 6^e^ Februarij anno 1715, compareerde voor mij, Ernst Fredrik de Swart, secretaris van Stellenbosch en Drakenstijn etc., present de naargenoemde getuijgen, Margarita Coenen, weduwe den \[*sic*\] geweese secretaris Jan Swart, en Eliesabeth \[*sic*\] Jansz, huijsvrouw van den burger Hendrik Loos, d’welke, ter reqesitie \[*sic*\] van den burger en chirurgijn Dirk Snidt, verklaaren dit naar volgende:
 
-Eerstelijk verklaart de eerste comparante Margarita Coenen, als dat se,
-sonder de nette dagh onthoud te hebben, is geroepen geworden door een
-slaaff van den crankbesoeker Jan Mahieu, offte sij eens geliefde over te
-coomen, met seggen: Antoonij, die sterft, soo is zij deposante
-overgegaan en, daar gecoomen zijnde, verklaart zij deposante gesien te
-hebben dat gemelde slaaff Antonij in een floute lagh, heeft daatelijk om
-desselfs meester, boovengenoemde Mahieu, gesonden, die derselvertijd ten
-huijse van den chirurgijn Daniel Pfeijl was, en ook datelijk met
-malkanderen zijn daar gecoomen. Ziende gemelte slaaff Anthoonij nogh in
-die staat, soo heeft den meergemelte chirurgijn Pfeijl, den
-bovengenoemde slaaff Antonij een slagh off twee in het aangesigte
-gegeven, is opgereesen en heeft gevraagt: Sinijeur \[*sic*\], wat
-blieftije \[*sic*\], dogh zij comparante niet weet wat siekte dat het
-was.
+Eerstelijk verklaart de eerste comparante Margarita Coenen, als dat se, sonder de nette dagh onthoud te hebben, is geroepen geworden door een slaaff van den crankbesoeker Jan Mahieu, offte sij eens geliefde over te coomen, met seggen: Antoonij, die sterft, soo is zij deposante overgegaan en, daar gecoomen zijnde, verklaart zij deposante gesien te hebben dat gemelde slaaff Antonij in een floute lagh, heeft daatelijk om desselfs meester, boovengenoemde Mahieu, gesonden, die derselvertijd ten huijse van den chirurgijn Daniel Pfeijl was, en ook datelijk met malkanderen zijn daar gecoomen. Ziende gemelte slaaff Anthoonij nogh in die staat, soo heeft den meergemelte chirurgijn Pfeijl, den bovengenoemde slaaff Antonij een slagh off twee in het aangesigte gegeven, is opgereesen en heeft gevraagt: Sinijeur \[*sic*\], wat blieftije \[*sic*\], dogh zij comparante niet weet wat siekte dat het was.
 
-Verder verklaart de tweede comparante, Eliesabeth, als dat den
-meergemelde slaaff Anthoonij, ten tijden dat hij nogh bij den
-crankbesoeker Jan Mahieu was, meesten tijd siekelijk is geweest, dogh
-niet en weet wat eijgentlijk zijne \[*sic*\] quaale waaren.
+Verder verklaart de tweede comparante, Eliesabeth, als dat den meergemelde slaaff Anthoonij, ten tijden dat hij nogh bij den crankbesoeker Jan Mahieu was, meesten tijd siekelijk is geweest, dogh niet en weet wat eijgentlijk zijne \[*sic*\] quaale waaren.
 
-Verder verklaaren zij deposanten niets, maar geeft het voor reeden van
-weetenschappen als in den text, sulks desnoots en daartoe versogt
-zijnde, gewilligh ’tselven ten allen tijden met eeden te bekragtigen.
+Verder verklaaren zij deposanten niets, maar geeft het voor reeden van weetenschappen als in den text, sulks desnoots en daartoe versogt zijnde, gewilligh ’tselven ten allen tijden met eeden te bekragtigen.
 
-Aldus gedaan en gepasseert ter secretarij van Stellenbosch, ten
-overstaan van de coster Bastiaan Cevaal en den burger Roloff Joonasse,
-als getuijgen hiertoe versoght.
+Aldus gedaan en gepasseert ter secretarij van Stellenbosch, ten overstaan van de coster Bastiaan Cevaal en den burger Roloff Joonasse, als getuijgen hiertoe versoght.
 
 Dit X is het merk van Margarita Coenen.
 
@@ -105,38 +40,13 @@ In kennisse van mij, \[get.\] E. Fk. de Swart, secretaris.
 
 TRANSLATION
 
-Today, 6 February in the year 1715, there appears before me, Ernst
-Fredrik de Swart, secretary of Stellenbosch and Drakenstein etc., in the
-presence of the witnesses named below, the burgher Jacob Mundes, who, on
-the requisition of the burgher and surgeon Dirk Snith, declares it to be
-true and truthful:
+Today, 6 February in the year 1715, there appears before me, Ernst Fredrik de Swart, secretary of Stellenbosch and Drakenstein etc., in the presence of the witnesses named below, the burgher Jacob Mundes, who, on the requisition of the burgher and surgeon Dirk Snith, declares it to be true and truthful:
 
-That on 3 November 1714, he saw the petitioner’s wife coming on
-horseback from Stellenbosch on her way to the petitioner’s farm,
-situated about an hour from Stellenbosch, having on the back of the
-horse a slave named Anthonij, which the sick comforter Jan Mahieu had
-sold that same day to the petitioner. The deponent asked the wife of the
-petitioner why she had taken the slave with her on the horse and did not
-let him go up by foot, who answered that the said slave was so feeble
-and weak that he could not walk so far, but added to this: “As long as
-nothing is the matter with him but scrawniness and feebleness, I will
-soon put him right and fatten him”. Thereupon, on the following day, the
-aforementioned slave Anthonij came to the deponent on the post of the
-former *heemraad* Jan Botma, where the deponent was assigned as
-*knecht*, and complained to him, the deponent, that he was incapable of
-doing any work, since he had been sickly for quite a while now. The
-deponent also wanted to give the aforenamed slave Anthonij a piece of
-food, but he would not accept it, saying: “*Sinjeur*, I cannot eat, I
-have too much pain in my chest.”
+That on 3 November 1714, he saw the petitioner’s wife coming on horseback from Stellenbosch on her way to the petitioner’s farm, situated about an hour from Stellenbosch, having on the back of the horse a slave named Anthonij, which the sick comforter Jan Mahieu had sold that same day to the petitioner. The deponent asked the wife of the petitioner why she had taken the slave with her on the horse and did not let him go up by foot, who answered that the said slave was so feeble and weak that he could not walk so far, but added to this: “As long as nothing is the matter with him but scrawniness and feebleness, I will soon put him right and fatten him”. Thereupon, on the following day, the aforementioned slave Anthonij came to the deponent on the post of the former *heemraad* Jan Botma, where the deponent was assigned as *knecht*, and complained to him, the deponent, that he was incapable of doing any work, since he had been sickly for quite a while now. The deponent also wanted to give the aforenamed slave Anthonij a piece of food, but he would not accept it, saying: “*Sinjeur*, I cannot eat, I have too much pain in my chest.”
 
-The deponent declares nothing further, but asserts to be convinced of
-the accuracy of his testimony as given in the text, while offering to
-subsequently confirm the same with oaths, if need be, and if so
-requested.
+The deponent declares nothing further, but asserts to be convinced of the accuracy of his testimony as given in the text, while offering to subsequently confirm the same with oaths, if need be, and if so requested.
 
-Thus recorded in the secretary’s office in Stellenbosch, in the presence
-of the beadle Bastiaan Cevaal and the burgher Roeloff Joonasse,
-requested as witnesses hereto.
+Thus recorded in the secretary’s office in Stellenbosch, in the presence of the beadle Bastiaan Cevaal and the burgher Roeloff Joonasse, requested as witnesses hereto.
 
 This X is the mark of Jacob Mundes.
 
@@ -146,39 +56,15 @@ With my cognisance, \[signed\] E. Fk. de Swart, secretary.
 
 TRANSLATION
 
-Today, 6 February in the year 1715, there appear before me, Ernst
-Fredrik de Swart, secretary of Stellenbosch and Drakenstein etc., in the
-presence of the witnesses named below, Margarita Coenen, widow of the
-former secretary Jan Swart, and Eliesabeth \[*sic*\] Jansz, wife of the
-burgher Hendrik Loos, who, on the requisition of the burgher and surgeon
-Dirk Snidt \[*sic*\], declare the following:
+Today, 6 February in the year 1715, there appear before me, Ernst Fredrik de Swart, secretary of Stellenbosch and Drakenstein etc., in the presence of the witnesses named below, Margarita Coenen, widow of the former secretary Jan Swart, and Eliesabeth \[*sic*\] Jansz, wife of the burgher Hendrik Loos, who, on the requisition of the burgher and surgeon Dirk Snidt \[*sic*\], declare the following:
 
-Firstly, the first deponent, Margarita Coenen, declares that she,
-without being able to remember the exact day, was called by a slave of
-the sick comforter Jan Mahieu, asking if she would please come over,
-while saying: “Antoonij is dying”. The deponent went over and when she
-got there, she declares that, seeing the said slave Antonij lying in a
-swoon, she immediately sent for his master, the aforementioned Mahieu,
-who, at that time, was at the house of the surgeon Daniel Pfeijl, and
-who also instantly arrived there together. Seeing the said slave
-Anthoonij still in that state, the said surgeon Pfeijl gave the
-aforementioned slave Antonij one or two slaps in the face, when he rose
-up and asked: “*Sinjeur*, what do you wish?”; yet she, the deponent,
-does not know what this illness was.
+Firstly, the first deponent, Margarita Coenen, declares that she, without being able to remember the exact day, was called by a slave of the sick comforter Jan Mahieu, asking if she would please come over, while saying: “Antoonij is dying”. The deponent went over and when she got there, she declares that, seeing the said slave Antonij lying in a swoon, she immediately sent for his master, the aforementioned Mahieu, who, at that time, was at the house of the surgeon Daniel Pfeijl, and who also instantly arrived there together. Seeing the said slave Anthoonij still in that state, the said surgeon Pfeijl gave the aforementioned slave Antonij one or two slaps in the face, when he rose up and asked: “*Sinjeur*, what do you wish?”; yet she, the deponent, does not know what this illness was.
 
-Further, the second deponent, Eliesabeth, declares that the
-aforementioned slave Anthoonij, during the time that he had still been
-with the sick comforter Jan Mahieu, was sickly most of the time,
-although she does not know what exactly had been his ailment.
+Further, the second deponent, Eliesabeth, declares that the aforementioned slave Anthoonij, during the time that he had still been with the sick comforter Jan Mahieu, was sickly most of the time, although she does not know what exactly had been his ailment.
 
-The deponents declare nothing further, but assert to be convinced of the
-accuracy of their testimonies as given in the text, being willing, at
-all times, if need be and if so requested, to confirm the same with
-oaths.
+The deponents declare nothing further, but assert to be convinced of the accuracy of their testimonies as given in the text, being willing, at all times, if need be and if so requested, to confirm the same with oaths.
 
-Thus done and recorded in the secretary’s office in Stellenbosch, in the
-presence of the beadle Bastiaan \[*sic*\] Cevaal and the burgher Roloff
-Joonasse \[*sic*\], requested as witnesses hereto.
+Thus done and recorded in the secretary’s office in Stellenbosch, in the presence of the beadle Bastiaan \[*sic*\] Cevaal and the burgher Roloff Joonasse \[*sic*\], requested as witnesses hereto.
 
 This X is the mark of Margarita Coenen.
 
@@ -188,13 +74,6 @@ As witnesses, \[signed\] Bastiaen Cevaal, Roloff Jonasse.
 
 With my cognisance, \[signed\] E. Fk. de Swart, secretary.
 
-[^1]: * According to Batavian legislation, a slave purchaser could claim
-    back his costs if the slave was proved to be permanently sick,
-    mentally incapacitated or ‘mad’, but there is no evidence that this
-    happened in this case. See Biewenga 1999: 108-9. *
+[^1]: * According to Batavian legislation, a slave purchaser could claim back his costs if the slave was proved to be permanently sick, mentally incapacitated or ‘mad’, but there is no evidence that this happened in this case. See Biewenga 1999: 108-9. *
 
-[^2]: * Biewenga (1999: 108) sees this detail, and the concern over
-    Anthonij’s health, as a sign that slaves, though possessions, were
-    treated ‘like humans’. Concern for the health of a newly purchased
-    slave may have indicated more about the owners’ desire to ensure
-    that the investment in their purchase would be worthwhile.*
+[^2]: * Biewenga (1999: 108) sees this detail, and the concern over Anthonij’s health, as a sign that slaves, though possessions, were treated ‘like humans’. Concern for the health of a newly purchased slave may have indicated more about the owners’ desire to ensure that the investment in their purchase would be worthwhile.* 

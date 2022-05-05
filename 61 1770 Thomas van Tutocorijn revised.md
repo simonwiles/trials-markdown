@@ -1,441 +1,87 @@
 # THOMAS VAN TUTOCORIJN
 
-*In this case, Thomas van Tutocorijn, a 40-year-old slave who had lived
-since his childhood on the same farm,[^1] attacked first one of
-the house slaves, Gedult, and then threatened his owner, the widow
-Adriana Debits. The case is interesting for the details it gives of the
-distinction between different slaves on this large Koeberg
-farm.[^2] Gedult was described as an ‘old house slave’ who slept
-in the main house, while the others were in separate slave
-quarters.[^3] Adriana Debits questioned why some of the latter
-should be sleeping in the main house. The evidence thus suggests a
-distinction between house slaves and farm slaves which was
-characteristic of large slave plantations in the Americas, but was not
-universal on the smaller farms of the Cape.[^4] *
+*In this case, Thomas van Tutocorijn, a 40-year-old slave who had lived since his childhood on the same farm,[^1] attacked first one of the house slaves, Gedult, and then threatened his owner, the widow Adriana Debits. The case is interesting for the details it gives of the distinction between different slaves on this large Koeberg farm.[^2] Gedult was described as an ‘old house slave’ who slept in the main house, while the others were in separate slave quarters.[^3] Adriana Debits questioned why some of the latter should be sleeping in the main house. The evidence thus suggests a distinction between house slaves and farm slaves which was characteristic of large slave plantations in the Americas, but was not universal on the smaller farms of the Cape.[^4] *
 
 **CJ 792** Sententiën, 1768-1771, ff. 154-76.
 
-Alsoo Thomas van Tutucorijn, slaaf van Adriana Debits, weeduwe van
-wijlen den landbouwer Andries Bester de jonge, oud naar gissing veertig
-jaaren, thans ’s heeren gevangen, vrijwillig beleeden heeft, en den
-edelachtbaare Raad van Justitie deeses gouvernements, uijt de verdere,
-ten processe gefourneerde, stucken evident gebleeken is:
+Alsoo Thomas van Tutucorijn, slaaf van Adriana Debits, weeduwe van wijlen den landbouwer Andries Bester de jonge, oud naar gissing veertig jaaren, thans ’s heeren gevangen, vrijwillig beleeden heeft, en den edelachtbaare Raad van Justitie deeses gouvernements, uijt de verdere, ten processe gefourneerde, stucken evident gebleeken is:
 
-Dat des gevangens lijfvrouw, op den 13 October jongstleeden, ’s avonds
-vijf haarer slaven jongens gelast hebbende om hun ’s volgenden morgens
-van haaren plaats, genaamt De Matjesfonteijn, geleegen in de Koebergen,
-te begeeven naar de plaats van derselver schoonmoeder, de weeduwe
-Andries Bester de oude, genaamt De Modderfonteijn, ten eijnde aldaar
-garst te sneijden; den gevangen wanneer gemelde sijne lijfvrouw,
-beneevens haare kinderen, reeds aan tafel te eeten sat, bij deselve
-gekoomen is en tot twee differente rheijsen versogt heeft om met de
-voorseijde slaven meede te mogen gaan; ’twelk hem door desselfs
-lijfvrouw telkens geweigert sijnde, onder ’t essentieele seggen: Gij en
-Gedult moeten te huijs blijven om de kleij tot den trapvloer nat te
-maaken. Den gevangen, die een weijnig beschonken geweest was, naar ’t
-laatste maal daarop geantwoord te hebben: Ja, mijn nonje!, sig uijt het
-woonhuijs weg, en naar ’t slavenhuijs begeeven heeft.
+Dat des gevangens lijfvrouw, op den 13 October jongstleeden, ’s avonds vijf haarer slaven jongens gelast hebbende om hun ’s volgenden morgens van haaren plaats, genaamt De Matjesfonteijn, geleegen in de Koebergen, te begeeven naar de plaats van derselver schoonmoeder, de weeduwe Andries Bester de oude, genaamt De Modderfonteijn, ten eijnde aldaar garst te sneijden; den gevangen wanneer gemelde sijne lijfvrouw, beneevens haare kinderen, reeds aan tafel te eeten sat, bij deselve gekoomen is en tot twee differente rheijsen versogt heeft om met de voorseijde slaven meede te mogen gaan; ’twelk hem door desselfs lijfvrouw telkens geweigert sijnde, onder ’t essentieele seggen: Gij en Gedult moeten te huijs blijven om de kleij tot den trapvloer nat te maaken. Den gevangen, die een weijnig beschonken geweest was, naar ’t laatste maal daarop geantwoord te hebben: Ja, mijn nonje!, sig uijt het woonhuijs weg, en naar ’t slavenhuijs begeeven heeft.
 
-Dat den gevangen dien eijgensten avond, naar dat desselfs lijfvrouw haar
-reeds ter rust begeeven en de kamer geslooten had, de klocke naar
-gissing neegen uuren, onder praetext dat water drinken wilde, in de
-combuijs gekoomen sijnde, hij gevangen, naar gedronken te hebben, weeder
-naar buijten gegaan, egter kort daarop terug gekoomen is, en tot den
-slaven jongen Gedult, dewelke, beneevens de slavinne Eva, gewoonlijk in
-de combuijs slapende, dus beijde alleenig daarin geweest waaren, gesegt
-heeft: Daar buijten backeleijen de jongens October en Jappan! Gij bent
-soo een oude huijsjongen, gaat heen en scheijd se van malkanderen!, dog
-aan welk seggen voorseijde Gedult sig geensins stoorende, den gevangen
-daarop substantieelijk toegevoegt had: Laat se maar begaan! Die de
-sterkste is, sal wel booven leggen! Sijnde gemelde Gedult mitsdien in de
-combuijs gebleeven, en ’t voormeldde bakkelijen door den gevangen slegts
-verdigt geweest.
+Dat den gevangen dien eijgensten avond, naar dat desselfs lijfvrouw haar reeds ter rust begeeven en de kamer geslooten had, de klocke naar gissing neegen uuren, onder praetext dat water drinken wilde, in de combuijs gekoomen sijnde, hij gevangen, naar gedronken te hebben, weeder naar buijten gegaan, egter kort daarop terug gekoomen is, en tot den slaven jongen Gedult, dewelke, beneevens de slavinne Eva, gewoonlijk in de combuijs slapende, dus beijde alleenig daarin geweest waaren, gesegt heeft: Daar buijten backeleijen de jongens October en Jappan! Gij bent soo een oude huijsjongen, gaat heen en scheijd se van malkanderen!, dog aan welk seggen voorseijde Gedult sig geensins stoorende, den gevangen daarop substantieelijk toegevoegt had: Laat se maar begaan! Die de sterkste is, sal wel booven leggen! Sijnde gemelde Gedult mitsdien in de combuijs gebleeven, en ’t voormeldde bakkelijen door den gevangen slegts verdigt geweest.
 
-Dat den gevangen alsdoen, tot drie successive maalen, in ’t digt bij ’t
-woonhuijs staande hoenderhok gegaan sijnde, de hoenders niet alleen
-daaruijt gejaagt, en daar door een groot geraas veroorsaakt, maar ook
-een dier hoenderen gevangen heeft; ’twelke door voorseijde Gedult en Eva
-gesien werdende, heeft meergemelde Gedult den gevangen gevraagt: Wat
-maakt gij daar?, met bijvoeging: Nonje slaapt!, waarop den gevangen
-geantwoord hebbende: Ik wil hoenders vangen! Op de verdere vrage van
-voorseijde Gedult: Wat wilt gij daarmeede doen?, substantieelijk gesegt
-heeft: Ik wil se eeten! Swijgt gij maar stil, en segt niet daarvan!,
-hebbende sig voorts, ten derde maale bij voormelde, in de combuijsdeur
-staande, Gedult begeeven, en tot denselven bij reïteratie gesegt: Daar
-backelijen twee jongens, waarom gaat ghij, als een oude huijs jongen,
-niet heen om se te scheijden!
+Dat den gevangen alsdoen, tot drie successive maalen, in ’t digt bij ’t woonhuijs staande hoenderhok gegaan sijnde, de hoenders niet alleen daaruijt gejaagt, en daar door een groot geraas veroorsaakt, maar ook een dier hoenderen gevangen heeft; ’twelke door voorseijde Gedult en Eva gesien werdende, heeft meergemelde Gedult den gevangen gevraagt: Wat maakt gij daar?, met bijvoeging: Nonje slaapt!, waarop den gevangen geantwoord hebbende: Ik wil hoenders vangen! Op de verdere vrage van voorseijde Gedult: Wat wilt gij daarmeede doen?, substantieelijk gesegt heeft: Ik wil se eeten! Swijgt gij maar stil, en segt niet daarvan!, hebbende sig voorts, ten derde maale bij voormelde, in de combuijsdeur staande, Gedult begeeven, en tot denselven bij reïteratie gesegt: Daar backelijen twee jongens, waarom gaat ghij, als een oude huijs jongen, niet heen om se te scheijden!
 
-Dat den gevangen, vermits voorseijde Gedult, sig aan dat seggen weederom
-niet gestoord had, quaad geworden sijnde; oversulx eene, beseijden de
-combuijs staande, graave genoomen en met deselve twee slagen naar
-meergemelde Gedult gedaan, mitsgaders door den eersten slag, in steede
-van ’t hoofd, slegts de schouder en met den tweeden, de hand dies jongen
-geraakt hebbende, gemelde Gedult de graave aan ’t eene eijnd gegreepen,
-en den gevangen, die deselve aan ’t andere eijnde vasthield, met sijne
-hand buijten de deur gestooten heeft; als wanneer den gevangen met een,
-bij sig hebbende, mes naar voorseijde Gedult gestooken, egter niet
-geraakt had, gemerkt denselven, op ’t ontwaaren van ’t mes, de graave
-loslaatende, sig naar het slavenhuijs begeeven en twee sijner meede
-slaven tot hulpe geroepen hebbende, den gevangen, soo dra sulx
-bespeurde, van de combuijs weg en naar het kafhok geloopen, mitsgaders
-aldaar verbleeven is, totdat de verdere slaven, de deur van ’t
-slavenhuijs van binnen toebindende, hun tot slaapen begeeven hadden,
-wanneer den gevangen door ’t venster in ’t slavenhuijs geklommen sijnde,
-daarin tot den dageraad vertoeft, en toen weeder naar ’t kafhok, dat in
-den paardestal is, terug keerende, sig aldaar digt agter de kribbe, soo
-hij voorwende, om te slaapen, needergelegt heeft. Middelerwijl dat des
-gevangens lijfvrouw, die als vast geslaapen hebbende, van de, door den
-gevangen ’s voorigen avonds gepleegde, feijtelijkheeden niets had
-gehoord, wanneer ’s morgens vroeg opstond en, behalven voorseijde Gedult
-en Eva, nog twee haarer slaven in de combuijs slaapende vond, gevraagt
-had wat sulx beduijdde, op het, aan haar gedaane verhaal, van ’t door
-den gevangen, soo in de combuijs als hoenderhok, bedreevene,
-gesustineert had dat den gevangen aan ’t drossen gegaan was.
+Dat den gevangen, vermits voorseijde Gedult, sig aan dat seggen weederom niet gestoord had, quaad geworden sijnde; oversulx eene, beseijden de combuijs staande, graave genoomen en met deselve twee slagen naar meergemelde Gedult gedaan, mitsgaders door den eersten slag, in steede van ’t hoofd, slegts de schouder en met den tweeden, de hand dies jongen geraakt hebbende, gemelde Gedult de graave aan ’t eene eijnd gegreepen, en den gevangen, die deselve aan ’t andere eijnde vasthield, met sijne hand buijten de deur gestooten heeft; als wanneer den gevangen met een, bij sig hebbende, mes naar voorseijde Gedult gestooken, egter niet geraakt had, gemerkt denselven, op ’t ontwaaren van ’t mes, de graave loslaatende, sig naar het slavenhuijs begeeven en twee sijner meede slaven tot hulpe geroepen hebbende, den gevangen, soo dra sulx bespeurde, van de combuijs weg en naar het kafhok geloopen, mitsgaders aldaar verbleeven is, totdat de verdere slaven, de deur van ’t slavenhuijs van binnen toebindende, hun tot slaapen begeeven hadden, wanneer den gevangen door ’t venster in ’t slavenhuijs geklommen sijnde, daarin tot den dageraad vertoeft, en toen weeder naar ’t kafhok, dat in den paardestal is, terug keerende, sig aldaar digt agter de kribbe, soo hij voorwende, om te slaapen, needergelegt heeft. Middelerwijl dat des gevangens lijfvrouw, die als vast geslaapen hebbende, van de, door den gevangen ’s voorigen avonds gepleegde, feijtelijkheeden niets had gehoord, wanneer ’s morgens vroeg opstond en, behalven voorseijde Gedult en Eva, nog twee haarer slaven in de combuijs slaapende vond, gevraagt had wat sulx beduijdde, op het, aan haar gedaane verhaal, van ’t door den gevangen, soo in de combuijs als hoenderhok, bedreevene, gesustineert had dat den gevangen aan ’t drossen gegaan was.
 
-Dat des gevangens lijfvrouw, volgens haare, den gevangen bekende,
-dagelijkse gewoonte, kort daarop, om eijeren te soeken, naar den stal
-gegaan sijnde; sij, ofschoon andersins sulx altoos alleenig pleegt te
-doen, egter, dewijl eenige pijnen in haare beenen gevoeldde, dien
-morgen, ingevalle sulx noodig sijn mogte, ter haarer ondersteuning den
-slaven jongen Abraham meede derwaards genoomen heeft; sijnde den
-gevangen door gemelde sijne lijfvrouw, soo als beesig was om op de
-kribbe te klimmen, digt agter deselve, teegens de muur leggende,
-ontdekt; des sij gevangen, tot twee maalen toe, bij naame had geroepen;
-egter het eerstemaal geene antwoord bekoomen, terwijl den gevangen op ’t
-tweede geroep, en bijvoeging: Komt gij maar hier!, naar gesteund te
-hebben, gesegt had: Ik heb hoofdpijn!
+Dat des gevangens lijfvrouw, volgens haare, den gevangen bekende, dagelijkse gewoonte, kort daarop, om eijeren te soeken, naar den stal gegaan sijnde; sij, ofschoon andersins sulx altoos alleenig pleegt te doen, egter, dewijl eenige pijnen in haare beenen gevoeldde, dien morgen, ingevalle sulx noodig sijn mogte, ter haarer ondersteuning den slaven jongen Abraham meede derwaards genoomen heeft; sijnde den gevangen door gemelde sijne lijfvrouw, soo als beesig was om op de kribbe te klimmen, digt agter deselve, teegens de muur leggende, ontdekt; des sij gevangen, tot twee maalen toe, bij naame had geroepen; egter het eerstemaal geene antwoord bekoomen, terwijl den gevangen op ’t tweede geroep, en bijvoeging: Komt gij maar hier!, naar gesteund te hebben, gesegt had: Ik heb hoofdpijn!
 
-Dat den gevangen door sijne, intusschen uijt den stal en tot voor dies
-deur gereverteerde, lijfvrouw opnieuws gelast geworden sijnde om van
-agter de kribbe en bij haar te koomen, hij gevangen, en sulx wel
-schorvoetende, gedaan, egter in de staldeur stil gestaan, en aan het
-kassijn rustende, de hand teegens sijn hoofd gehouden had, eeven alsof
-met hoofdpijn behebt was; dan des gevangens lijfvrouw, naar tot den
-gevangen gesegt te hebben: Komt gij maar hier!, soetjes de kraal uijt en
-naar het woonhuijs gegaan sijnde, had, wanneer bespeurdde, dat den
-gevangen bij de kraalmuur wat afdraaijde, voorseijde Abraham, dewijl
-seer doof is, soo door fluijten als teekenen, te verstaan gegeeven dat
-hij den gevangen meede naar huijs brengen moest; invoegen den gevangen
-met dien jongen ook tot voor de huijsdeur gekoomen was.
+Dat den gevangen door sijne, intusschen uijt den stal en tot voor dies deur gereverteerde, lijfvrouw opnieuws gelast geworden sijnde om van agter de kribbe en bij haar te koomen, hij gevangen, en sulx wel schorvoetende, gedaan, egter in de staldeur stil gestaan, en aan het kassijn rustende, de hand teegens sijn hoofd gehouden had, eeven alsof met hoofdpijn behebt was; dan des gevangens lijfvrouw, naar tot den gevangen gesegt te hebben: Komt gij maar hier!, soetjes de kraal uijt en naar het woonhuijs gegaan sijnde, had, wanneer bespeurdde, dat den gevangen bij de kraalmuur wat afdraaijde, voorseijde Abraham, dewijl seer doof is, soo door fluijten als teekenen, te verstaan gegeeven dat hij den gevangen meede naar huijs brengen moest; invoegen den gevangen met dien jongen ook tot voor de huijsdeur gekoomen was.
 
-Dat des gevangens lijfvrouw, in haare huijsdeur sijnde blijven staan,
-siende dat den gevangen in sijn roksak een mes hadde, denselven gelast
-hebbende om dat mes aan de slaaf Abraham over te geeven, den gevangen
-daarop niet alleen had geantwoord: Ik heb geen mes!, maar ook teffens,
-iets agteruijt wijkende, het mes getrocken en, onder het gins en weeder
-swaaijen van ’tselve, teegens sijne lijfvrouw gesegt had: Toe! komt nu
-hier!, des deselve gemelde slaaf Abraham, invoegen voorseijde gelast
-hebbende om den gevangen te vatten, dien jongen, soo door bevreestheijd,
-als door ’t gins en weer swaaijen van ’t mes, sulx niet had kunnen doen;
-al waaromme des gevangens lijfvrouw sig had begeeven naar ’t, omtrent
-twintig treeden van de huijsdeur af staande, ganse hok, vandaar een stok
-gehaald, en dien naar bovengemelde Abraham geworpen, onder ’t seggen:
-Toe, neemt dien stok! En slaat hem op de kop!
+Dat des gevangens lijfvrouw, in haare huijsdeur sijnde blijven staan, siende dat den gevangen in sijn roksak een mes hadde, denselven gelast hebbende om dat mes aan de slaaf Abraham over te geeven, den gevangen daarop niet alleen had geantwoord: Ik heb geen mes!, maar ook teffens, iets agteruijt wijkende, het mes getrocken en, onder het gins en weeder swaaijen van ’tselve, teegens sijne lijfvrouw gesegt had: Toe! komt nu hier!, des deselve gemelde slaaf Abraham, invoegen voorseijde gelast hebbende om den gevangen te vatten, dien jongen, soo door bevreestheijd, als door ’t gins en weer swaaijen van ’t mes, sulx niet had kunnen doen; al waaromme des gevangens lijfvrouw sig had begeeven naar ’t, omtrent twintig treeden van de huijsdeur af staande, ganse hok, vandaar een stok gehaald, en dien naar bovengemelde Abraham geworpen, onder ’t seggen: Toe, neemt dien stok! En slaat hem op de kop!
 
-Dat den gevangen, die slegts weijnige treeden van desselfs lijfvrouw af
-stond, sulx hoorende, naar gesegt te hebben: Op de kop!, niet alleen
-teffens daarbij gevoegt had: Jou moet ik hebben!, maar ook immediaat een
-sprong naar gemelde sijne lijfvrouw gedaan en gepoogt had haar met het,
-in handen hebbende, mes een steek toe te brengen; welken steek, des
-gevangens lijfvrouw, sonder dat door ontsteltenis weet op hoedanigen
-wijse, ontweeken en in huijs geraakt sijnde, den gevangen het op een
-loop geset, omtrent veertig treeden van ’t huijs af stil gestaan, sig
-omgekeert, en aan sijne lijfvrouw, onder ’t slaan met de eene hand op
-sijn hoofd, het mes nogmaals geweesen, ’tselve vervolgens in den sak
-gestooken, en op dien sak met sijne hand insgelijx een slag gedaan
-hebbende, voorts van de plaats weggeloopen was; sijnde den gevangen
-egter nog dien selfden dag door den landbouwer Jacobus Bester, beneevens
-eenige slaven, agtervolgt, in de Koebergsche duijnen opgespoort,
-gevangen genoomen, en eerst ter plaatse sijner lijfvrouw, mitsgaders
-vervolgens naar dien van de weeduwe Andries Bester de oude, gebragt
-geworden; alwaar den gevangen ’s avonds gebonden in ’t voorhuijs
-leggende, op de, door de slavin Eva, ter praesentie van den meede slaaf
-Gedult, gedaane vraage: Wien hij gevangen dog had willen vermoorden,
-geantwoord had: Ik heb mijne lijfvrouw willen vermoorden!, en is den
-gevangen ’s volgenden daags Caabwaards gevoerd, mitsgaders in handen der
-justitie overgeleevert geworden.
+Dat den gevangen, die slegts weijnige treeden van desselfs lijfvrouw af stond, sulx hoorende, naar gesegt te hebben: Op de kop!, niet alleen teffens daarbij gevoegt had: Jou moet ik hebben!, maar ook immediaat een sprong naar gemelde sijne lijfvrouw gedaan en gepoogt had haar met het, in handen hebbende, mes een steek toe te brengen; welken steek, des gevangens lijfvrouw, sonder dat door ontsteltenis weet op hoedanigen wijse, ontweeken en in huijs geraakt sijnde, den gevangen het op een loop geset, omtrent veertig treeden van ’t huijs af stil gestaan, sig omgekeert, en aan sijne lijfvrouw, onder ’t slaan met de eene hand op sijn hoofd, het mes nogmaals geweesen, ’tselve vervolgens in den sak gestooken, en op dien sak met sijne hand insgelijx een slag gedaan hebbende, voorts van de plaats weggeloopen was; sijnde den gevangen egter nog dien selfden dag door den landbouwer Jacobus Bester, beneevens eenige slaven, agtervolgt, in de Koebergsche duijnen opgespoort, gevangen genoomen, en eerst ter plaatse sijner lijfvrouw, mitsgaders vervolgens naar dien van de weeduwe Andries Bester de oude, gebragt geworden; alwaar den gevangen ’s avonds gebonden in ’t voorhuijs leggende, op de, door de slavin Eva, ter praesentie van den meede slaaf Gedult, gedaane vraage: Wien hij gevangen dog had willen vermoorden, geantwoord had: Ik heb mijne lijfvrouw willen vermoorden!, en is den gevangen ’s volgenden daags Caabwaards gevoerd, mitsgaders in handen der justitie overgeleevert geworden.
 
-Alhoewel nu, den gevangen voorgeeft geensins van voorneemen geweest te
-sijn, nog sijne lijfvrouw, nog iemand anders te willen vermoorden, maar
-dat hij met het mes voorseijde Abraham slegts had pogen bevreest te
-maaken, alsmeede dat hij, door de, ’s voorigen avonds gepleegde,
-feijtelijkheeden, sijne lijfvrouw niet uijt haare kamer had soeken te
-locken; soo kan den gevangen egter, weegens de moordaadige aggressie aan
-sijne lijfvrouw gepleegt, en voorgenoomene quetsing van sijn meede
-slaaf, geensins ongestraft gelaaten, maar moet, ten voorbeelde en
-afschrik van andere sulke moordsugtige fielten, mitsgaders ter
-beveijliging van de ten plattenlande woonende ingeseetenen, naar rigeur
-der wetten gestraft werden.
+Alhoewel nu, den gevangen voorgeeft geensins van voorneemen geweest te sijn, nog sijne lijfvrouw, nog iemand anders te willen vermoorden, maar dat hij met het mes voorseijde Abraham slegts had pogen bevreest te maaken, alsmeede dat hij, door de, ’s voorigen avonds gepleegde, feijtelijkheeden, sijne lijfvrouw niet uijt haare kamer had soeken te locken; soo kan den gevangen egter, weegens de moordaadige aggressie aan sijne lijfvrouw gepleegt, en voorgenoomene quetsing van sijn meede slaaf, geensins ongestraft gelaaten, maar moet, ten voorbeelde en afschrik van andere sulke moordsugtige fielten, mitsgaders ter beveijliging van de ten plattenlande woonende ingeseetenen, naar rigeur der wetten gestraft werden.
 
-Weshalven soo is ’t, dat den edelagtbaare Raad van Justitie, voormeld,
-ten dage dienende, met aandagt geleesen en geresumeert hebbende, den
-schriftelijken crimineelen eijsch ende conclusie door heer Independent
-Fiscaal, meester Joachim van Plettenberg, *nomine officii*, op ende
-jeegens den gevangen gedaan ende genoomen, en daarneevens geleth op des
-gevangens vrijwillige confessie en andere stucken, behoorlijk
-gerecolleert, voorts op alle hetgeene ter saake dienende was en haar
-edelagtbaarens konde doen moveeren, regt doende uijt name ende van
-weegens de hoogmoogende Heeren Staaten Generaal den Vereenigde
-Nederlanden, condemneert den gevangen Thomas van Tutucorijn: omme
-gebragt te werden ter plaatse alwaar men alhier gewoon is crimineele
-sententiën te executeeren, en aldaar aan den scherpregter overgeleevert,
-met den strop om den hals onder den galg te pronk gestelt, voorts aan
-een paal gebonden, met roeden op de bloote rugge strengelijk gegeeselt
-en daarop gebrandmerkt sijnde, vervolgens in de ketting geklonken te
-werden, ten eijnde daarin den tijd sijns leevens op ’t Robben Eijland,
-aan ’s edele Compagnies gemeene werken sonder loon te arbeijden, met
-condemnatie in de kosten en misen van justitie, mitsgaders ontsegging
-van den anders gedaanen eijsch van den heer Officier.
+Weshalven soo is ’t, dat den edelagtbaare Raad van Justitie, voormeld, ten dage dienende, met aandagt geleesen en geresumeert hebbende, den schriftelijken crimineelen eijsch ende conclusie door heer Independent Fiscaal, meester Joachim van Plettenberg, *nomine officii*, op ende jeegens den gevangen gedaan ende genoomen, en daarneevens geleth op des gevangens vrijwillige confessie en andere stucken, behoorlijk gerecolleert, voorts op alle hetgeene ter saake dienende was en haar edelagtbaarens konde doen moveeren, regt doende uijt name ende van weegens de hoogmoogende Heeren Staaten Generaal den Vereenigde Nederlanden, condemneert den gevangen Thomas van Tutucorijn: omme gebragt te werden ter plaatse alwaar men alhier gewoon is crimineele sententiën te executeeren, en aldaar aan den scherpregter overgeleevert, met den strop om den hals onder den galg te pronk gestelt, voorts aan een paal gebonden, met roeden op de bloote rugge strengelijk gegeeselt en daarop gebrandmerkt sijnde, vervolgens in de ketting geklonken te werden, ten eijnde daarin den tijd sijns leevens op ’t Robben Eijland, aan ’s edele Compagnies gemeene werken sonder loon te arbeijden, met condemnatie in de kosten en misen van justitie, mitsgaders ontsegging van den anders gedaanen eijsch van den heer Officier.
 
-Aldus gedaan en gesententieert in ’t Casteel de Goede Hoop, den 25^e^
-Januarij 1770, mitsgaders gepronuntieert ende geëxecuteerd den 27^e^
-daaraanvolgende.
+Aldus gedaan en gesententieert in ’t Casteel de Goede Hoop, den 25^e^ Januarij 1770, mitsgaders gepronuntieert ende geëxecuteerd den 27^e^ daaraanvolgende.
 
 Fiat Executie, \[get.\] R. Tulbagh.
 
-\[get.\] J.W. Cloppenburg, O.M. Bergh, A. van Schoor, Otto Ludij Hemmij,
-L.C. Warneck, T.C. Rönnekamp, P.L. le Suëur, H.O. Muller, J.A. la Febre.
+\[get.\] J.W. Cloppenburg, O.M. Bergh, A. van Schoor, Otto Ludij Hemmij, L.C. Warneck, T.C. Rönnekamp, P.L. le Suëur, H.O. Muller, J.A. la Febre.
 
 Mij present, \[get.\] C.L. Neethling, secretaris.
 
 TRANSLATION
 
-Since Thomas van Tutocorijn, slave of Adriana Debits, widow of the late
-farmer Andries Bester junior, forty years old at a guess, currently
-their honours’ prisoner, has voluntarily confessed and since, from the
-other documents produced in the case, it has appeared evident to the
-honourable Council of Justice:
+Since Thomas van Tutocorijn, slave of Adriana Debits, widow of the late farmer Andries Bester junior, forty years old at a guess, currently their honours’ prisoner, has voluntarily confessed and since, from the other documents produced in the case, it has appeared evident to the honourable Council of Justice:
 
-That in the evening of 13 October last, the prisoner’s mistress ordered
-five of her slave *jongens* to set out during the following morning from
-her farm, named De Matjesfonteijn, situated at the Koebergen, to the
-farm, named De Modderfonteijn, of her mother-in-law, the widow of
-Andries Bester senior, in order to harvest barley there.[^5] When his
-mistress was already sitting and eating at the table with her children,
-the prisoner came to her and, up to two times, requested her to be
-allowed to go with the aforesaid slaves; which was repeatedly denied by
-his mistress, while saying in essence: “You and Gedult have to stay home
-to wet the clay of the threshing-floor”. That the prisoner, who was
-somewhat drunk, after having answered to this the final time: “Yes, my
-*nonje*!”, left the house and went to the slave house.
+That in the evening of 13 October last, the prisoner’s mistress ordered five of her slave *jongens* to set out during the following morning from her farm, named De Matjesfonteijn, situated at the Koebergen, to the farm, named De Modderfonteijn, of her mother-in-law, the widow of Andries Bester senior, in order to harvest barley there.[^5] When his mistress was already sitting and eating at the table with her children, the prisoner came to her and, up to two times, requested her to be allowed to go with the aforesaid slaves; which was repeatedly denied by his mistress, while saying in essence: “You and Gedult have to stay home to wet the clay of the threshing-floor”. That the prisoner, who was somewhat drunk, after having answered to this the final time: “Yes, my *nonje*!”, left the house and went to the slave house.
 
-That this very evening, after his mistress had already gone to bed and
-had locked the room, when it was nine o’clock at a guess, the prisoner
-came into the kitchen on the pretext that he wanted to drink
-water.[^6] That the prisoner again went outside after he had drunk;
-however, shortly thereafter, he returned and said to the slave *jongen*
-Gedult, who usually sleeps in the kitchen with the slave Eva, they being
-the only ones in that room: “Out there the *jongens* October and Jappan
-are fighting! You are such an old house *jongen*, go out and separate
-them!”, but the aforesaid Gedult did not take notice of this at all, and
-concerning this told the prisoner in essence: “Let them have their way!
-He who is the strongest will eventually lie on top!” With this the said
-Gedult remained in the kitchen, as the aforementioned fight was just
-something that the prisoner had invented.
+That this very evening, after his mistress had already gone to bed and had locked the room, when it was nine o’clock at a guess, the prisoner came into the kitchen on the pretext that he wanted to drink water.[^6] That the prisoner again went outside after he had drunk; however, shortly thereafter, he returned and said to the slave *jongen* Gedult, who usually sleeps in the kitchen with the slave Eva, they being the only ones in that room: “Out there the *jongens* October and Jappan are fighting! You are such an old house *jongen*, go out and separate them!”, but the aforesaid Gedult did not take notice of this at all, and concerning this told the prisoner in essence: “Let them have their way! He who is the strongest will eventually lie on top!” With this the said Gedult remained in the kitchen, as the aforementioned fight was just something that the prisoner had invented.
 
-That the prisoner then, up to three times successively, went inside the
-chicken coop, which is close to the house, and not only chased out the
-chickens from there, and through this caused a great noise, but also
-caught one of these chickens; which was witnessed by the aforesaid
-Gedult and Eva, when Gedult asked the prisoner: “What are you doing
-there?”, while adding: “*Nonje* is asleep!”, to which the prisoner
-answered: “I want to catch the chickens!” On the further question of the
-aforesaid Gedult: “What do you want to do with them?”, he said in
-essence: “I want to eat them! You just shut up and say nothing of it!”,
-when he, for the third time, came to Gedult, who was standing in the
-door of the kitchen, and repeated to him: “There are two *jongens*
-fighting there, why do you, as an old house *jongen*, not go there to
-separate them?”
+That the prisoner then, up to three times successively, went inside the chicken coop, which is close to the house, and not only chased out the chickens from there, and through this caused a great noise, but also caught one of these chickens; which was witnessed by the aforesaid Gedult and Eva, when Gedult asked the prisoner: “What are you doing there?”, while adding: “*Nonje* is asleep!”, to which the prisoner answered: “I want to catch the chickens!” On the further question of the aforesaid Gedult: “What do you want to do with them?”, he said in essence: “I want to eat them! You just shut up and say nothing of it!”, when he, for the third time, came to Gedult, who was standing in the door of the kitchen, and repeated to him: “There are two *jongens* fighting there, why do you, as an old house *jongen*, not go there to separate them?”
 
-That, because the aforesaid Gedult once again did not take notice of
-this story, the prisoner became angry and for this reason took one of
-the spades standing besides the kitchen and dealt Gedult two blows. The
-first blow, instead of hitting his head, only hit the shoulder, and the
-second, the hand of this *jongen*; whereupon Gedult grabbed the spade by
-one end and pushed the prisoner, who was holding it by the other end,
-with his hand outside of the door, which is when the prisoner, with a
-knife he had on him, stabbed at the aforesaid Gedult, but did not hit
-him, since the same, when he noticed the knife, had let go of the spade,
-and went to the slave house where he called two of his fellow slaves to
-help. As soon as the prisoner noticed this, he ran away from the kitchen
-to the chaff-barn and also remained there until the other slaves had
-locked the door to the slave house from the inside and had gone to
-sleep, which is when the prisoner climbed through a window into the
-slave house, where he remained until daybreak when he again returned to
-the chaff-barn, which is inside the stable, and there lay himself down
-closely behind the crib in order to sleep, so he asserts. That in the
-meantime, when the prisoner’s mistress – who, since she was fast asleep,
-had heard nothing of deeds the prisoner had perpetrated the previous
-evening – got up early in the morning and found sleeping in her kitchen,
-in addition to the aforesaid Gedult and Eva, two of her other slaves,
-she asked what this meant,[^7] and upon the story being told her of
-what the prisoner had been up to in both the kitchen and the chicken
-coop, she presumed that the prisoner had run away.
+That, because the aforesaid Gedult once again did not take notice of this story, the prisoner became angry and for this reason took one of the spades standing besides the kitchen and dealt Gedult two blows. The first blow, instead of hitting his head, only hit the shoulder, and the second, the hand of this *jongen*; whereupon Gedult grabbed the spade by one end and pushed the prisoner, who was holding it by the other end, with his hand outside of the door, which is when the prisoner, with a knife he had on him, stabbed at the aforesaid Gedult, but did not hit him, since the same, when he noticed the knife, had let go of the spade, and went to the slave house where he called two of his fellow slaves to help. As soon as the prisoner noticed this, he ran away from the kitchen to the chaff-barn and also remained there until the other slaves had locked the door to the slave house from the inside and had gone to sleep, which is when the prisoner climbed through a window into the slave house, where he remained until daybreak when he again returned to the chaff-barn, which is inside the stable, and there lay himself down closely behind the crib in order to sleep, so he asserts. That in the meantime, when the prisoner’s mistress – who, since she was fast asleep, had heard nothing of deeds the prisoner had perpetrated the previous evening – got up early in the morning and found sleeping in her kitchen, in addition to the aforesaid Gedult and Eva, two of her other slaves, she asked what this meant,[^7] and upon the story being told her of what the prisoner had been up to in both the kitchen and the chicken coop, she presumed that the prisoner had run away.
 
-That shortly thereupon, when the prisoner’s mistress, in accordance with
-her daily habit, which is known to the prisoner, went to the stable to
-look for eggs, she took with her there – even though she was used to
-always doing this on her own, but while she was experiencing some pain
-in her legs that morning – the slave *jongen* Abraham as support, in
-case she might need him. As the prisoner’s mistress was busy climbing
-onto the crib, she discovered the prisoner lying closely behind it
-against the wall, when she twice called the prisoner by name, yet the
-first time she did not receive any answer, while to the second call, to
-which she had added: “You’d better come here!”, the prisoner, after
-first groaning, said: “I have a headache!”
+That shortly thereupon, when the prisoner’s mistress, in accordance with her daily habit, which is known to the prisoner, went to the stable to look for eggs, she took with her there – even though she was used to always doing this on her own, but while she was experiencing some pain in her legs that morning – the slave *jongen* Abraham as support, in case she might need him. As the prisoner’s mistress was busy climbing onto the crib, she discovered the prisoner lying closely behind it against the wall, when she twice called the prisoner by name, yet the first time she did not receive any answer, while to the second call, to which she had added: “You’d better come here!”, the prisoner, after first groaning, said: “I have a headache!”
 
-That when the prisoner was again ordered by his mistress, who had
-meanwhile retreated outside the stable in front of its door, to come to
-her from behind the crib, the prisoner did do so reluctantly, but stood
-still in the stable door and, leaning against the frame, held his hand
-against his head, as if he was suffering from a headache. That the
-prisoner’s mistress, after first saying to the prisoner: “You’d better
-come here!”, slowly walked from the corral to the house, but when she
-noticed that the prisoner was turning away at the wall of the corral,
-she made it known to the aforesaid Abraham through whistles and signs,
-since he is rather deaf, that he should also bring the prisoner to the
-house, as this *jongen* then also came with the prisoner to the front of
-the house door.
+That when the prisoner was again ordered by his mistress, who had meanwhile retreated outside the stable in front of its door, to come to her from behind the crib, the prisoner did do so reluctantly, but stood still in the stable door and, leaning against the frame, held his hand against his head, as if he was suffering from a headache. That the prisoner’s mistress, after first saying to the prisoner: “You’d better come here!”, slowly walked from the corral to the house, but when she noticed that the prisoner was turning away at the wall of the corral, she made it known to the aforesaid Abraham through whistles and signs, since he is rather deaf, that he should also bring the prisoner to the house, as this *jongen* then also came with the prisoner to the front of the house door.
 
-That the prisoner’s mistress, who remained standing in the door of her
-house, saw that the prisoner had a knife in the pocket of his frockcoat
-and ordered him to surrender that knife to the slave Abraham, whereupon
-the prisoner not only answered: “I have no knife!”, but at the same time
-also retreated backwards somewhat, pulled out the knife and, while
-waving it to and fro, said to his mistress: “There! Come here now!”,
-whereupon she ordered the said slave Abraham to seize the prisoner, but
-that this *jongen*, both because of fear and because of the swinging to
-and fro of the knife, was unable to do this. For which reason the
-prisoner’s mistress proceeded to the goose coop, which is about twenty
-paces from the house, from where she took a stick and threw it to the
-aforementioned Abraham, while saying: “There, take that stick! And hit
-him on the head!”
+That the prisoner’s mistress, who remained standing in the door of her house, saw that the prisoner had a knife in the pocket of his frockcoat and ordered him to surrender that knife to the slave Abraham, whereupon the prisoner not only answered: “I have no knife!”, but at the same time also retreated backwards somewhat, pulled out the knife and, while waving it to and fro, said to his mistress: “There! Come here now!”, whereupon she ordered the said slave Abraham to seize the prisoner, but that this *jongen*, both because of fear and because of the swinging to and fro of the knife, was unable to do this. For which reason the prisoner’s mistress proceeded to the goose coop, which is about twenty paces from the house, from where she took a stick and threw it to the aforementioned Abraham, while saying: “There, take that stick! And hit him on the head!”
 
-That when the prisoner, who was standing only a few paces from his
-mistress, heard this, he, after saying: “On the head!”, not only at the
-same time added to this: “I must get you!”, but also immediately made a
-jump towards his said mistress and tried to give her a stab with the
-knife he held in his hand, which stab his mistress – without knowing, as
-a result of the fright she got, in what manner – dodged and got into the
-house. The prisoner then set out running but he stood still about forty
-paces from the house, turned around and, once again, while hitting with
-the one hand on his head, showed the knife to his mistress, whereafter
-he put it in his pocket and likewise gave a hit with his hand on this
-pocket, whereafter he ran away from the farm.[^8] However, the
-prisoner was pursued by the farmer Jacobus Bester with some slaves, and
-tracked down that very same day in the dunes at Koeberg, taken prisoner
-and brought first to the farm of his mistress and also afterwards to
-that of the widow of Andries Bester senior; where that evening, when the
-prisoner was lying trussed in the *voorhuijs* and the slave Eva, in the
-presence of their fellow slave Gedult, asked him: “Who was it then that
-he wanted to have killed?”, he answered: “I wanted to kill my
-mistress!”[^9] The following day the prisoner was transported to the
-Cape and also delivered into the hands of justice.
+That when the prisoner, who was standing only a few paces from his mistress, heard this, he, after saying: “On the head!”, not only at the same time added to this: “I must get you!”, but also immediately made a jump towards his said mistress and tried to give her a stab with the knife he held in his hand, which stab his mistress – without knowing, as a result of the fright she got, in what manner – dodged and got into the house. The prisoner then set out running but he stood still about forty paces from the house, turned around and, once again, while hitting with the one hand on his head, showed the knife to his mistress, whereafter he put it in his pocket and likewise gave a hit with his hand on this pocket, whereafter he ran away from the farm.[^8] However, the prisoner was pursued by the farmer Jacobus Bester with some slaves, and tracked down that very same day in the dunes at Koeberg, taken prisoner and brought first to the farm of his mistress and also afterwards to that of the widow of Andries Bester senior; where that evening, when the prisoner was lying trussed in the *voorhuijs* and the slave Eva, in the presence of their fellow slave Gedult, asked him: “Who was it then that he wanted to have killed?”, he answered: “I wanted to kill my mistress!”[^9] The following day the prisoner was transported to the Cape and also delivered into the hands of justice.
 
-Although the prisoner now pretends not to have had any intention
-whatsoever to kill either his mistress or anybody else, but that he had
-only tried to frighten the aforesaid Abraham with the knife, and also
-that he did not try to lure his mistress from her room with the deeds he
-perpetrated the previous evening; nonetheless, the prisoner, because of
-the murderous aggression shown to his mistress and the intended wounding
-of his fellow slave, cannot, under any circumstances, be left unpunished
-but must be punished, in accordance with the severity of the law, as an
-example and deterrent to other such murderous rogues.
+Although the prisoner now pretends not to have had any intention whatsoever to kill either his mistress or anybody else, but that he had only tried to frighten the aforesaid Abraham with the knife, and also that he did not try to lure his mistress from her room with the deeds he perpetrated the previous evening; nonetheless, the prisoner, because of the murderous aggression shown to his mistress and the intended wounding of his fellow slave, cannot, under any circumstances, be left unpunished but must be punished, in accordance with the severity of the law, as an example and deterrent to other such murderous rogues.
 
-Thus it is, that the honourable Council of Justice, aforementioned,
-serving today, having seen and read with attention the written
-*crimineelen eijsch ende conclusie* drawn up and delivered for and
-against the prisoner by the honourable independent fiscal, *Meester*
-Joachim van Plettenburg, in his official capacity and, apart from this,
-having noted the prisoner’s voluntary confession and the other
-documents, properly verified, as well as everything which served the
-case and could have moved their honours, practising justice in the name
-and on behalf of the high and mighty Lords States General of the United
-Netherlands, is sentencing the prisoner Thomas van Tutocorijn: to be
-taken to the place where criminal sentences are usually executed here,
-there to be handed over to the executioner, to be exposed with the rope
-around his neck under the gallows, further to be tied to a stake, to be
-severely scourged on the bare back and therafter to be branded and then
-to be riveted in chains, in order to labour in them without wages on the
-honourable Company’s public works on Robben Island for the rest of his
-life; with sentencing to the costs and expenditure of justice, besides
-denying the otherwise drawn-up *eijsch* of the honourable
-officer.[^10]
+Thus it is, that the honourable Council of Justice, aforementioned, serving today, having seen and read with attention the written *crimineelen eijsch ende conclusie* drawn up and delivered for and against the prisoner by the honourable independent fiscal, *Meester* Joachim van Plettenburg, in his official capacity and, apart from this, having noted the prisoner’s voluntary confession and the other documents, properly verified, as well as everything which served the case and could have moved their honours, practising justice in the name and on behalf of the high and mighty Lords States General of the United Netherlands, is sentencing the prisoner Thomas van Tutocorijn: to be taken to the place where criminal sentences are usually executed here, there to be handed over to the executioner, to be exposed with the rope around his neck under the gallows, further to be tied to a stake, to be severely scourged on the bare back and therafter to be branded and then to be riveted in chains, in order to labour in them without wages on the honourable Company’s public works on Robben Island for the rest of his life; with sentencing to the costs and expenditure of justice, besides denying the otherwise drawn-up *eijsch* of the honourable officer.[^10]
 
-Thus done and sentenced in the Castle of Good Hope on 25 January 1770,
-as also pronounced and executed on the 27^th^ thereupon.
+Thus done and sentenced in the Castle of Good Hope on 25 January 1770, as also pronounced and executed on the 27^th^ thereupon.
 
 Let the execution be done, \[signed\] R. Tulbagh.
 
-\[signed\] J.W. Cloppenburg, O.M. Bergh, A. van Schoor, Otto Ludij
-Hemmij, L.C. Warneck, T.C. Rönnekamp, P.L. le Suëur, H.O. Muller, J.A.
-la Febre.
+\[signed\] J.W. Cloppenburg, O.M. Bergh, A. van Schoor, Otto Ludij Hemmij, L.C. Warneck, T.C. Rönnekamp, P.L. le Suëur, H.O. Muller, J.A. la Febre.
 
 In my presence, \[signed\] C.L. Neethling, secretary.
 
-[^1]: * CJ 397, f. 38v, interrogation of Thomas van Tutocorijn, article
-    2. *
+[^1]: * CJ 397, f. 38v, interrogation of Thomas van Tutocorijn, article 2. *
 
-[^2]: * In addition to the *sententie* given here, the documentation in
-    the case includes the *eijsch*, testimonies of Adriana Debits,
-    Gedult van Ceijlon and Eva van de Caab, notes from the questioning
-    of the slave Abraham and the interrogation of Thomas van Tutocorijn,
-    CJ 397, ff. 1-57.*
+[^2]: * In addition to the *sententie* given here, the documentation in the case includes the *eijsch*, testimonies of Adriana Debits, Gedult van Ceijlon and Eva van de Caab, notes from the questioning of the slave Abraham and the interrogation of Thomas van Tutocorijn, CJ 397, ff. 1-57.*
 
-[^3]: * There were eleven slaves altogether, ten males and one female,
-    CJ 397, f. 38v, interrogation of Thomas van Tutocorijn, article 3.
-    It seems that only Gedult and Eva slept in the main house, although
-    it is not clear from the evidence whether this was a sexual
-    relationship or merely one of common sleeping arrangements. It was
-    quite common for female slaves to sleep in the kitchen (there were
-    usually only one or two on many farms) but it was more unusual for
-    men. Since in this case only one man was allowed to do this, it
-    seems to have been a special privilege.*
+[^3]: * There were eleven slaves altogether, ten males and one female, CJ 397, f. 38v, interrogation of Thomas van Tutocorijn, article 3. It seems that only Gedult and Eva slept in the main house, although it is not clear from the evidence whether this was a sexual relationship or merely one of common sleeping arrangements. It was quite common for female slaves to sleep in the kitchen (there were usually only one or two on many farms) but it was more unusual for men. Since in this case only one man was allowed to do this, it seems to have been a special privilege.*
 
-[^4]: * For example, Genovese 1970: 327-65 on the United States and
-    Worden 1985: 90 on the Cape. Examples, in this collection, of house
-    slaves on Cape farmsteads are Hector van de Caab (in 1786 Augustus
-    van de Caab et al.), Adam (in 1786 October van Madagascar et al.)
-    and possibly also Alij (in 1776 Julij van Timor). This case is
-    rather ambiguous. Thomas’s scornful reference to Gedult as ‘een oude
-    huijsjongen’ (an old house *jongen*) shows a perceived distinction,
-    while his expectation that Gedult should prevent fighting between
-    the others slaves suggests that Gedult had a supervisory role over
-    them. This might have been because his age gave him authority (as
-    with September in 1760 Achilles van de West Cust et al.). However,
-    the fact that Gedult is ordered by his owner to clay the threshing
-    floor with Thomas shows that work was not strictly partitioned
-    between them. The separation of sleeping places is a more striking
-    divide. *
+[^4]: * For example, Genovese 1970: 327-65 on the United States and Worden 1985: 90 on the Cape. Examples, in this collection, of house slaves on Cape farmsteads are Hector van de Caab (in 1786 Augustus van de Caab et al.), Adam (in 1786 October van Madagascar et al.) and possibly also Alij (in 1776 Julij van Timor). This case is rather ambiguous. Thomas’s scornful reference to Gedult as ‘een oude huijsjongen’ (an old house *jongen*) shows a perceived distinction, while his expectation that Gedult should prevent fighting between the others slaves suggests that Gedult had a supervisory role over them. This might have been because his age gave him authority (as with September in 1760 Achilles van de West Cust et al.). However, the fact that Gedult is ordered by his owner to clay the threshing floor with Thomas shows that work was not strictly partitioned between them. The separation of sleeping places is a more striking divide. *
 
-[^5]:  The lending or hiring of slaves to help out with the harvest on
-    other farms was a common occurrence, especially, as in this case,
-    between kin, Worden 1985: 25-6 and 87-8. See 1745 Cupido van
-    Bengalen for another instance of this.
+[^5]:  The lending or hiring of slaves to help out with the harvest on other farms was a common occurrence, especially, as in this case, between kin, Worden 1985: 25-6 and 87-8. See 1745 Cupido van Bengalen for another instance of this.
 
-[^6]:  Thomas stated that there was no water in the slave house although
-    this may have been only an excuse for him to enter the main house.
-    According to his testimony, Gedult was angered by his repeated
-    entering of the house for water during the night, CJ 397, ff.
-    40v-41, interrogation of Thomas van Tutocorijn, articles 14 and 16.
-    He also stated that Gedult had scornfully addressed him as ‘gij met
-    de ketting’ (you with the chain), which suggests Gedult was taunting
-    Thomas for being in chains, but there is no further evidence about
-    this.
+[^6]:  Thomas stated that there was no water in the slave house although this may have been only an excuse for him to enter the main house. According to his testimony, Gedult was angered by his repeated entering of the house for water during the night, CJ 397, ff. 40v-41, interrogation of Thomas van Tutocorijn, articles 14 and 16. He also stated that Gedult had scornfully addressed him as ‘gij met de ketting’ (you with the chain), which suggests Gedult was taunting Thomas for being in chains, but there is no further evidence about this.
 
-[^7]:  Her words were ‘wat wil dat seggen, dat de jongens hier slaapen?’
-    (what does this mean, that the *jongens* are sleeping here?), CJ 397
-    f. 15v, testimony of Adriana Debits.
+[^7]:  Her words were ‘wat wil dat seggen, dat de jongens hier slaapen?’ (what does this mean, that the *jongens* are sleeping here?), CJ 397 f. 15v, testimony of Adriana Debits.
 
-[^8]:  Thomas claimed that he ran away because he was afraid (presumably
-    of punishment) after he had threatened his owner with a knife, CJ
-    397, f. 53, interrogation of Thomas van Tutocorijn, article 89.
+[^8]:  Thomas claimed that he ran away because he was afraid (presumably of punishment) after he had threatened his owner with a knife, CJ 397, f. 53, interrogation of Thomas van Tutocorijn, article 89.
 
-[^9]:  Thomas denied this, saying that Eva’s claims ‘sijn leugens’ (are
-    lies). Under interrogation he claimed that he had only wanted to
-    frighten his mistress, CJ 397, f. 54, interrogation of Thomas van
-    Tutocorijn, articles 94 and 96.
+[^9]:  Thomas denied this, saying that Eva’s claims ‘sijn leugens’ (are lies). Under interrogation he claimed that he had only wanted to frighten his mistress, CJ 397, f. 54, interrogation of Thomas van Tutocorijn, articles 94 and 96.
 
-[^10]:  This sentence was recorded in the *regtsrollen*, CJ 52, ff. 6-8.
-    The court rejected the recommendation of the *eijsch* that Thomas
-    van Tutocorijn be hanged, CJ 397, ff. 13v-14.
+[^10]:  This sentence was recorded in the *regtsrollen*, CJ 52, ff. 6-8. The court rejected the recommendation of the *eijsch* that Thomas van Tutocorijn be hanged, CJ 397, ff. 13v-14. 

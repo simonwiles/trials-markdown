@@ -1,95 +1,18 @@
 # ARI[^1] 
 
-*This account of the experiences of the slave Ari is reported by one of
-his fellow prisoners, the free burgher Jacobus van der
-Heijden.[^2] Ari’s story is revealing on several counts.[^3]
-It is one of the very few sources which gives an indication – however
-fleeting – of how a Cape slave had originally been captured in Asia. It
-then gives insights into the tense relationship between a lone deserter
-and other slave runaways he encountered, in which competition for food
-and rivalries over leadership played a part. Some details are given on
-how arson, a frequent means of slave resistance, was carried
-out.[^4] The text is also of great linguistic interest, since the
-reported words of the slaves provide some of the earliest forms of the
-restructuring of Dutch at the Cape which eventually resulted in the
-formation of Afrikaans. *
+*This account of the experiences of the slave Ari is reported by one of his fellow prisoners, the free burgher Jacobus van der Heijden.[^2] Ari’s story is revealing on several counts.[^3] It is one of the very few sources which gives an indication – however fleeting – of how a Cape slave had originally been captured in Asia. It then gives insights into the tense relationship between a lone deserter and other slave runaways he encountered, in which competition for food and rivalries over leadership played a part. Some details are given on how arson, a frequent means of slave resistance, was carried out.[^4] The text is also of great linguistic interest, since the reported words of the slaves provide some of the earliest forms of the restructuring of Dutch at the Cape which eventually resulted in the formation of Afrikaans. *
 
-* Ari was subsequently tortured and confessed, though he also blamed the
-other slaves who had encouraged him to commit arson, and he was placed
-on Robben Island in heavy chains ‘until he was more informative’ about
-his accomplices and pending sentence.[^5] He died there in
-1708.*[^6]
+* Ari was subsequently tortured and confessed, though he also blamed the other slaves who had encouraged him to commit arson, and he was placed on Robben Island in heavy chains ‘until he was more informative’ about his accomplices and pending sentence.[^5] He died there in 1708.*[^6]
 
-**CJ 2961** Minuut Justitieële Attestatiën, Actens etc., 1706, ff.
-73-76.
+**CJ 2961** Minuut Justitieële Attestatiën, Actens etc., 1706, ff. 73-76.
 
-Huijden, den 28^e^ Meij 1706, compareerde voor mij, Abraham Poulle,
-secretaris van den edelagtbare Raed van Justitie dezes gouvernements,
-ter presentie van de naergenoemde getuijgen, Jacobus van der Heijden,
-heemraed aan Stellinbos \[*sic*\], dewelke ter requisitie van den edele
-Independent Fiscael Joan Blesius verklaerde hoe waer is:
+Huijden, den 28^e^ Meij 1706, compareerde voor mij, Abraham Poulle, secretaris van den edelagtbare Raed van Justitie dezes gouvernements, ter presentie van de naergenoemde getuijgen, Jacobus van der Heijden, heemraed aan Stellinbos \[*sic*\], dewelke ter requisitie van den edele Independent Fiscael Joan Blesius verklaerde hoe waer is:
 
-Dat hij ongevaer \[*sic*\] twee maenden geleden twaelf agtereenvolgende
-dagen is gedetineert geweest in de gevankenisse \[*sic*\] bij seeker
-slaef genaemt Ari, die hem deposant onder andere discourssen heeft
-verklaert, dat hij in sijn kintse jaren tusschen Suratte en Persien
-aldaer aen strand speelende, van de Hollanders van daar is weggevoert,
-en eijndelijk als slaef verkogt. Dat hij deposant verder den voornoemde
-Ari vraegde om wat redenen hij aldaer gevangen sat, die daerop
-antwoorde, dat hij door mishandelinge van sijn baes, Jan Lourensz van
-Rostok (alias behuwt soon van Trijn Ras), en desselfs huijsvrou
-weggelopen met dat voornemen van noijt weder te komen om dat hij sijn
-leven moede was. Dat hij Ari van daer is gegaen na de plaets van Trijn
-Ras, gelegen over de Berg Rivier, ende aldaer gevonden heeft twee
-jongens, aen welke hij sijn beklag deede, die hem een stuk broot ende
-een stuk tobacq gaven, seggende verders dat hij daer mede konde weggaen
-en dat sij in geen staet waren om hem te subsisteeren, nog de kost te
-kunnen geven. Dat hij verders van daer is gegaen na de berg genaemt de
-Parel Diamand, en de wijngaert van de weduwe Barent Burghard, alwaar hij
-na eenige bosjens druijven afgesneeden en geconsumeert te hebben, van
-daer is gegaen na de wijngaert van Guilliam Frisnet en sig aldaer in een
-sloot bij of onder een klip neder gezet hebbende, eenig geknars of
-gerissel \[*sic*\] heeft gehoort, daar hij Ari op is toegegaan en
-gevonden ofte ontmoet heeft drie jongens die aldaer mede besig waren mos
-druijven te consumeren. Dat hij Ari door een van die drie jongens, dien
-hij niet en kende nog tot dato niet en kend, naderhand met de naam van
-Anthonij heeft hooren noemen, wierd gevraegd: Wat doet gij hier, daer
-hij Ari op antwoorde: Wat doe jij hier, waerop Ari weder tot antwoort
-kreeg: Ons soek kost hier, ons al gedaen weg loopen, ons denk jou ook
-soo,[^7] waerop sij het samen cameraetschap hebben gemaekt. Dat
-Anthonij vervolgens tegens hem Ari heeft gesegt: Het is nu mooij weer en
-sterke wind, om huijsen in de brand te steeken, die daer aenstonts
-verder bijvoegde: Kom, laet ons dit huijs in de brand steken, waerop Ari
-soude gesegt hebben: Ik heb geen vuur,[^8] die van Anthonij tot
-antwoort kreeg: Ons het vuur genoeg. Dat hij benevens Anthonij de twee
-jongens aldaer latende, na ’t huijs is gegaen, en dat Anthonij vuur
-geslage hebbende, hem Ari de helft van de brandende tontel heeft
-overgegeven, die, omdat daer wat mede talmde, door Anthonij gezegt
-wierd: Haast je wat, ’t vuur sal anders uijtgaen. Dat hij Ari daerop de
-brandende tontel op het stroo dak heeft geworpen, en Anthonij de
-resterende brandende tontel daer in heeft gestooken, waerdoor het huijs
-aenstonts in de ligte vlam geraakt is. Dat Anthonij onder den brand van
-het huijs geweld op de deur heeft gemaekt, die aenstonts geopend
-geworden zijnde, hij Anthonij daerin is gesprongen, en een roer daeruijt
-gehaelt heeft. Dat sij daerna weder bij den andere sijn gekomen, en op
-den berg gevlugd, alwaer se hem Ari op een verlaten boere plaetsje, in
-een gemaekt huijsje van ruijgte hebben gebragt, daer sij hem een stuk
-kout schapen vleesch ’twelk in de as gebraden was en sij aldaer in
-voorraet hadde, te eeten hebben gegeeven. Dat de drie andere jongens na
-verloop van ontrent een half uur in slaap gevallen zijnde, hij Ari het
-roer stilletjens van haer hooft weggenom \[*sic*\], omdat bedugt was dat
-deselve hem mogten ombrenge, daer mede van daer is gevlugt, tot boven
-het huijs van de voornoemde weduwe Burgert \[*sic*\], alwaer hij sig
-ontrent een klip tot rusten begeven hebbende, die selven dag aldaer door
-de schaepwagter van dezelve weduwe Burgert is geapprehendeert.
+Dat hij ongevaer \[*sic*\] twee maenden geleden twaelf agtereenvolgende dagen is gedetineert geweest in de gevankenisse \[*sic*\] bij seeker slaef genaemt Ari, die hem deposant onder andere discourssen heeft verklaert, dat hij in sijn kintse jaren tusschen Suratte en Persien aldaer aen strand speelende, van de Hollanders van daar is weggevoert, en eijndelijk als slaef verkogt. Dat hij deposant verder den voornoemde Ari vraegde om wat redenen hij aldaer gevangen sat, die daerop antwoorde, dat hij door mishandelinge van sijn baes, Jan Lourensz van Rostok (alias behuwt soon van Trijn Ras), en desselfs huijsvrou weggelopen met dat voornemen van noijt weder te komen om dat hij sijn leven moede was. Dat hij Ari van daer is gegaen na de plaets van Trijn Ras, gelegen over de Berg Rivier, ende aldaer gevonden heeft twee jongens, aen welke hij sijn beklag deede, die hem een stuk broot ende een stuk tobacq gaven, seggende verders dat hij daer mede konde weggaen en dat sij in geen staet waren om hem te subsisteeren, nog de kost te kunnen geven. Dat hij verders van daer is gegaen na de berg genaemt de Parel Diamand, en de wijngaert van de weduwe Barent Burghard, alwaar hij na eenige bosjens druijven afgesneeden en geconsumeert te hebben, van daer is gegaen na de wijngaert van Guilliam Frisnet en sig aldaer in een sloot bij of onder een klip neder gezet hebbende, eenig geknars of gerissel \[*sic*\] heeft gehoort, daar hij Ari op is toegegaan en gevonden ofte ontmoet heeft drie jongens die aldaer mede besig waren mos druijven te consumeren. Dat hij Ari door een van die drie jongens, dien hij niet en kende nog tot dato niet en kend, naderhand met de naam van Anthonij heeft hooren noemen, wierd gevraegd: Wat doet gij hier, daer hij Ari op antwoorde: Wat doe jij hier, waerop Ari weder tot antwoort kreeg: Ons soek kost hier, ons al gedaen weg loopen, ons denk jou ook soo,[^7] waerop sij het samen cameraetschap hebben gemaekt. Dat Anthonij vervolgens tegens hem Ari heeft gesegt: Het is nu mooij weer en sterke wind, om huijsen in de brand te steeken, die daer aenstonts verder bijvoegde: Kom, laet ons dit huijs in de brand steken, waerop Ari soude gesegt hebben: Ik heb geen vuur,[^8] die van Anthonij tot antwoort kreeg: Ons het vuur genoeg. Dat hij benevens Anthonij de twee jongens aldaer latende, na ’t huijs is gegaen, en dat Anthonij vuur geslage hebbende, hem Ari de helft van de brandende tontel heeft overgegeven, die, omdat daer wat mede talmde, door Anthonij gezegt wierd: Haast je wat, ’t vuur sal anders uijtgaen. Dat hij Ari daerop de brandende tontel op het stroo dak heeft geworpen, en Anthonij de resterende brandende tontel daer in heeft gestooken, waerdoor het huijs aenstonts in de ligte vlam geraakt is. Dat Anthonij onder den brand van het huijs geweld op de deur heeft gemaekt, die aenstonts geopend geworden zijnde, hij Anthonij daerin is gesprongen, en een roer daeruijt gehaelt heeft. Dat sij daerna weder bij den andere sijn gekomen, en op den berg gevlugd, alwaer se hem Ari op een verlaten boere plaetsje, in een gemaekt huijsje van ruijgte hebben gebragt, daer sij hem een stuk kout schapen vleesch ’twelk in de as gebraden was en sij aldaer in voorraet hadde, te eeten hebben gegeeven. Dat de drie andere jongens na verloop van ontrent een half uur in slaap gevallen zijnde, hij Ari het roer stilletjens van haer hooft weggenom \[*sic*\], omdat bedugt was dat deselve hem mogten ombrenge, daer mede van daer is gevlugt, tot boven het huijs van de voornoemde weduwe Burgert \[*sic*\], alwaer hij sig ontrent een klip tot rusten begeven hebbende, die selven dag aldaer door de schaepwagter van dezelve weduwe Burgert is geapprehendeert.
 
-Anders niet verklarende, geeft voor redene van wetenschap als in de
-text, presenteerende hetselve (desnoots en daertoe versogt sijnde) met
-gestaefden eede te bevestigen.
+Anders niet verklarende, geeft voor redene van wetenschap als in de text, presenteerende hetselve (desnoots en daertoe versogt sijnde) met gestaefden eede te bevestigen.
 
-Aldus gedaen en gepasseert in ’t Casteel de Goede Hoop, ten overstaen
-van Nicolaes van Leeuwen en Jan Snip, als getuijgen van gelove hiertoe
-versogt.
+Aldus gedaen en gepasseert in ’t Casteel de Goede Hoop, ten overstaen van Nicolaes van Leeuwen en Jan Snip, als getuijgen van gelove hiertoe versogt.
 
 \[get.\] Jacob van der Heijde \[*sic*\].
 
@@ -99,69 +22,13 @@ In kennisse van mij, \[get.\] A. Poulle, secretaris.
 
 TRANSLATION
 
-Today, 28 May 1706, there appears before me, Abraham Poulle, secretary
-of the honourable Council of Justice of this government, in the presence
-of the witnesses named below, Jacobus van der Heijden, *heemraad* of
-Stellenbosch, who, on the requisition of the honourable independent
-fiscal Joan Blesius, declares it to be true:
+Today, 28 May 1706, there appears before me, Abraham Poulle, secretary of the honourable Council of Justice of this government, in the presence of the witnesses named below, Jacobus van der Heijden, *heemraad* of Stellenbosch, who, on the requisition of the honourable independent fiscal Joan Blesius, declares it to be true:
 
-That about two months ago, he was detained in the prison for twelve
-successive days with a certain slave named Ari, who in various
-conversations declared to the deponent that during his childhood years
-\[in the area\] between Suratte and Persia, when he was playing on the
-beach, he was carried off by the Dutch and was eventually sold as a
-slave. That when the deponent then asked the aforementioned Ari for what
-reasons he was sitting there in the prison, he answered that he had run
-away because of the maltreatment by his *baas*, Jan Lourensz of Rostok
-(alias the son-in-law of Trijn Ras), and his wife, with the intention
-never to return again because he was tired of life. He, Ari, went from
-there to the farm of Trijn Ras, situated across the Berg River, and
-found there two *jongens*, whom he told of his complaint and who gave
-him a piece of bread and a piece of tobacco, saying thereafter that he
-should take them and go and that they were not able to support him, nor
-to give him food. That he then went from there to the mountain named the
-Parel Diamand, and into the vineyard of the widow Barent Burghard, where
-he cut some bunches of grapes and consumed them, after which he went
-from there to the vineyard of Guilliam Frisnet where he, when sitting
-down in a ditch next to or under a rock, heard some creaking or
-rustling, whereupon he went towards it and found or met there three
-*jongens* who were likewise busy consuming young grapes. That he, Ari,
-was asked by one of these three *jongens*, whom he did not know then,
-and still does not, but heard being called by the name of Anthonij:
-“What are you doing here?”, to which Ari replied: “What are you doing
-here?”, to which Ari was answered: “We are looking for food here, we
-have already run away, we think you have too”, whereupon they together
-formed an alliance. That Anthonij then said to him, Ari: “The weather is
-right now and the wind strong for setting fire to houses”, and
-immediately added to this: “Come, let us set this house alight”,
-whereupon Ari said: “I have no fire”, and received as answer from
-Anthonij: “We have sufficient fire”. That together with Anthonij he left
-the other two *jongens* there and went to the house, and that when
-Anthonij struck fire, he handed Ari half of the burning tinder and told
-him, because he was dawdling with it: “Hurry up, or else the fire will
-go out”. That hereupon Ari threw the burning tinder onto the thatched
-roof, while Anthonij shoved what remained of the burning tinder into it
-\[the thatch\], upon which the house instantly caught flame. That while
-the house was burning, Anthonij made noise on the door and when it was
-opened forthwith, Anthonij jumped in and took a gun from there. That
-after this, they again went to the others and fled up the mountain,
-where they took him, Ari, to a deserted little farm and took him into a
-hut made from shrubs, where they gave him to eat a cold piece of mutton
-which had been roasted in ash and which they kept there. After about
-half an hour expired, the other three *jongens* fell asleep, when Ari
-silently took away the gun from their leader because he was afraid that
-the same might kill him, and fled with it to beyond the house of the
-aforementioned widow Burgert \[*sic*\], where he laid down to rest by a
-rock and was apprehended there that same day by the shepherd of the
-widow Burgert.
+That about two months ago, he was detained in the prison for twelve successive days with a certain slave named Ari, who in various conversations declared to the deponent that during his childhood years \[in the area\] between Suratte and Persia, when he was playing on the beach, he was carried off by the Dutch and was eventually sold as a slave. That when the deponent then asked the aforementioned Ari for what reasons he was sitting there in the prison, he answered that he had run away because of the maltreatment by his *baas*, Jan Lourensz of Rostok (alias the son-in-law of Trijn Ras), and his wife, with the intention never to return again because he was tired of life. He, Ari, went from there to the farm of Trijn Ras, situated across the Berg River, and found there two *jongens*, whom he told of his complaint and who gave him a piece of bread and a piece of tobacco, saying thereafter that he should take them and go and that they were not able to support him, nor to give him food. That he then went from there to the mountain named the Parel Diamand, and into the vineyard of the widow Barent Burghard, where he cut some bunches of grapes and consumed them, after which he went from there to the vineyard of Guilliam Frisnet where he, when sitting down in a ditch next to or under a rock, heard some creaking or rustling, whereupon he went towards it and found or met there three *jongens* who were likewise busy consuming young grapes. That he, Ari, was asked by one of these three *jongens*, whom he did not know then, and still does not, but heard being called by the name of Anthonij: “What are you doing here?”, to which Ari replied: “What are you doing here?”, to which Ari was answered: “We are looking for food here, we have already run away, we think you have too”, whereupon they together formed an alliance. That Anthonij then said to him, Ari: “The weather is right now and the wind strong for setting fire to houses”, and immediately added to this: “Come, let us set this house alight”, whereupon Ari said: “I have no fire”, and received as answer from Anthonij: “We have sufficient fire”. That together with Anthonij he left the other two *jongens* there and went to the house, and that when Anthonij struck fire, he handed Ari half of the burning tinder and told him, because he was dawdling with it: “Hurry up, or else the fire will go out”. That hereupon Ari threw the burning tinder onto the thatched roof, while Anthonij shoved what remained of the burning tinder into it \[the thatch\], upon which the house instantly caught flame. That while the house was burning, Anthonij made noise on the door and when it was opened forthwith, Anthonij jumped in and took a gun from there. That after this, they again went to the others and fled up the mountain, where they took him, Ari, to a deserted little farm and took him into a hut made from shrubs, where they gave him to eat a cold piece of mutton which had been roasted in ash and which they kept there. After about half an hour expired, the other three *jongens* fell asleep, when Ari silently took away the gun from their leader because he was afraid that the same might kill him, and fled with it to beyond the house of the aforementioned widow Burgert \[*sic*\], where he laid down to rest by a rock and was apprehended there that same day by the shepherd of the widow Burgert.
 
-There being nothing more to declare, he asserts to be convinced of the
-truth of his statement as in the text, offering to confirm the same (if
-needed and requested to it) with confirmed oaths.
+There being nothing more to declare, he asserts to be convinced of the truth of his statement as in the text, offering to confirm the same (if needed and requested to it) with confirmed oaths.
 
-Thus done and recorded in the Castle of Good Hope, in the presence of
-Nicolaes van Leeuwen and Jan Snip, requested hereto as witnesses of
-faith.
+Thus done and recorded in the Castle of Good Hope, in the presence of Nicolaes van Leeuwen and Jan Snip, requested hereto as witnesses of faith.
 
 \[signed\] Jacob van der Heijde \[*sic*\].
 
@@ -169,73 +36,20 @@ As witnesses, \[signed\] N. v. Leeuwen, the son of Nicholas; J. Snip.
 
 With my cognisance, \[signed\] A. Poulle, secretary.
 
-[^1]: ** In other documentation for this case, Ari is named ‘van
-    Bengalen’ but, as this document makes clear, he originated from the
-    region ‘between Suratte and Persia’ (modern Pakistan). He may well
-    have been taken by his captors to Bengal, a region from which the
-    VOC obtained many slaves, although we have no details of this. This
-    case thus serves as a warning that slave toponyms may indicate the
-    place of sale to the Dutch, rather than the actual area of slave
-    origins. **
+[^1]: ** In other documentation for this case, Ari is named ‘van Bengalen’ but, as this document makes clear, he originated from the region ‘between Suratte and Persia’ (modern Pakistan). He may well have been taken by his captors to Bengal, a region from which the VOC obtained many slaves, although we have no details of this. This case thus serves as a warning that slave toponyms may indicate the place of sale to the Dutch, rather than the actual area of slave origins. **
 
-[^2]: * Jacobus van der Heijden was in the ‘Swart Gat’ prison for his
-    part in the burgher conflict with the governor Willem Adriaan van
-    der Stel. In the so-called *Contra-Deductie*, which the rebellious
-    burghers wrote shortly after this, and in which the illegal
-    imprisonment of Van der Heijden was considered proof of Van der
-    Stel’s corruption and maladministration, he refers to Ari as his
-    ‘confrater’ (fellow brother) in prison, and mentions that while
-    being locked up, he taught the slave the Ten Commandments and the
-    Lord’s Prayer (Franken 1953: 87). After Van der Stel’s recall in
-    1708, Van der Heijden obtained the meat *pacht* and became one of
-    the most prosperous and influential residents of the colony
-    (Schoeman 2002a: 156, 158). *
+[^2]: * Jacobus van der Heijden was in the ‘Swart Gat’ prison for his part in the burgher conflict with the governor Willem Adriaan van der Stel. In the so-called *Contra-Deductie*, which the rebellious burghers wrote shortly after this, and in which the illegal imprisonment of Van der Heijden was considered proof of Van der Stel’s corruption and maladministration, he refers to Ari as his ‘confrater’ (fellow brother) in prison, and mentions that while being locked up, he taught the slave the Ten Commandments and the Lord’s Prayer (Franken 1953: 87). After Van der Stel’s recall in 1708, Van der Heijden obtained the meat *pacht* and became one of the most prosperous and influential residents of the colony (Schoeman 2002a: 156, 158). *
 
-[^3]: * For a discussion of this case, see Franken 1953: 87-96 and
-    Schoeman 2002a: 156-58. Schoeman provides an Afrikaans translation
-    of Van der Heijden’s evidence.*
+[^3]: * For a discussion of this case, see Franken 1953: 87-96 and Schoeman 2002a: 156-58. Schoeman provides an Afrikaans translation of Van der Heijden’s evidence.*
 
-[^4]: * On arson and its function in slave resistance, see 1717 Aaron
-    van Bengalen.*
+[^4]: * On arson and its function in slave resistance, see 1717 Aaron van Bengalen.*
 
-[^5]:  As recorded in the *regtsrollen*, CJ 4, ff. 279, 285 and 328.
-    This testimony of Van der Heijden is followed by an (incomplete)
-    interrogation of Ari, done in the torture room, and his confession
-    (CJ 2961, ff. 77-82). A document entitled *eijsch en conclusie ad
-    torturam* is preserved in CJ 309, ff. 41-3 \[modern pagination\]
-    which justified why Arij should be tortured. On 10 August 1706 the
-    fiscal suggested that since he refused to name his accomplices, Ari
-    be sent to Robben Island ‘met een sware keeten en block aan bijde
-    beenen gehegt aan een ijsere kraag om den hals’ (with a heavy chain
-    and block on both legs connected to an iron collar around the neck).
-    The court concurred and decided that Ari should remain detained
-    there until he had provided the information and a sentence could be
-    passed, CJ 4, vol. 1, f. 328.
+[^5]:  As recorded in the *regtsrollen*, CJ 4, ff. 279, 285 and 328. This testimony of Van der Heijden is followed by an (incomplete) interrogation of Ari, done in the torture room, and his confession (CJ 2961, ff. 77-82). A document entitled *eijsch en conclusie ad torturam* is preserved in CJ 309, ff. 41-3 \[modern pagination\] which justified why Arij should be tortured. On 10 August 1706 the fiscal suggested that since he refused to name his accomplices, Ari be sent to Robben Island ‘met een sware keeten en block aan bijde beenen gehegt aan een ijsere kraag om den hals’ (with a heavy chain and block on both legs connected to an iron collar around the neck). The court concurred and decided that Ari should remain detained there until he had provided the information and a sentence could be passed, CJ 4, vol. 1, f. 328.
 
-[^6]:  Ari died on Robben Island in 1708, still without having received
-    sentence. The superintendent wrote to the governor that he had
-    buried him with the chains still on him, since the previous governor
-    had given strict orders that Ari should never be allowed to go about
-    without the chains, C 383, ff. 315-18.
+[^6]:  Ari died on Robben Island in 1708, still without having received sentence. The superintendent wrote to the governor that he had buried him with the chains still on him, since the previous governor had given strict orders that Ari should never be allowed to go about without the chains, C 383, ff. 315-18.
 
-[^7]:  This sentence, as also the other direct quotes lower down, is one
-    of the very few instances where we have direct evidence of how Dutch
-    was spoken by slaves at the Cape, for whom it was (in most cases) a
-    second or third language, acquired in the unfavourable and
-    extraordinary circumstances of slavery. What is significant about
-    these sentences is that they give some of the earliest evidence for
-    two crucial developments in eighteenth-century Cape Dutch which
-    differentiate Afrikaans from metropolitan Dutch, viz. the use of
-    *ons* as a subject (instead of *wij*) and the deflection of the
-    finite verb, i.e. the verbal form is not changed according to the
-    number of the subject: *ons soek* as opposed to *wij zoeken*, *ons
-    het *as opposed to *wij hebben*. For a discussion of the importance
-    of these utterances for the history of Afrikaans, see Franken 1953:
-    92-5 and Ponelis 1993: 34-5.
+[^7]:  This sentence, as also the other direct quotes lower down, is one of the very few instances where we have direct evidence of how Dutch was spoken by slaves at the Cape, for whom it was (in most cases) a second or third language, acquired in the unfavourable and extraordinary circumstances of slavery. What is significant about these sentences is that they give some of the earliest evidence for two crucial developments in eighteenth-century Cape Dutch which differentiate Afrikaans from metropolitan Dutch, viz. the use of *ons* as a subject (instead of *wij*) and the deflection of the finite verb, i.e. the verbal form is not changed according to the number of the subject: *ons soek* as opposed to *wij zoeken*, *ons het *as opposed to *wij hebben*. For a discussion of the importance of these utterances for the history of Afrikaans, see Franken 1953: 92-5 and Ponelis 1993: 34-5.
 
-[^8]:  This sentence at first read ‘Waerop Ari seijde geen vuur’, but
-    was amended to the current reading with the insertion of the verb
-    phrase ‘Ik heb’.
+[^8]:  This sentence at first read ‘Waerop Ari seijde geen vuur’, but was amended to the current reading with the insertion of the verb phrase ‘Ik heb’.
 
-[^9]:  Latin abbreviation for ‘son of Nicholaas’, instead of the Dutch
-    equivalent ‘Nicholaaszoon’.
+[^9]:  Latin abbreviation for ‘son of Nicholaas’, instead of the Dutch equivalent ‘Nicholaaszoon’. 

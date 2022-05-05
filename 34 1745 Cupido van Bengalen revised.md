@@ -1,437 +1,67 @@
 # CUPIDO VAN BENGALEN
 
-*This episode of burglary and murder of a slave is revealing as much for
-the incidental details about slave and Khoi life on a settler farm as it
-is for the main crime. These include the existence of specific slave
-sleeping and living quarters on a large farm,[^1] the use of Khoi
-labourers for ploughing alongside slaves, the transfer of slaves between
-relatives during a peak labour season, and the authority of the *knecht*
-in the owner’s absence.[^2] *
+*This episode of burglary and murder of a slave is revealing as much for the incidental details about slave and Khoi life on a settler farm as it is for the main crime. These include the existence of specific slave sleeping and living quarters on a large farm,[^1] the use of Khoi labourers for ploughing alongside slaves, the transfer of slaves between relatives during a peak labour season, and the authority of the *knecht* in the owner’s absence.[^2] *
 
-*It is not clear why Cupido van Bengalen killed the slave Francina,
-possibly because she was in the way when he burgled the
-farmhouse.[^3] His subsequent suicide may have been out of
-remorse, as he claimed before he died, or because he realised that he
-would be captured. His accomplice, the Khoi Louis, was reported as ‘mad’
-and denied responsibility.*[^4]
+*It is not clear why Cupido van Bengalen killed the slave Francina, possibly because she was in the way when he burgled the farmhouse.[^3] His subsequent suicide may have been out of remorse, as he claimed before he died, or because he realised that he would be captured. His accomplice, the Khoi Louis, was reported as ‘mad’ and denied responsibility.*[^4]
 
 **1/STB 3/8** Criminele Verklaringen, 1702-1749, unpaginated.
 
-Aan den edelagtbaare heere Rijk Tulbagh, president, beneevens den
-edelagtbaare Raad van Justitie dese Casteels de Goede Hoop.
+Aan den edelagtbaare heere Rijk Tulbagh, president, beneevens den edelagtbaare Raad van Justitie dese Casteels de Goede Hoop.
 
 Edelagtbaare heer en edele heeren,
 
-Den ondergetekende landdrost geeft met seer veel eerbied U Edel
-Agtbaarens bij deesen te kennen dat terwijl hij, op den 15^e\ ^der
-jongst afgeweekene maand September, sig aan de Caab bevond, van den oud
-heemraad Andries Brink bericht bekomen hebbende, dat een jongen van den
-oud burgerraad, sieur Andries Grové, genaamt Cupido van Bengalen,
-dewelke op de plaats van voormelten Brink, geleegen agter Riebeeks
-Casteel, genaamt ’t Vischwater, bescheijden was, een meijd van hem,
-genaamt Francina, meede aldaar woonagtig, doot gestooken hadde; heeft
-daarop aanstonds desselfs substitut ordre toegesonden omme ten
-spoedigsten met gecommitteerdens derwaarts te gaan en visitatie te doen,
-dewelke, naar dies verrichtingen weederom t’ huijs komende, hebben den
-ondergetekende bekend gemaakt dat het doode lichaam van voorseijde meijd
-Francina in het woonhuijs in de combuijs leggende gevonden hebben, naast
-een aldaar staande handmoolen, hebbende een steek in haar hals, twee
-steeken op de regterborst, ende een steek op de regterzijde onder de
-arm, op de ribben, mitsgaders dat het geheele hoofd van die slavinne
-bebloed was; alsmeede, dat ook gesien hadden dat een venster van de
-camer aan het woonhuijs, aan de linker hand, ’twelk van binnen met
-ijserdraat aan de grendels vast gemaakt, van buijten opengebrooken was,
-en meede in die camer een kist en kelder, die insgelijx geopent, en
-waaruijt eenige goederen, soo de knegt voorgeeft, gestoolen waren.
+Den ondergetekende landdrost geeft met seer veel eerbied U Edel Agtbaarens bij deesen te kennen dat terwijl hij, op den 15^e\ ^der jongst afgeweekene maand September, sig aan de Caab bevond, van den oud heemraad Andries Brink bericht bekomen hebbende, dat een jongen van den oud burgerraad, sieur Andries Grové, genaamt Cupido van Bengalen, dewelke op de plaats van voormelten Brink, geleegen agter Riebeeks Casteel, genaamt ’t Vischwater, bescheijden was, een meijd van hem, genaamt Francina, meede aldaar woonagtig, doot gestooken hadde; heeft daarop aanstonds desselfs substitut ordre toegesonden omme ten spoedigsten met gecommitteerdens derwaarts te gaan en visitatie te doen, dewelke, naar dies verrichtingen weederom t’ huijs komende, hebben den ondergetekende bekend gemaakt dat het doode lichaam van voorseijde meijd Francina in het woonhuijs in de combuijs leggende gevonden hebben, naast een aldaar staande handmoolen, hebbende een steek in haar hals, twee steeken op de regterborst, ende een steek op de regterzijde onder de arm, op de ribben, mitsgaders dat het geheele hoofd van die slavinne bebloed was; alsmeede, dat ook gesien hadden dat een venster van de camer aan het woonhuijs, aan de linker hand, ’twelk van binnen met ijserdraat aan de grendels vast gemaakt, van buijten opengebrooken was, en meede in die camer een kist en kelder, die insgelijx geopent, en waaruijt eenige goederen, soo de knegt voorgeeft, gestoolen waren.
 
-Dat zij vervolgens verstaan hebbende dat den voorgemelte slaaf, Cupido
-van Bengalen, die de daader van dien moord en huijsbraak wierd gesegd te
-sijn geweest, sigselven niet verre van daar in ’t veld hadde om ’t
-leeven gebragt, hun insgelijx naar derwaarts hebben begeeven, vindende
-dien slaaf omtrent een half uur van gemelte plaats ’t Vischwaater, bij
-een riviertje op zijn aangesigt leggen, met een steek in diesselfs
-buijk, waaruijt de darmen hongen, leggende naast zijn zijde een
-scheermes, ’twelk open was, en eenige treeden daarvandaan een ander
-groot mes met een scheede, ’twelke U Edel Agtbaarens breeder sal komen
-te blijken uijt de verklaaring van gecommitteerde heemraaden, deese *sub
-littera* A annex. Brengende den substitut bij zijn terugkomst meede den
-Hottentot, Louis genaamt, dewelke meede op die plaats woonagtig was
-geweest, en met meergemelte slaaf Cupido weggeloopen was, sittende thans
-alhier in de tronk.
+Dat zij vervolgens verstaan hebbende dat den voorgemelte slaaf, Cupido van Bengalen, die de daader van dien moord en huijsbraak wierd gesegd te sijn geweest, sigselven niet verre van daar in ’t veld hadde om ’t leeven gebragt, hun insgelijx naar derwaarts hebben begeeven, vindende dien slaaf omtrent een half uur van gemelte plaats ’t Vischwaater, bij een riviertje op zijn aangesigt leggen, met een steek in diesselfs buijk, waaruijt de darmen hongen, leggende naast zijn zijde een scheermes, ’twelk open was, en eenige treeden daarvandaan een ander groot mes met een scheede, ’twelke U Edel Agtbaarens breeder sal komen te blijken uijt de verklaaring van gecommitteerde heemraaden, deese *sub littera* A annex. Brengende den substitut bij zijn terugkomst meede den Hottentot, Louis genaamt, dewelke meede op die plaats woonagtig was geweest, en met meergemelte slaaf Cupido weggeloopen was, sittende thans alhier in de tronk.
 
-Den ondergetekende, omme te ontdekken of dien Hottentot Louis meede
-schuldig was aan dien gruwelijken dootslag en huijsbraak, heeft, soo de
-knegt, als slaven en Hottentots ter dier tijd op gemelte plaats, ’t
-Vischwaater, bevonden hadden, bij sig ontbooden, en van deselve relaasen
-genomen; dewelke betuijgden, dat tusschen den 13^e\ ^en 14^e\ ^der
-jongst afgeweekene maand September des ’snagts, de slaaf Cupido,
-meergenoemt, uijt het woonhuijs in het slaavenhuijs op den plaats ’t
-Vischwaater, voornoemt, gekomen is, dewelke voorgemelte Hottentot Louis
-en desselfs broeder Piet, vroeg om meede te gaan naar de plaats van den
-burger Pieter van Taak om dacha te soeken, dewelke die \[*sic*\] daarop
-beijde opstaande, is voormelte Louis naar buijten gegaan, leggende de
-Hottentot Piet, wijl sig bedacht hadde, sig weederom needer om te
-slaapen. Den slaaf Pieter van Mallebaar, die op zijn kooij in het
-slavenhuijs lag te slaapen, hiervan niets weetende, en de honden sterk
-hoorende blaffen, begaf sig daarop naar buijten om te sien wat er te
-doen was, ontwaarende, soo dra buijten quam, doordien de maane helder
-scheen, dat er eene van de camervensters van het woonhuijs op die plaats
-open stond, begeevende hem oversulx weederom in het slaavenhuijs,
-maakende aldaar een jongen van voormelte Brink, Dramma genaamt, die te
-slaapen lag, wakker, seggende teegens denselven dat de camervenster open
-stond, dat sulx moogelijk door drossers konde gedaan zijn, en dat hij
-hetselve aan de knegt, in de wandeling genaamt Schipper Jan, die ter
-dier tijd op zijn schoonmoeders plaats, omtrent een uur vandaar
-geleegen, was, moeste gaan bekend maaken; dewelke daarop een paard
-genomen hebbende, sig ook naar derwaarts heeft begeeven, dog niet verre
-van de plaats komende, wierd denselven van het paard afgeworpen,
-vervolgende zijn weg alsoo te voet, maakende bij zijn aankomst den
-voormelte knegt wakker en gaf bericht dat de camervenster open stond,
-waarop dien knegt hem g’antwoord hebbende dat maar naar huijs soude gaan
-en dat hij hem volgen soude, is dien slaaf van daar weederom terugge
-gekeert.
+Den ondergetekende, omme te ontdekken of dien Hottentot Louis meede schuldig was aan dien gruwelijken dootslag en huijsbraak, heeft, soo de knegt, als slaven en Hottentots ter dier tijd op gemelte plaats, ’t Vischwaater, bevonden hadden, bij sig ontbooden, en van deselve relaasen genomen; dewelke betuijgden, dat tusschen den 13^e\ ^en 14^e\ ^der jongst afgeweekene maand September des ’snagts, de slaaf Cupido, meergenoemt, uijt het woonhuijs in het slaavenhuijs op den plaats ’t Vischwaater, voornoemt, gekomen is, dewelke voorgemelte Hottentot Louis en desselfs broeder Piet, vroeg om meede te gaan naar de plaats van den burger Pieter van Taak om dacha te soeken, dewelke die \[*sic*\] daarop beijde opstaande, is voormelte Louis naar buijten gegaan, leggende de Hottentot Piet, wijl sig bedacht hadde, sig weederom needer om te slaapen. Den slaaf Pieter van Mallebaar, die op zijn kooij in het slavenhuijs lag te slaapen, hiervan niets weetende, en de honden sterk hoorende blaffen, begaf sig daarop naar buijten om te sien wat er te doen was, ontwaarende, soo dra buijten quam, doordien de maane helder scheen, dat er eene van de camervensters van het woonhuijs op die plaats open stond, begeevende hem oversulx weederom in het slaavenhuijs, maakende aldaar een jongen van voormelte Brink, Dramma genaamt, die te slaapen lag, wakker, seggende teegens denselven dat de camervenster open stond, dat sulx moogelijk door drossers konde gedaan zijn, en dat hij hetselve aan de knegt, in de wandeling genaamt Schipper Jan, die ter dier tijd op zijn schoonmoeders plaats, omtrent een uur vandaar geleegen, was, moeste gaan bekend maaken; dewelke daarop een paard genomen hebbende, sig ook naar derwaarts heeft begeeven, dog niet verre van de plaats komende, wierd denselven van het paard afgeworpen, vervolgende zijn weg alsoo te voet, maakende bij zijn aankomst den voormelte knegt wakker en gaf bericht dat de camervenster open stond, waarop dien knegt hem g’antwoord hebbende dat maar naar huijs soude gaan en dat hij hem volgen soude, is dien slaaf van daar weederom terugge gekeert.
 
-Den ouden slaaf Pieter, naar ’t vertrek van den slaaf Dramma, begeeft
-sig met meergemelte Hottentot Piet naar het woonhuijs om te sien, wat of
-er dog mogte te doen zijn, gaande, naar de klink van de combuijs deur
-open gedaan hadden, met hun beijden daar binnen, ontwaarende, soo dra
-binnen quamen, dat de meijd van voorseijde Brink, Francina genaamt, die
-altijd des ’s nagts in ’t woonhuijs sliep, dichte bij een aldaar staande
-handmoolen, doot lag; waarop vuur gemaakt en een endje kaarz opgestooken
-hebbende, hebben geszeijde meijd nader besichtigt, siende alsdoen dat
-het bloed van die meijd langs de grond liep en dat de voordeur van het
-huijs open stond, dewelke door haar toegemaakt weesende, zig met hun
-beijden weeder naar het slavenhuijs terugge gekeert, belastende den
-ouden slaaf Pieter, omtrent teegens dat den dag aanbreeken soude, den
-voormelte Hottentot Piet dat den meergemelte knegt Schipper Jan kennisse
-soude hebben te geeven dat de meijd Francina doot was. Dewelke daarop
-een paard uijt de stal genomen hebbende, sig op weg heeft begeeven om
-dat te verrichten, dog niet verre van de plaats den voornoemden slaaf
-Dramma ontmoetende, aan dewelke hij seijde dat de meijd Francina doot
-was en dat sulx aan de knegt moeste gaan bekend maaken, is hij met dien
-slaaf, vermits denselven hem antwoorde dat de knegt aanstonds komen
-souden, weederom terugge gekeert, rijdende eeven gemelten slaaf Dramma,
-een korten tijd t’ huijs geweest zijnde, naar dat een zadel op het paard
-gelegt hadde, weederom naar de knegt omme denselven bekend te maaken, de
-doot van voorseijde meijd Francina,
+Den ouden slaaf Pieter, naar ’t vertrek van den slaaf Dramma, begeeft sig met meergemelte Hottentot Piet naar het woonhuijs om te sien, wat of er dog mogte te doen zijn, gaande, naar de klink van de combuijs deur open gedaan hadden, met hun beijden daar binnen, ontwaarende, soo dra binnen quamen, dat de meijd van voorseijde Brink, Francina genaamt, die altijd des ’s nagts in ’t woonhuijs sliep, dichte bij een aldaar staande handmoolen, doot lag; waarop vuur gemaakt en een endje kaarz opgestooken hebbende, hebben geszeijde meijd nader besichtigt, siende alsdoen dat het bloed van die meijd langs de grond liep en dat de voordeur van het huijs open stond, dewelke door haar toegemaakt weesende, zig met hun beijden weeder naar het slavenhuijs terugge gekeert, belastende den ouden slaaf Pieter, omtrent teegens dat den dag aanbreeken soude, den voormelte Hottentot Piet dat den meergemelte knegt Schipper Jan kennisse soude hebben te geeven dat de meijd Francina doot was. Dewelke daarop een paard uijt de stal genomen hebbende, sig op weg heeft begeeven om dat te verrichten, dog niet verre van de plaats den voornoemden slaaf Dramma ontmoetende, aan dewelke hij seijde dat de meijd Francina doot was en dat sulx aan de knegt moeste gaan bekend maaken, is hij met dien slaaf, vermits denselven hem antwoorde dat de knegt aanstonds komen souden, weederom terugge gekeert, rijdende eeven gemelten slaaf Dramma, een korten tijd t’ huijs geweest zijnde, naar dat een zadel op het paard gelegt hadde, weederom naar de knegt omme denselven bekend te maaken, de doot van voorseijde meijd Francina,
 
-en met eenen dat op de plaats gemist wierden dien vooraangehaalden slaaf
-Cupido en den Hottentot Louis; treffende hij Dramma dien knegt op het
-pad aan, dewelke hem, soo dra van het voorenstaande kennisse hadde
-bekomen, heeft gelast naar de Klapmuts te rijden en zijn meester van dit
-geval bericht te geeven, ’twelk dien jongen ook vervolgens heeft
-verricht. Vindende dikwils genoemde knegt, zijnde den burger Jan
-Nieuwenhuijsen, bij zijn aankomst t’ huijs, de veelgenoemde meijd
-Francina in de combuijs op haar linkerzijde, met de linker hand onder ’t
-hoofd, doot leggen, ontdekkende wijders dat een camervenster, welkers
-grendel met ijserdraat van binnen vast gemaakt, buijtenshuijs open
-gebrooken was, leggende onder deselve een kruk van een slijpsteen,
-missende ook, gelijk hem gerapporteerd was, dien slaaf Cupido en dien
-Hottentot Louis, siende vervolgens ook, naar dat sig in de camer
-begeeven hadde, dat een aldaar zijnde leedige kelder van hem, en een
-kist van opgemelte Brink, open gebrooken waren, vermissende uijt die
-kist 2 hembden en een baaijtje, mitsgaders, van een aldaar hangende
-kapstok, 2 rokken en een leedere broek.
+en met eenen dat op de plaats gemist wierden dien vooraangehaalden slaaf Cupido en den Hottentot Louis; treffende hij Dramma dien knegt op het pad aan, dewelke hem, soo dra van het voorenstaande kennisse hadde bekomen, heeft gelast naar de Klapmuts te rijden en zijn meester van dit geval bericht te geeven, ’twelk dien jongen ook vervolgens heeft verricht. Vindende dikwils genoemde knegt, zijnde den burger Jan Nieuwenhuijsen, bij zijn aankomst t’ huijs, de veelgenoemde meijd Francina in de combuijs op haar linkerzijde, met de linker hand onder ’t hoofd, doot leggen, ontdekkende wijders dat een camervenster, welkers grendel met ijserdraat van binnen vast gemaakt, buijtenshuijs open gebrooken was, leggende onder deselve een kruk van een slijpsteen, missende ook, gelijk hem gerapporteerd was, dien slaaf Cupido en dien Hottentot Louis, siende vervolgens ook, naar dat sig in de camer begeeven hadde, dat een aldaar zijnde leedige kelder van hem, en een kist van opgemelte Brink, open gebrooken waren, vermissende uijt die kist 2 hembden en een baaijtje, mitsgaders, van een aldaar hangende kapstok, 2 rokken en een leedere broek.
 
-Den vooraangehaalden Hottentot Piet, dewelke op het land beesig was om
-te ploegen, op den 15^e\ ^(hebbende de knegt Jan Nieuwenhuijsen in sijn
-relaas abusive gestelt den 17^e^)[^5] der voormelte maand September,
-van de ploeg t’ huijs komende, heeft gemelte knegt bekend gemaakt dat
-den ouden slaaf en beestenwagter Pieter met den gemelte Hottentot Louis
-bij de ploeg op het land gekomen waren, waarop de huijsvrouwe van
-geciteerden Nieuwenhuijsen met den Hottentot Piet naar het land gegaan
-is, belastende bij haar aankomst de ploeg uijt te spannen, naar welkers
-verrichtinge zij met dat, daarbij zijnde, volk en den Hottentot Louis
-terugge naar huijs is gekeert, seggende eeven gemelte Louis bij zijn
-aankomst aldaar teegens dien knegt, dat den slaaf Cupido teegens hem
-gesegd hadde: Jij hebt geen schuld, gaa jij maar naar huijs toe, ik heb
-een ziel vermoord, ik sal mij selfs vermoorden, met bijvoeginge, dat hij
-in ’t weggaan gesien hadde dat voorseijde slaaf Cupido sig met een mes,
-naar dat desselfs oogen met een doek toegebonden hadde, in de buijk
-heeft gestooken, waarop meergemelte knegt Jan Nieuwenhuijsen dien
-Hottentot Louis vastgebonden hebbende, denselven heeft gelast de plaats
-aan te wijsen waar die moordenaar sig selfs om ’t leeven gebragt hadde,
-wijsende den Hottentot Louis dien knegt een plaats aan, omtrent een half
-uur van het huijs, alwaar eenig bloed lag, vindende naar gedachten een
-hondert treeden daarvandaan den voorgenoemden slaaf Cupido op zijn buijk
-steunende ter aarde leggen, sonder te kunnen spreeken, bekomende de
-bovengemelte gestoolene goederen, beneevens een scheermes en een
-beesteriem, niet verre van dien slaaf Cupido weederom, begeevende sig
-met den Hottentot Louis daarna weeder op weg naar huijs omme
-gecommitteerdens af te wagten, dog een end weegs weg sijnde, wierd hem
-Nieuwenhuijs door de slaven, die bij den slaaf Cupido gelaaten hadde om
-denselven op te passen, toegeroepen dat den slaaf Cupido bereeds
-gestorven was, waarop zijn weg vervolgende en t’ huijs komende, den
-meergemelte Hottentot Louis aan een ketting heeft vastgeslooten, komende
-des anderen daags aldaar den burger Pieter van Taak, dewelke geszeijde
-Louis op zijn wagen geset en naar huijs heeft genomen om denselven naar
-Stellenbosch te brengen. Alle hetwelke U Edel Agtbaarens, des
-gelievende, breeder sullen kunnen sien, uijt de hierneevens gevoegde
-gerecolleerde relaasen van den knegt Jan Nieuwenhuijsen, *sub littera*
-B, van de slaven Pieter van Mallebaar en Dramma van Timor, *sub
-litteris* C en D, en die van den Hottentot Piet, *sub littera* E.
+Den vooraangehaalden Hottentot Piet, dewelke op het land beesig was om te ploegen, op den 15^e\ ^(hebbende de knegt Jan Nieuwenhuijsen in sijn relaas abusive gestelt den 17^e^)[^5] der voormelte maand September, van de ploeg t’ huijs komende, heeft gemelte knegt bekend gemaakt dat den ouden slaaf en beestenwagter Pieter met den gemelte Hottentot Louis bij de ploeg op het land gekomen waren, waarop de huijsvrouwe van geciteerden Nieuwenhuijsen met den Hottentot Piet naar het land gegaan is, belastende bij haar aankomst de ploeg uijt te spannen, naar welkers verrichtinge zij met dat, daarbij zijnde, volk en den Hottentot Louis terugge naar huijs is gekeert, seggende eeven gemelte Louis bij zijn aankomst aldaar teegens dien knegt, dat den slaaf Cupido teegens hem gesegd hadde: Jij hebt geen schuld, gaa jij maar naar huijs toe, ik heb een ziel vermoord, ik sal mij selfs vermoorden, met bijvoeginge, dat hij in ’t weggaan gesien hadde dat voorseijde slaaf Cupido sig met een mes, naar dat desselfs oogen met een doek toegebonden hadde, in de buijk heeft gestooken, waarop meergemelte knegt Jan Nieuwenhuijsen dien Hottentot Louis vastgebonden hebbende, denselven heeft gelast de plaats aan te wijsen waar die moordenaar sig selfs om ’t leeven gebragt hadde, wijsende den Hottentot Louis dien knegt een plaats aan, omtrent een half uur van het huijs, alwaar eenig bloed lag, vindende naar gedachten een hondert treeden daarvandaan den voorgenoemden slaaf Cupido op zijn buijk steunende ter aarde leggen, sonder te kunnen spreeken, bekomende de bovengemelte gestoolene goederen, beneevens een scheermes en een beesteriem, niet verre van dien slaaf Cupido weederom, begeevende sig met den Hottentot Louis daarna weeder op weg naar huijs omme gecommitteerdens af te wagten, dog een end weegs weg sijnde, wierd hem Nieuwenhuijs door de slaven, die bij den slaaf Cupido gelaaten hadde om denselven op te passen, toegeroepen dat den slaaf Cupido bereeds gestorven was, waarop zijn weg vervolgende en t’ huijs komende, den meergemelte Hottentot Louis aan een ketting heeft vastgeslooten, komende des anderen daags aldaar den burger Pieter van Taak, dewelke geszeijde Louis op zijn wagen geset en naar huijs heeft genomen om denselven naar Stellenbosch te brengen. Alle hetwelke U Edel Agtbaarens, des gelievende, breeder sullen kunnen sien, uijt de hierneevens gevoegde gerecolleerde relaasen van den knegt Jan Nieuwenhuijsen, *sub littera* B, van de slaven Pieter van Mallebaar en Dramma van Timor, *sub litteris* C en D, en die van den Hottentot Piet, *sub littera* E.
 
-Den ondergetekende uijt alle de vier voorseijde relaasen verstaan
-hebbende dat den Hottentot Louis niet wel bij zijn verstand was,
-doordien sig steeds van andere Hottentotten en slaaven heeft
-geabsenteert, maakende in zijn eenigheijd verscheijde figuuren, als een
-mensch die buijten zinnen is, somtijds hart \[*sic*\] overluijd
-spreekende, lachende en danssende sonder ijmand bij sig te hebben, heeft
-denselven Hottentot Louis om hiervan de waarheijt te ontdekken, egter
-voor gecommitteerdens uijt deese edelagtbaare Raade een confessie
-afgenomen, hebbende in desselfs reedenen geen groote zinneloosheijd
-kunnen bespeuren als dat somtijds wat variabel in het antwoorden was, en
-dat bij ’t neemen van ’t recollement op den relaasen telkens
-protesteerde dat niet sinneloos ofte gek was, schoon sulx eevenwel door
-de relatanten staande wierd gehouden, geevende hij Louis niets anders in
-zijn geheele confessie, deesen *sub littera* F annex, te kennen, als dat
-door dwang door den slaaf Cupido, voornoemt, met geweld gedwongen is
-geweest om meede te gaan. Dat dien jongen hem eerst voor de deur van het
-slaavenhuijs over sijne onwilligheijd met een mes gedreijgd had te
-willen steeken, dat hij hem sulx naderhand, in de camer weesende,
-wanneer het licht weijgerde vast te houden, meede gedaan hadde, dat hij
-hem, in het voorhuijs komende, met een beesteriem om zijn lijf aan zijn
-eijgen lichaam vast gemaakt heeft, tot soo lange dat den slaaf Cupido,
-voormelt, hem belaste naar huijs te gaan om aan de knegt te waarschouwen
-dat hij hem vermoorden soude, ontkennende voorts nogte aan de moord van
-de meijd, nog aan het openbreeken van het venster, nog aan die van die
-kist en kelder, nog aan de andere gepleegde dieverijen, eenigsints
-handdaadig geweest te zijn, en waarvan den ondergetekende sig buijten
-staat erkend, door manquement van bewijsen, dien Hottentot Louis in
-eenig poinct het contrarie te kunnen bewijsen.
+Den ondergetekende uijt alle de vier voorseijde relaasen verstaan hebbende dat den Hottentot Louis niet wel bij zijn verstand was, doordien sig steeds van andere Hottentotten en slaaven heeft geabsenteert, maakende in zijn eenigheijd verscheijde figuuren, als een mensch die buijten zinnen is, somtijds hart \[*sic*\] overluijd spreekende, lachende en danssende sonder ijmand bij sig te hebben, heeft denselven Hottentot Louis om hiervan de waarheijt te ontdekken, egter voor gecommitteerdens uijt deese edelagtbaare Raade een confessie afgenomen, hebbende in desselfs reedenen geen groote zinneloosheijd kunnen bespeuren als dat somtijds wat variabel in het antwoorden was, en dat bij ’t neemen van ’t recollement op den relaasen telkens protesteerde dat niet sinneloos ofte gek was, schoon sulx eevenwel door de relatanten staande wierd gehouden, geevende hij Louis niets anders in zijn geheele confessie, deesen *sub littera* F annex, te kennen, als dat door dwang door den slaaf Cupido, voornoemt, met geweld gedwongen is geweest om meede te gaan. Dat dien jongen hem eerst voor de deur van het slaavenhuijs over sijne onwilligheijd met een mes gedreijgd had te willen steeken, dat hij hem sulx naderhand, in de camer weesende, wanneer het licht weijgerde vast te houden, meede gedaan hadde, dat hij hem, in het voorhuijs komende, met een beesteriem om zijn lijf aan zijn eijgen lichaam vast gemaakt heeft, tot soo lange dat den slaaf Cupido, voormelt, hem belaste naar huijs te gaan om aan de knegt te waarschouwen dat hij hem vermoorden soude, ontkennende voorts nogte aan de moord van de meijd, nog aan het openbreeken van het venster, nog aan die van die kist en kelder, nog aan de andere gepleegde dieverijen, eenigsints handdaadig geweest te zijn, en waarvan den ondergetekende sig buijten staat erkend, door manquement van bewijsen, dien Hottentot Louis in eenig poinct het contrarie te kunnen bewijsen.
 
-’t Is dan om die twee reedenen, edelagtbaare heer en edele heeren,
-namentlijk de getuijgenisse dat dien Hottentot zinneloos soude zijn, en
-dan dat dienselven betuijgt, geen schuld, nog deel aan het een of het
-andere te hebben, dat den ondergetekende sig genoodsaakt vind sig te
-wenden naar U Edel Agtbaarens omme deselven ootmoedig te versoeken,
-derselve hoogwijs oordeel, wat en hoedaanig hij met dien Hottentot Louis
-handelen en wat verders deese zaak aangaande, sal hebben te doen.
+’t Is dan om die twee reedenen, edelagtbaare heer en edele heeren, namentlijk de getuijgenisse dat dien Hottentot zinneloos soude zijn, en dan dat dienselven betuijgt, geen schuld, nog deel aan het een of het andere te hebben, dat den ondergetekende sig genoodsaakt vind sig te wenden naar U Edel Agtbaarens omme deselven ootmoedig te versoeken, derselve hoogwijs oordeel, wat en hoedaanig hij met dien Hottentot Louis handelen en wat verders deese zaak aangaande, sal hebben te doen.
 
 ’twelk doende etc.[^6]
 
 TRANSLATION
 
-To the honourable lord Rijk Tulbagh, president, together with the
-honourable Council of Justice of the Castle of Good Hope.
+To the honourable lord Rijk Tulbagh, president, together with the honourable Council of Justice of the Castle of Good Hope.
 
 Honourable Lord and honourable Lords,
 
-With this, the undersigned landdrost informs your honours with the
-utmost respect that on the 15^th^ of the just passed month September,
-when he found himself at the Cape, he received a report from the former
-*heemraad* Andries Brink that a *jongen* of the former burgher
-councillor, *Sieur* Andries Grové, named Cupido van Bengalen, who was
-stationed on the farm of the aforementioned Brink,[^7] named
-Vischwater, and situated behind Riebeek-Kasteel, had stabbed to death a
-*meijd* of his, named Francina, who also lived there. Hereupon he at
-once sent his deputy an order to immediately proceed to that place with
-delegates and to do an inspection, who, after having done so and
-returned home again, informed the undersigned that they found the dead
-body of the aforesaid *meijd* Francina lying next to a hand-mill in the
-kitchen of the residence and having a cut on her throat, two stabs in
-her right breast and one in the ribs on her right side, under her arm
-and, moreover, that the whole head of this female slave was covered in
-blood, and also that they saw that the window of the room on the
-left-hand side of the residence, which had been tied to the bolts from
-the inside with iron wire, had been broken open from the outside and,
-moreover, that in this room a chest and a cellaret had likewise been
-broken open and from which some goods, as the *knecht* asserts, were
-stolen.
+With this, the undersigned landdrost informs your honours with the utmost respect that on the 15^th^ of the just passed month September, when he found himself at the Cape, he received a report from the former *heemraad* Andries Brink that a *jongen* of the former burgher councillor, *Sieur* Andries Grové, named Cupido van Bengalen, who was stationed on the farm of the aforementioned Brink,[^7] named Vischwater, and situated behind Riebeek-Kasteel, had stabbed to death a *meijd* of his, named Francina, who also lived there. Hereupon he at once sent his deputy an order to immediately proceed to that place with delegates and to do an inspection, who, after having done so and returned home again, informed the undersigned that they found the dead body of the aforesaid *meijd* Francina lying next to a hand-mill in the kitchen of the residence and having a cut on her throat, two stabs in her right breast and one in the ribs on her right side, under her arm and, moreover, that the whole head of this female slave was covered in blood, and also that they saw that the window of the room on the left-hand side of the residence, which had been tied to the bolts from the inside with iron wire, had been broken open from the outside and, moreover, that in this room a chest and a cellaret had likewise been broken open and from which some goods, as the *knecht* asserts, were stolen.
 
-That they then understood that the aforementioned slave Cupido van
-Bengalen, who was said to have been the perpetrator of this murder and
-housebreaking, had taken his own life in the veld not far from there.
-They then also proceeded to that place, finding this slave about half an
-hour from the said farm Vischwater, lying on his face by a small river
-with a stab in his stomach, from which his intestines were hanging; with
-a razor, which was open, lying next to his side and, some paces from
-there, another large knife with its sheath; which will appear more
-evident to your honours from the declaration of the deputised
-*heemraden*, attached with this under the letter A. On his return, the
-deputy brought with him the Hottentot named Louis, who also lived on
-this farm, and had run away with the aforementioned slave Cupido, and
-who is currently sitting in the prison here.
+That they then understood that the aforementioned slave Cupido van Bengalen, who was said to have been the perpetrator of this murder and housebreaking, had taken his own life in the veld not far from there. They then also proceeded to that place, finding this slave about half an hour from the said farm Vischwater, lying on his face by a small river with a stab in his stomach, from which his intestines were hanging; with a razor, which was open, lying next to his side and, some paces from there, another large knife with its sheath; which will appear more evident to your honours from the declaration of the deputised *heemraden*, attached with this under the letter A. On his return, the deputy brought with him the Hottentot named Louis, who also lived on this farm, and had run away with the aforementioned slave Cupido, and who is currently sitting in the prison here.
 
-That the undersigned, in order to discover if this Hottentot Louis is
-also guilty of this abominable murder and housebreaking, summoned to him
-both the *knecht*, the slaves, as well as the Hottentots who were on the
-farm Vischwater at this time and took statements from the same, who
-declared that on the night between the 13^th^ and 14^th^ of the recently
-passed month September, the aforementioned slave Cupido came from the
-house of the farm Vischwater to the slave house, where he asked the
-Hottentot Louis and his brother Piet to go with him to the farm of the
-burgher Pieter van Taak to search for dagga there, upon which they both
-got up, when Louis went outside, while the Hottentot Piet, since he had
-thought better of it, lay down again to sleep. When the slave Pieter van
-Mallabaar, who was lying asleep on his bed in the slave house and did
-not know anything of this, heard the dogs barking loudly, he went
-outside to see what was going on and noticed, as soon as he came
-outside, seeing the moon was shining brightly, that one of the windows
-of the house on this farm was standing open. He therefore went back
-again into the slave house and roused a *jongen* of aforementioned
-Brink, named Dramma, who was lying asleep there, saying to him that the
-window of the room was open and that this could possibly have been done
-by runaways and that he must go and inform the *knecht*, commonly known
-as Schipper Jan, who was at this time on his mother-in-law’s farm,
-situated about an hour from there. Thereupon Dramma took a horse and
-went to that place but, when he was not far from the farm, he was thrown
-off by the horse, yet continued by foot and, on his arrival, roused the
-aforementioned *knecht* and informed him of the window standing open,
-whereupon this *knecht* answered him that Dramma should go home and that
-he would follow him, which is when this slave returned again from there.
+That the undersigned, in order to discover if this Hottentot Louis is also guilty of this abominable murder and housebreaking, summoned to him both the *knecht*, the slaves, as well as the Hottentots who were on the farm Vischwater at this time and took statements from the same, who declared that on the night between the 13^th^ and 14^th^ of the recently passed month September, the aforementioned slave Cupido came from the house of the farm Vischwater to the slave house, where he asked the Hottentot Louis and his brother Piet to go with him to the farm of the burgher Pieter van Taak to search for dagga there, upon which they both got up, when Louis went outside, while the Hottentot Piet, since he had thought better of it, lay down again to sleep. When the slave Pieter van Mallabaar, who was lying asleep on his bed in the slave house and did not know anything of this, heard the dogs barking loudly, he went outside to see what was going on and noticed, as soon as he came outside, seeing the moon was shining brightly, that one of the windows of the house on this farm was standing open. He therefore went back again into the slave house and roused a *jongen* of aforementioned Brink, named Dramma, who was lying asleep there, saying to him that the window of the room was open and that this could possibly have been done by runaways and that he must go and inform the *knecht*, commonly known as Schipper Jan, who was at this time on his mother-in-law’s farm, situated about an hour from there. Thereupon Dramma took a horse and went to that place but, when he was not far from the farm, he was thrown off by the horse, yet continued by foot and, on his arrival, roused the aforementioned *knecht* and informed him of the window standing open, whereupon this *knecht* answered him that Dramma should go home and that he would follow him, which is when this slave returned again from there.
 
-After the departure of the slave Dramma, the old slave Pieter went with
-the aforementioned Hottentot Piet to the house to see what could be done
-there, with both of them entering after they had opened the latch of the
-kitchen door, discovering, as soon as they stepped inside, that the
-*meijd* of the aforesaid Brink, named Francina, who always slept in the
-house at night, was lying dead by the hand-mill standing there,
-whereupon they made a fire and lit a stub of candle and inspected the
-said *meijd* closer, seeing then that the blood of this *meijd* was
-running along the ground and that the front door of the house was
-standing open, which door was closed by them. Afterwards they both
-returned again to the slave house, while, around the time of sunrise,
-the old slave Pieter ordered the aforementioned Hottentot Piet to go and
-tell the aforementioned *knecht* Schipper Jan that the *meijd* Francina
-was dead. This Hottentot then took a horse from the stable and went on
-his way to do that but, not far from the farm, he met up with the
-aforementioned slave Dramma, whom he informed of the *meijd* Francina’s
-death, and that he was supposed to go and tell the *knecht* about this;
-but then came back again with this slave since the same had answered him
-that the *knecht* would presently arrive. However, the slave Dramma,
-after having been at home for a short while, having put a saddle on the
-horse, again rode off to the *knecht* to inform him of the death of the
-aforesaid *meijd* Francina and also that there were missing from the
-farm the aforementioned slave Cupido and the Hottentot Louis. Dramma met
-with this *knecht* on the road, who ordered him, as soon as he learned
-of the aforegoing, to ride to Klapmuts and to report this incident to
-his master, which this *jongen* then also did. On his arrival home, this
-*knecht*, who is the burgher Jan Nieuwenhuijsen, found the
-aforementioned *meijd* Francina lying dead on her lefthand side with her
-left hand under her head in the kitchen, and discovered further that one
-of the windows of the room, whose bolt had been tied from the inside
-with iron wire, had been broken open from the outside of the house, with
-the handle of a grindstone lying underneath the window. He also found
-missing, as had been reported to him, the slave Cupido and the
-Hotttentot Louis, also seeing later, when he had gone into the room,
-that an empty cellaret of his and a chest of the said Brink, which were
-both in there, had been broken open, and found two shirts and a jacket
-missing from this chest, as well as two frocks and a pair of leather
-trousers from the row of pegs there.
+After the departure of the slave Dramma, the old slave Pieter went with the aforementioned Hottentot Piet to the house to see what could be done there, with both of them entering after they had opened the latch of the kitchen door, discovering, as soon as they stepped inside, that the *meijd* of the aforesaid Brink, named Francina, who always slept in the house at night, was lying dead by the hand-mill standing there, whereupon they made a fire and lit a stub of candle and inspected the said *meijd* closer, seeing then that the blood of this *meijd* was running along the ground and that the front door of the house was standing open, which door was closed by them. Afterwards they both returned again to the slave house, while, around the time of sunrise, the old slave Pieter ordered the aforementioned Hottentot Piet to go and tell the aforementioned *knecht* Schipper Jan that the *meijd* Francina was dead. This Hottentot then took a horse from the stable and went on his way to do that but, not far from the farm, he met up with the aforementioned slave Dramma, whom he informed of the *meijd* Francina’s death, and that he was supposed to go and tell the *knecht* about this; but then came back again with this slave since the same had answered him that the *knecht* would presently arrive. However, the slave Dramma, after having been at home for a short while, having put a saddle on the horse, again rode off to the *knecht* to inform him of the death of the aforesaid *meijd* Francina and also that there were missing from the farm the aforementioned slave Cupido and the Hottentot Louis. Dramma met with this *knecht* on the road, who ordered him, as soon as he learned of the aforegoing, to ride to Klapmuts and to report this incident to his master, which this *jongen* then also did. On his arrival home, this *knecht*, who is the burgher Jan Nieuwenhuijsen, found the aforementioned *meijd* Francina lying dead on her lefthand side with her left hand under her head in the kitchen, and discovered further that one of the windows of the room, whose bolt had been tied from the inside with iron wire, had been broken open from the outside of the house, with the handle of a grindstone lying underneath the window. He also found missing, as had been reported to him, the slave Cupido and the Hotttentot Louis, also seeing later, when he had gone into the room, that an empty cellaret of his and a chest of the said Brink, which were both in there, had been broken open, and found two shirts and a jacket missing from this chest, as well as two frocks and a pair of leather trousers from the row of pegs there.
 
-The aforementioned Hottentot Piet, who was busy ploughing the field on
-the 15^th^ (which the *knecht* Jan Nieuwenhuijsen accidentally said to
-be the 17^th^ in his statement) of the month September, came home from
-the ploughing and informed the said *knecht* that the old slave and
-cattle herder Pieter had come with the Hottentot Louis to the plough in
-the field. Whereupon the wife of the said Nieuwenhuijsen went to the
-field with the Hottentot Piet and, on her arrival there, ordered the
-plough to be outspanned and, after this was done, returned to the house
-with the Hottentot Louis and the *volk* who were \[working\] there. On
-his arrival there, Louis told this *knecht* that the slave Cupido had
-said to him: “You are not guilty, you go on home, I have murdered a
-soul, I will murder myself”, while adding that, when he was leaving, he
-saw the aforesaid slave Cupido, after first covering his eyes with a
-cloth, stabbing himself in the stomach with a knife. Upon this, the
-*knecht* Jan Nieuwenhuijsen tied up this Hottentot Louis and ordered the
-same to point out the place where this murderer had taken his own life.
-The Hottentot Louis then pointed out to this *knecht* a place, about
-half an hour from the house, where there was some blood, finding
-approximately 100 paces from there the aforementioned slave Cupido lying
-on the ground on his stomach, being unable to speak, finding also, not
-far from this slave Cupido, the abovementioned stolen goods, together
-with a razor and a *riem*. After this, he again set out with the
-Hottentot Louis on the way to the house to await the delegates, yet,
-when he was gone some way, the slaves whom he had left with the slave
-Cupido to look after the same, shouted to him, Nieuwenhuijs \[*sic*\],
-that the slave Cupido had already died, whereupon he continued on his
-way and when he came home, he tied the aforesaid Hottentot Louis to a
-chain, while the burgher Pieter van Taak, who came there the following
-day, put the said Louis on his wagon and took him to his house in order
-to take him to Stellenbosch. All of which your honours, if you so
-desire, would be able to view in greater detail in the verified
-statements of the *knecht* Jan Nieuwenhuijsen, attached hereto under the
-letter B, of the slaves Pieter van Mallabaar and Dramma van Timor, under
-the letters C and D, and that of the Hottentot Piet under the letter E.
+The aforementioned Hottentot Piet, who was busy ploughing the field on the 15^th^ (which the *knecht* Jan Nieuwenhuijsen accidentally said to be the 17^th^ in his statement) of the month September, came home from the ploughing and informed the said *knecht* that the old slave and cattle herder Pieter had come with the Hottentot Louis to the plough in the field. Whereupon the wife of the said Nieuwenhuijsen went to the field with the Hottentot Piet and, on her arrival there, ordered the plough to be outspanned and, after this was done, returned to the house with the Hottentot Louis and the *volk* who were \[working\] there. On his arrival there, Louis told this *knecht* that the slave Cupido had said to him: “You are not guilty, you go on home, I have murdered a soul, I will murder myself”, while adding that, when he was leaving, he saw the aforesaid slave Cupido, after first covering his eyes with a cloth, stabbing himself in the stomach with a knife. Upon this, the *knecht* Jan Nieuwenhuijsen tied up this Hottentot Louis and ordered the same to point out the place where this murderer had taken his own life. The Hottentot Louis then pointed out to this *knecht* a place, about half an hour from the house, where there was some blood, finding approximately 100 paces from there the aforementioned slave Cupido lying on the ground on his stomach, being unable to speak, finding also, not far from this slave Cupido, the abovementioned stolen goods, together with a razor and a *riem*. After this, he again set out with the Hottentot Louis on the way to the house to await the delegates, yet, when he was gone some way, the slaves whom he had left with the slave Cupido to look after the same, shouted to him, Nieuwenhuijs \[*sic*\], that the slave Cupido had already died, whereupon he continued on his way and when he came home, he tied the aforesaid Hottentot Louis to a chain, while the burgher Pieter van Taak, who came there the following day, put the said Louis on his wagon and took him to his house in order to take him to Stellenbosch. All of which your honours, if you so desire, would be able to view in greater detail in the verified statements of the *knecht* Jan Nieuwenhuijsen, attached hereto under the letter B, of the slaves Pieter van Mallabaar and Dramma van Timor, under the letters C and D, and that of the Hottentot Piet under the letter E.
 
-Since the undersigned understood from all four of the aforementioned
-testimonies that the Hottentot Louis is not in his right mind, as he
-continually absented himself from the other Hottentots and slaves,
-acting in strange ways when on his own, just as a person who is out of
-his mind, sometimes speaking, laughing and dancing out loudly, without
-anybody being with him; he took down, in the presence of delegates from
-this honourable Council, a confession by the Hottentot Louis in order to
-discover the truth about this, discovering in his reasoning no great
-senselessness, except that he sometimes varied in his answers and that,
-when the statements were verified, he protested every time that he is
-not senseless or crazy, even though this was still maintained by the
-witnesses. He, Louis, did not add anything in his whole confession,
-which is attached with this under the letter F, other than that he was
-violently forced by the slave Cupido to go with him; that this *jongen*
-first, before the door of the slave house, threatened to stab him with a
-knife because of his unwillingness, that later on, when they were inside
-the room and he refused to hold the light, he did it again; that when
-they got into the *voorhuijs*, he tied him to his own body with a *riem*
-until such time as the aforementioned slave Cupido ordered him to go to
-the house in order to inform the *knecht* that he would be taking his
-own life; denying further, to have been instrumental in any way in
-either the murder of the *meijd*, or the breaking open of the window,
-nor that of the chest and cellaret, nor in any of the other committed
-thefts; and of which the undersigned must admit to be unable, due to a
-lack of evidence, to prove anything to the contrary against this
-Hottentot.
+Since the undersigned understood from all four of the aforementioned testimonies that the Hottentot Louis is not in his right mind, as he continually absented himself from the other Hottentots and slaves, acting in strange ways when on his own, just as a person who is out of his mind, sometimes speaking, laughing and dancing out loudly, without anybody being with him; he took down, in the presence of delegates from this honourable Council, a confession by the Hottentot Louis in order to discover the truth about this, discovering in his reasoning no great senselessness, except that he sometimes varied in his answers and that, when the statements were verified, he protested every time that he is not senseless or crazy, even though this was still maintained by the witnesses. He, Louis, did not add anything in his whole confession, which is attached with this under the letter F, other than that he was violently forced by the slave Cupido to go with him; that this *jongen* first, before the door of the slave house, threatened to stab him with a knife because of his unwillingness, that later on, when they were inside the room and he refused to hold the light, he did it again; that when they got into the *voorhuijs*, he tied him to his own body with a *riem* until such time as the aforementioned slave Cupido ordered him to go to the house in order to inform the *knecht* that he would be taking his own life; denying further, to have been instrumental in any way in either the murder of the *meijd*, or the breaking open of the window, nor that of the chest and cellaret, nor in any of the other committed thefts; and of which the undersigned must admit to be unable, due to a lack of evidence, to prove anything to the contrary against this Hottentot.
 
-It is then, honourable Lord and honourable Lords, because of these two
-reasons, viz. the evidence that this Hottentot is senseless and that the
-same declares to have no part or guilt in any or all of this, that the
-undersigned finds himself forced to turn to your honours to humbly
-enquire from you what, in your sage opinion, he should do and how he
-should deal with this Hottentot Louis, and what else he should do
-concerning this case.
+It is then, honourable Lord and honourable Lords, because of these two reasons, viz. the evidence that this Hottentot is senseless and that the same declares to have no part or guilt in any or all of this, that the undersigned finds himself forced to turn to your honours to humbly enquire from you what, in your sage opinion, he should do and how he should deal with this Hottentot Louis, and what else he should do concerning this case.
 
 Which I do, etc.[^8]
 
-[^1]: * This was relatively rare, since most farmers did not possess
-    enough slaves to warrant a special building for them. Slave ‘houses’
-    are only recorded on the largest farms, Worden 1985: 92-3; Markell
-    1993:74-6; Shell 1994: 257-58; and Schoeman 2001: 586-88. Note that
-    Francina, the female slave, slept in the main farmhouse, separate
-    from the men. *
+[^1]: * This was relatively rare, since most farmers did not possess enough slaves to warrant a special building for them. Slave ‘houses’ are only recorded on the largest farms, Worden 1985: 92-3; Markell 1993:74-6; Shell 1994: 257-58; and Schoeman 2001: 586-88. Note that Francina, the female slave, slept in the main farmhouse, separate from the men. *
 
-[^2]: * For the use of *knechten* as overseers, see 1761 Johan Spring in
-    ’t Veld, n. 1.*
+[^2]: * For the use of *knechten* as overseers, see 1761 Johan Spring in ’t Veld, n. 1.*
 
-[^3]: * Cupido van Bengalen was owned by *Sieur* Andries Grové, Brink’s
-    father-in-law, and so knew the Khoi workers on Brink’s farm. There
-    is no evidence that he killed Francina for any reason other than
-    that she got in his way when he was stealing from Brink’s farmhouse
-    (Louis stated in his later deposition that Cupido had merely said to
-    him, ‘ik heb de meijd vermoord’ \[I have killed the *meijd*\]
-    without referring to her by name, CJ 352, f. 689v). *
+[^3]: * Cupido van Bengalen was owned by *Sieur* Andries Grové, Brink’s father-in-law, and so knew the Khoi workers on Brink’s farm. There is no evidence that he killed Francina for any reason other than that she got in his way when he was stealing from Brink’s farmhouse (Louis stated in his later deposition that Cupido had merely said to him, ‘ik heb de meijd vermoord’ \[I have killed the *meijd*\] without referring to her by name, CJ 352, f. 689v). *
 
-[^4]: * A charge was brought against Louis by the Council of Justice,
-    but the fiscal stated in his *eijsch* that he was ‘zinneloos’
-    (senseless) and therefore could not be held responsible for his
-    actions and so he was subsequently released, CJ 27, f. 75 and CJ
-    352, f. 671. Testimonies in this case include those of Andries
-    Brink, Jan Nieuwenhuijsen, the Khoi Louis and Piet, and the slaves
-    Dramma van Timor and Pieter van Mallebaar, CJ 352, ff. 679-94, with
-    the originals in 1/STB 3/9.*
+[^4]: * A charge was brought against Louis by the Council of Justice, but the fiscal stated in his *eijsch* that he was ‘zinneloos’ (senseless) and therefore could not be held responsible for his actions and so he was subsequently released, CJ 27, f. 75 and CJ 352, f. 671. Testimonies in this case include those of Andries Brink, Jan Nieuwenhuijsen, the Khoi Louis and Piet, and the slaves Dramma van Timor and Pieter van Mallebaar, CJ 352, ff. 679-94, with the originals in 1/STB 3/9.*
 
 [^5]:  The 15^th^ is written over the 17^th^, hence this paraphrase.
 
-[^6]:  The original ends here like this, which means that it was
-    probably a rough copy which was later written out neatly and
-    properly signed. This also explains why this document is in the
-    Stellenbosch district archive and not in the Council of Justice
-    volumes. Since Cupido died, his case was not sent to the Council of
-    Justice, although it was used in Louis’s case.
+[^6]:  The original ends here like this, which means that it was probably a rough copy which was later written out neatly and properly signed. This also explains why this document is in the Stellenbosch district archive and not in the Council of Justice volumes. Since Cupido died, his case was not sent to the Council of Justice, although it was used in Louis’s case.
 
-[^7]:  Cupido van Bengalen, like Pieter van Malabar, was working on the
-    farm of his owner’s son-in-law, presumably to help with the
-    ploughing that was taking place. Hiring of slaves, or their loan by
-    kin, during peak labour periods was a common practice, Worden 1985:
-    25 and 87-8.
+[^7]:  Cupido van Bengalen, like Pieter van Malabar, was working on the farm of his owner’s son-in-law, presumably to help with the ploughing that was taking place. Hiring of slaves, or their loan by kin, during peak labour periods was a common practice, Worden 1985: 25 and 87-8.
 
-[^8]:  See note 6 above.
+[^8]:  See note 6 above. 

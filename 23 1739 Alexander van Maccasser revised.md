@@ -1,307 +1,63 @@
 # ALEXANDER VAN MACCASSER
 
-*This incident one evening in the house of Abraham Decker is a good
-example of how circumstantial detail about slave life can be gleaned
-from the criminal records.[^1] Alexander van Maccasser was brought
-to trial for threatening his owner and the other slaves in the household
-with a knife. The evidence from the case is full of insights into the
-role slaves played in a wealthy Cape Town household: cooking, serving
-meals, fetching water from the pump, transporting the owner in a sedan
-chair, as well as giving some information about the arrangement of rooms
-and their functions.[^2] Also of particular note are the
-relationships between, and the hierarchy among, Decker’s slaves:
-Alexander is unwelcome serving at table and is ordered to the kitchen by
-a slave who is evidently in a more privileged position. *
+*This incident one evening in the house of Abraham Decker is a good example of how circumstantial detail about slave life can be gleaned from the criminal records.[^1] Alexander van Maccasser was brought to trial for threatening his owner and the other slaves in the household with a knife. The evidence from the case is full of insights into the role slaves played in a wealthy Cape Town household: cooking, serving meals, fetching water from the pump, transporting the owner in a sedan chair, as well as giving some information about the arrangement of rooms and their functions.[^2] Also of particular note are the relationships between, and the hierarchy among, Decker’s slaves: Alexander is unwelcome serving at table and is ordered to the kitchen by a slave who is evidently in a more privileged position. *
 
 **CJ 786** Sententiën, 1736-1743, ff. 303-11.
 
-Alsoo Alexander van Maccasser, oud naar gissing 30 jaaren, lijfeijgen
-van den ondercoopman en negotie overdraeger d’ edele Abraham Decker,
-thans ’s heeren gevangen, buijten pijn en dwang van banden, van ijsers,
-ofte eenige de minste bedreijging van dien, vrijwillig heeft beleeden,
-en ook ten vollen is gebleeken:
+Alsoo Alexander van Maccasser, oud naar gissing 30 jaaren, lijfeijgen van den ondercoopman en negotie overdraeger d’ edele Abraham Decker, thans ’s heeren gevangen, buijten pijn en dwang van banden, van ijsers, ofte eenige de minste bedreijging van dien, vrijwillig heeft beleeden, en ook ten vollen is gebleeken:
 
-Dat hij op Saturdag avond, den 14^e^ der gepasseerde maand November, na
-verrigtinge van desselfs gewoone combuijswerk, uijtgegaan zijnde,
-vervolgens met eenige zijner makkers, volgens zijn gevangens seggen, op
-straat een soopje heeft gedroncken waarvan hij een wijnig beschonken
-raakte, en dus teegens neegen uuren weederom te huijs quam, begeevende
-sig alsdoen naar de combuijs om, soo als hem geordonneert was, een
-paepier met ham op de rooster te braeden.
+Dat hij op Saturdag avond, den 14^e^ der gepasseerde maand November, na verrigtinge van desselfs gewoone combuijswerk, uijtgegaan zijnde, vervolgens met eenige zijner makkers, volgens zijn gevangens seggen, op straat een soopje heeft gedroncken waarvan hij een wijnig beschonken raakte, en dus teegens neegen uuren weederom te huijs quam, begeevende sig alsdoen naar de combuijs om, soo als hem geordonneert was, een paepier met ham op de rooster te braeden.
 
-Dat zijn gevangens lijfheer, soo drae te huijs gekoomen was, door de
-slaevinne Dorinde wierde gewaarschouwt dat hij gevangen droncken was,
-onder het seggen: Singeur \[*sic*\], Alexander is weer dronken, hij
-slaat en goijt met vuur naar mijn lijf, waarop zijn gesegde lijfheer in
-de combuijs is gekoomen, seggende teegens hem gevangen: Sijd gij al weer
-droncken en moveert questie?, daar denselven op ten antwoord gaf, Ik ben
-niet dronken, repliceerende gemelten zijn lijfheer daarop: Indien gij
-niet droncken was, soo soudet gij wel meer vuur onder de rooster doen,
-want met soo wijnig vuur soude de ham nog in geen uur of twee klaar
-zijn, waarop hij gevangen met bijde zijne handen eenige koolen van de
-haard nam om onder de rooster te doen, op soodanige quaadaardige wijse
-dat de asch in het paepier van de ham vloogh, geevende zijn gevangens
-lijfheer hem alsdoen eenige slaagen met de hand en een schop met de
-voet, hem voorts belastende dat slaapen soude gaan en, aan de meijd
-Diana, dat zij de asch van de ham soude doen en deselve klaar maaken,
-gaande vervolgens uijt de combuijs naar desselfs voorcaemer.
+Dat zijn gevangens lijfheer, soo drae te huijs gekoomen was, door de slaevinne Dorinde wierde gewaarschouwt dat hij gevangen droncken was, onder het seggen: Singeur \[*sic*\], Alexander is weer dronken, hij slaat en goijt met vuur naar mijn lijf, waarop zijn gesegde lijfheer in de combuijs is gekoomen, seggende teegens hem gevangen: Sijd gij al weer droncken en moveert questie?, daar denselven op ten antwoord gaf, Ik ben niet dronken, repliceerende gemelten zijn lijfheer daarop: Indien gij niet droncken was, soo soudet gij wel meer vuur onder de rooster doen, want met soo wijnig vuur soude de ham nog in geen uur of twee klaar zijn, waarop hij gevangen met bijde zijne handen eenige koolen van de haard nam om onder de rooster te doen, op soodanige quaadaardige wijse dat de asch in het paepier van de ham vloogh, geevende zijn gevangens lijfheer hem alsdoen eenige slaagen met de hand en een schop met de voet, hem voorts belastende dat slaapen soude gaan en, aan de meijd Diana, dat zij de asch van de ham soude doen en deselve klaar maaken, gaande vervolgens uijt de combuijs naar desselfs voorcaemer.
 
-Dat den gevangen, in plaats van zijn lijfheers ordre te obedieeren,
-booven de schoorsteenmantel naar het groote combuijsmes heeft gesogt,
-onder het seggen: Ik heb het hier geborgen, wie heeft het weggenoomen,
-en hetselve niet vindende, door dien het gemelten mes door de meijd Anna
-geborgen was, nam den gevangen vervolgens een mes met een wit heft,
-zijnde een der taafelmessen, dat hij kort bevoorens in desselfs hand
-gehad en op de combuijs taafel needergelegt hadde, weederom van deselve
-af, met hetwelk den gevangen, na het gemelten mes in zijn broeksak
-gestooken te hebben, sig in het voorhuijs na de caemerdeur begaf, in
-dewelke zijn gevangens lijfheer en juffrouw aan een klijn taafeltje
-saaten te eeten, om, volgens zijn gevangens seggen, desselfs lijfheer om
-vergiffenis te versoeken, gemerkt hij gehoord hadde dat om de caffers
-was gezonden, werdende door den gevangen aan den slaaf Galant, denwelken
-met meer andere bij gemelten caamerdeur stond, en hem gevangen vroeg,
-wat hij daer quam doen, ten antwoord gegeeven: Ik kom hier om sinjeur op
-te passen, waarop door gemelten Galant geantwoord weird: Wij staan hier
-om op te passen, gae gij maar naar de combuijs, soo als den gevangen
-alsdoen ook knorrende deed, dog quam naaderhand weederom bij gemelten
-caamerdeur en gaf aan zijn genoemde lijfheer, dewelke hem daar siende
-staan, vroeg, wat hij quam doen, hetselfde antwoord: Ik kom sijneur
-oppassen, werdende hierop door zijn gevangens lijfheer, onder het
-seggen: Dat ben ik van jouw niet gewend, dat is van zijn leeven geen
-goed werk, gij bent anders te luij om een half aam waater van de pomp te
-haalen, aen hem gevangen nogmaals belast dat slaapen soude gaan, staande
-daarna van zijn stoel en ging op de rustbank, daar zijn deegen lag,
-sitten, die hij in de hand nam, gaande hierop den gevangen als doen ook
-al murmureerende daarvandaan naar de galdereij, en een reijs of twee
-gints en weeder gekuijrt hebbende, begaf hij sig weijders naar het
-booven caamertje, dog siende dat den deur geslooten was, ging den
-gevangen weederom naer de combuijs, alwaar hij de meijden Diana met
-haare twee kinderen en Candasa \[*sic*\] vond, en quam, nadat het mes
-uijt sijn sak gehaald, met hetselve in de hand, onder het seggen: Nu is
-het tijd, daar mag van koomen wat er van wil, op gemelten Diana
-toeloopen, dewelke hierop met haare twee kinderen en gemelten Candasa de
-vlugt naar vooren naemen en sig door de geopende deur op straat
-begaeven, roepende: Moord, en: Brand.
+Dat den gevangen, in plaats van zijn lijfheers ordre te obedieeren, booven de schoorsteenmantel naar het groote combuijsmes heeft gesogt, onder het seggen: Ik heb het hier geborgen, wie heeft het weggenoomen, en hetselve niet vindende, door dien het gemelten mes door de meijd Anna geborgen was, nam den gevangen vervolgens een mes met een wit heft, zijnde een der taafelmessen, dat hij kort bevoorens in desselfs hand gehad en op de combuijs taafel needergelegt hadde, weederom van deselve af, met hetwelk den gevangen, na het gemelten mes in zijn broeksak gestooken te hebben, sig in het voorhuijs na de caemerdeur begaf, in dewelke zijn gevangens lijfheer en juffrouw aan een klijn taafeltje saaten te eeten, om, volgens zijn gevangens seggen, desselfs lijfheer om vergiffenis te versoeken, gemerkt hij gehoord hadde dat om de caffers was gezonden, werdende door den gevangen aan den slaaf Galant, denwelken met meer andere bij gemelten caamerdeur stond, en hem gevangen vroeg, wat hij daer quam doen, ten antwoord gegeeven: Ik kom hier om sinjeur op te passen, waarop door gemelten Galant geantwoord weird: Wij staan hier om op te passen, gae gij maar naar de combuijs, soo als den gevangen alsdoen ook knorrende deed, dog quam naaderhand weederom bij gemelten caamerdeur en gaf aan zijn genoemde lijfheer, dewelke hem daar siende staan, vroeg, wat hij quam doen, hetselfde antwoord: Ik kom sijneur oppassen, werdende hierop door zijn gevangens lijfheer, onder het seggen: Dat ben ik van jouw niet gewend, dat is van zijn leeven geen goed werk, gij bent anders te luij om een half aam waater van de pomp te haalen, aen hem gevangen nogmaals belast dat slaapen soude gaan, staande daarna van zijn stoel en ging op de rustbank, daar zijn deegen lag, sitten, die hij in de hand nam, gaande hierop den gevangen als doen ook al murmureerende daarvandaan naar de galdereij, en een reijs of twee gints en weeder gekuijrt hebbende, begaf hij sig weijders naar het booven caamertje, dog siende dat den deur geslooten was, ging den gevangen weederom naer de combuijs, alwaar hij de meijden Diana met haare twee kinderen en Candasa \[*sic*\] vond, en quam, nadat het mes uijt sijn sak gehaald, met hetselve in de hand, onder het seggen: Nu is het tijd, daar mag van koomen wat er van wil, op gemelten Diana toeloopen, dewelke hierop met haare twee kinderen en gemelten Candasa de vlugt naar vooren naemen en sig door de geopende deur op straat begaeven, roepende: Moord, en: Brand.
 
-Dat den gevangen, het mes nog al in de hand hebbende, insgelijx naar
-vooren is gekoomen, seggende teegens meergemelten Galant, die volgens
-zijn lijfheers ordre aldaar met een draagstok stond: Blijft staan, ik
-moet jouw spreeken, dog denselven met zijn meede makker Fortuijn, die
-insgelijx een draagstok in de hand had, sig retireerende tot buijten op
-de stoep van het huijs, onder het seggen teegens hem gevangen: Komt maar
-hier, soo als den gevangen alsdoen ook tot in de deur van het voorhuijs
-met het mes in de hand quam, siende buijten de deur op de stoep zijn
-gemelten lijfheer staan met de bloote deegen in de hand, dewelke teegens
-hem gevangen seijde: Alexander, hebt gij een mes of scherp bij jouw, soo
-gooijt het weg, dog den gevangen daarop geen antwoord geevende, sloeg
-zijn gemeltenn lijfheer hem gevangen met de deegen in desselfs aangesigt
-en, siende dat hij een mes met een wit heft in de hand hadde, seijde
-nogmaals teegens denselven: Gooijt het mes weg en geeft jou gevangen,
-dog den gevangen weederom geen antwoord geevende, heeft zijn
-meergemelten lijfheer hem soodanig een slag met de deegen op desselfs
-hand, waarin hij het mes hield, gegeeven, dat genoodsaakt wierd het
-meergenoemde mes te laaten vallen, zijnde vervolgens door den slaaf
-Fortuijn aangegreepen en door behulp van van zijn gevangens lijfheer
-vastgehouden, totdat aan de daar koomende burgerwagt met het
-meergenoemde mes is overgegeeven, en soo doende in handen van de
-justitie overgeleevert; alhoewel den gevangen komt voor te geeven anders
-geen quaad in zin gehad te hebben als eenelijk om de meijden te slaan,
-omdat zij hem bij zijn gevangens lijfheer beschuldigt hadden, dat
-droncken was.
+Dat den gevangen, het mes nog al in de hand hebbende, insgelijx naar vooren is gekoomen, seggende teegens meergemelten Galant, die volgens zijn lijfheers ordre aldaar met een draagstok stond: Blijft staan, ik moet jouw spreeken, dog denselven met zijn meede makker Fortuijn, die insgelijx een draagstok in de hand had, sig retireerende tot buijten op de stoep van het huijs, onder het seggen teegens hem gevangen: Komt maar hier, soo als den gevangen alsdoen ook tot in de deur van het voorhuijs met het mes in de hand quam, siende buijten de deur op de stoep zijn gemelten lijfheer staan met de bloote deegen in de hand, dewelke teegens hem gevangen seijde: Alexander, hebt gij een mes of scherp bij jouw, soo gooijt het weg, dog den gevangen daarop geen antwoord geevende, sloeg zijn gemeltenn lijfheer hem gevangen met de deegen in desselfs aangesigt en, siende dat hij een mes met een wit heft in de hand hadde, seijde nogmaals teegens denselven: Gooijt het mes weg en geeft jou gevangen, dog den gevangen weederom geen antwoord geevende, heeft zijn meergemelten lijfheer hem soodanig een slag met de deegen op desselfs hand, waarin hij het mes hield, gegeeven, dat genoodsaakt wierd het meergenoemde mes te laaten vallen, zijnde vervolgens door den slaaf Fortuijn aangegreepen en door behulp van van zijn gevangens lijfheer vastgehouden, totdat aan de daar koomende burgerwagt met het meergenoemde mes is overgegeeven, en soo doende in handen van de justitie overgeleevert; alhoewel den gevangen komt voor te geeven anders geen quaad in zin gehad te hebben als eenelijk om de meijden te slaan, omdat zij hem bij zijn gevangens lijfheer beschuldigt hadden, dat droncken was.
 
-Ende gemerkt diergelijke enorme daaden, van soo een vile slaaf, in een
-land daar de justitie stiptelijk geadministreerd word geensints te
-tolereren, maar ter contrarie tot een afschrik van andere diergelijke
-booswigten op het rigourenste \[*sic*\] moeten \[wor\]den[^3]
-gestraft.
+Ende gemerkt diergelijke enorme daaden, van soo een vile slaaf, in een land daar de justitie stiptelijk geadministreerd word geensints te tolereren, maar ter contrarie tot een afschrik van andere diergelijke booswigten op het rigourenste \[*sic*\] moeten \[wor\]den[^3] gestraft.
 
-Soo is het, dat den edelagtbare Raad \[van\] Justitie deeses
-gouvernements, ten daege dienende, m\[et\] oplettenheijd hebbende
-geleesen en geresumeert den schriftelijken crimineelen eijsch ende
-conclusie bij den heer Independent Fiscaal, meester Daniel van den
-Henghel, *ratione officii*, op ende jegens den gevangen gedaan ende
-genoomen, mitsgaders geleth op desselfs vrijwillige confessie,
-behoorlijk gerecolleert, en andere stucken in judicio overgeleevert,
-wijders in consideratie genoomen zijnde alles wat ter materie is
-dienende en haar Edel Agtbaarens deede moveeeren, doende regt uijt naame
-ende van weegens de hooghmoogende heeren Staaten Generaal der vrije
-vereenigde Neederlanden, hem gevangen Alexander van Maccasser hebben
-condemneert, soo als haar Edel Agtbaarens denselven condemneeren mits
-deesen: omme gebragt te werden ter plaatse alwaer men alhier gewoon is
-crimineele sententiën te executeeren en aldaar den scherpregter
-overgeleevert zijnde, soodanig met de coorde aan de galge gestraft te
-worden, datter de dood naarvolgt, voorts desselfs doode lichaam naar het
-buijten geregt gesleept en aldaar weederom opgehangen zijnde, dus te
-verblijven totdat door de lugt en voogelen des heemels zal zijn
-verteerd, met condemnatie in de costen en misen van justitie, en
-ontsegging van het verdere ofte anders geëijschte van den heer Officier.
+Soo is het, dat den edelagtbare Raad \[van\] Justitie deeses gouvernements, ten daege dienende, m\[et\] oplettenheijd hebbende geleesen en geresumeert den schriftelijken crimineelen eijsch ende conclusie bij den heer Independent Fiscaal, meester Daniel van den Henghel, *ratione officii*, op ende jegens den gevangen gedaan ende genoomen, mitsgaders geleth op desselfs vrijwillige confessie, behoorlijk gerecolleert, en andere stucken in judicio overgeleevert, wijders in consideratie genoomen zijnde alles wat ter materie is dienende en haar Edel Agtbaarens deede moveeeren, doende regt uijt naame ende van weegens de hooghmoogende heeren Staaten Generaal der vrije vereenigde Neederlanden, hem gevangen Alexander van Maccasser hebben condemneert, soo als haar Edel Agtbaarens denselven condemneeren mits deesen: omme gebragt te werden ter plaatse alwaer men alhier gewoon is crimineele sententiën te executeeren en aldaar den scherpregter overgeleevert zijnde, soodanig met de coorde aan de galge gestraft te worden, datter de dood naarvolgt, voorts desselfs doode lichaam naar het buijten geregt gesleept en aldaar weederom opgehangen zijnde, dus te verblijven totdat door de lugt en voogelen des heemels zal zijn verteerd, met condemnatie in de costen en misen van justitie, en ontsegging van het verdere ofte anders geëijschte van den heer Officier.
 
-Aldus gedaan ende gesententieert in ’t Casteel de Goede Hoop, den
-3^e\ ^December 1739, mistgaders gepronuntieert ende geëxecuteert den
-5^e\ ^daaraanvolgende.
+Aldus gedaan ende gesententieert in ’t Casteel de Goede Hoop, den 3^e\ ^December 1739, mistgaders gepronuntieert ende geëxecuteert den 5^e\ ^daaraanvolgende.
 
 Fiat Executie, \[get.\] H. Swellengrebel.
 
-\[get.\] R. Tulbagh, J.T. Rhenius, Ns. Heijning, Cl. Brand, Mns. Bergh,
-Corns. Eelders, P.R. de Savoije, Js. de Grandpreez.
+\[get.\] R. Tulbagh, J.T. Rhenius, Ns. Heijning, Cl. Brand, Mns. Bergh, Corns. Eelders, P.R. de Savoije, Js. de Grandpreez.
 
 Mij praesent, \[get.\] D.G. Carnspek, secretaris.
 
 TRANSLATION
 
-Since Alexander van Maccasser, 30 years old at a guess, bondsman of the
-*onderkoopman* and *negotie overdrager*,[^4] the honourable Abraham
-Decker, currently their honours’ prisoner, has voluntarily confessed
-without torture or force of bonds, of irons, or even the least threat of
-suchlike, and it appeared evident:
+Since Alexander van Maccasser, 30 years old at a guess, bondsman of the *onderkoopman* and *negotie overdrager*,[^4] the honourable Abraham Decker, currently their honours’ prisoner, has voluntarily confessed without torture or force of bonds, of irons, or even the least threat of suchlike, and it appeared evident:
 
-That on Saturday evening, the 14^th\ ^of the past month November, after
-having performed his usual kitchen duties, the prisoner went outside and
-then, according to what he asserts, drank a tot with some of his mates
-in the street, from which he became somewhat inebriated, and returned
-home at about nine o’clock in this state, and then went into the kitchen
-in order to roast, as he had been ordered, a paper with ham.
+That on Saturday evening, the 14^th\ ^of the past month November, after having performed his usual kitchen duties, the prisoner went outside and then, according to what he asserts, drank a tot with some of his mates in the street, from which he became somewhat inebriated, and returned home at about nine o’clock in this state, and then went into the kitchen in order to roast, as he had been ordered, a paper with ham.
 
-That as soon as the prisoner’s owner came home, he was warned that the
-prisoner was drunk by the slave Dorinde, who said: “*Sinjeur*, Alexander
-is drunk again, he beats and throws fire at me”, whereupon his said
-owner went into the kitchen and asked the prisoner: “Are you drunk again
-and inciting trouble?”, to which he gave as answer: “I am not drunk”,
-and to which his said owner replied: “If you had not been drunk, you
-would have put more fire under the grill, because with so little fire
-the ham will never get done within an hour or two”, whereupon the
-prisoner took some coal with both his hands from the hearth to put under
-the grill, which he did in such a vicious way that the ash flew into the
-paper of the ham, upon which his owner gave him some blows with his
-hands and a kick with his foot, besides ordering him to go to bed and
-the *meijd* Diana to remove the ash from the ham and to finish
-\[roasting\] it, after which he went from the kitchen to the front room.
+That as soon as the prisoner’s owner came home, he was warned that the prisoner was drunk by the slave Dorinde, who said: “*Sinjeur*, Alexander is drunk again, he beats and throws fire at me”, whereupon his said owner went into the kitchen and asked the prisoner: “Are you drunk again and inciting trouble?”, to which he gave as answer: “I am not drunk”, and to which his said owner replied: “If you had not been drunk, you would have put more fire under the grill, because with so little fire the ham will never get done within an hour or two”, whereupon the prisoner took some coal with both his hands from the hearth to put under the grill, which he did in such a vicious way that the ash flew into the paper of the ham, upon which his owner gave him some blows with his hands and a kick with his foot, besides ordering him to go to bed and the *meijd* Diana to remove the ash from the ham and to finish \[roasting\] it, after which he went from the kitchen to the front room.
 
-That the prisoner, instead of obeying his owner’s order, searched for
-the big kitchen knife on top of the chimney-mantel, while saying: “I’ve
-hidden it here, who has taken it away?”, and when he could not find it,
-as the said knife had been hidden by the *meijd* Anna, the prisoner took
-from the kitchen table a knife with a white handle, which was one of the
-table knives which he had held in his hand shortly before and had laid
-down on the said table. With this knife the prisoner, after putting it
-in the pocket of his trousers, went into the *voorhuijs* to the door of
-the room where his owner and *juffrouw* were sitting and eating at a
-little table, in order, according to the prisoner’s assertion, to
-request forgiveness from his owner, since he had heard that the
-*caffers* had been called. When the slave Galant, who was standing at
-the said door with other slaves, asked the prisoner what he had come to
-do there, the prisoner gave him as answer: “I’ve come here to serve
-*sinjeur*”, whereupon he was answered by the said Galant: “We are
-standing here to serve him, you just go on to the kitchen”, as the
-prisoner then also did, with grumbles. However, he eventually returned
-to the said door and likewise answered his aforesaid owner who, upon
-seeing him standing there, asked him what he came to do: “I’ve come to
-serve *sinjeur*”, upon which the prisoner’s owner again ordered him to
-go and sleep, saying: “I am not used to you doing this, coming from you
-it can’t be good, you are usually too lazy to go and fetch half an
-aum[^5] of water from the pump”. He then got up from his chair and
-went to sit on the *rustbank* where his sword was lying and which he
-took into his hands. Hereupon the prisoner then indeed went from there,
-muttering along, to the *galderij*, and after he had walked up and down
-once or twice, he once again went to the small upper room, yet seeing
-that the door was locked, the prisoner returned to the kitchen where he
-found the *meijden* Diana, with her two children, and Candasa. After
-taking the knife from his pocket, saying: “It is time now, let come of
-it what may come”, he ran with it in his hand towards the said Diana,
-who upon this fled with her two children and the said Candasa towards
-the front and went through the open door onto the street, crying:
-“Murder” and: “Fire”.
+That the prisoner, instead of obeying his owner’s order, searched for the big kitchen knife on top of the chimney-mantel, while saying: “I’ve hidden it here, who has taken it away?”, and when he could not find it, as the said knife had been hidden by the *meijd* Anna, the prisoner took from the kitchen table a knife with a white handle, which was one of the table knives which he had held in his hand shortly before and had laid down on the said table. With this knife the prisoner, after putting it in the pocket of his trousers, went into the *voorhuijs* to the door of the room where his owner and *juffrouw* were sitting and eating at a little table, in order, according to the prisoner’s assertion, to request forgiveness from his owner, since he had heard that the *caffers* had been called. When the slave Galant, who was standing at the said door with other slaves, asked the prisoner what he had come to do there, the prisoner gave him as answer: “I’ve come here to serve *sinjeur*”, whereupon he was answered by the said Galant: “We are standing here to serve him, you just go on to the kitchen”, as the prisoner then also did, with grumbles. However, he eventually returned to the said door and likewise answered his aforesaid owner who, upon seeing him standing there, asked him what he came to do: “I’ve come to serve *sinjeur*”, upon which the prisoner’s owner again ordered him to go and sleep, saying: “I am not used to you doing this, coming from you it can’t be good, you are usually too lazy to go and fetch half an aum[^5] of water from the pump”. He then got up from his chair and went to sit on the *rustbank* where his sword was lying and which he took into his hands. Hereupon the prisoner then indeed went from there, muttering along, to the *galderij*, and after he had walked up and down once or twice, he once again went to the small upper room, yet seeing that the door was locked, the prisoner returned to the kitchen where he found the *meijden* Diana, with her two children, and Candasa. After taking the knife from his pocket, saying: “It is time now, let come of it what may come”, he ran with it in his hand towards the said Diana, who upon this fled with her two children and the said Candasa towards the front and went through the open door onto the street, crying: “Murder” and: “Fire”.
 
-That the prisoner, still holding the knife in his hand, likewise went to
-the front, saying to the aforementioned Galant, who were standing there
-on his owner’s orders with a pole \[of a sedan chair\]: “Wait there, I
-must speak to you”, but the same, with his comrade Fortuijn who was also
-holding a pole in his hand, retreated outside onto the stoep of the
-house, while saying to the prisoner: “Come on, come here”, whereupon the
-prisoner went up to the door of the *voorhuijs* with the knife in his
-hand, when he saw his owner standing on the stoep outside the door with
-a unsheathed sword in his hand, who said to him: “Alexander, if you have
-a knife or something sharp with you, throw it down”, but as the prisoner
-did not reply to this, his owner beat him with the sword in his face,
-and seeing that he had a knife with a white handle in his hand, once
-again told him: “Throw down the knife and give yourself up as prisoner”,
-but as the prisoner again did not reply, his owner gave him a blow with
-his sword on the hand in which he held the knife in such a manner that
-he was forced to drop the said knife. He was then grabbed by the slave
-Fortuijn and held close, with the help of the prisoner’s owner, until he
-was handed over with the aforementioned knife to the *burgerwacht* who
-arrived there, and was thus delivered into the hands of justice,
-although the prisoner pretended not to have planned anything wicked
-other than to beat the *meijden* because they had accused him of being
-drunk to his owner.
+That the prisoner, still holding the knife in his hand, likewise went to the front, saying to the aforementioned Galant, who were standing there on his owner’s orders with a pole \[of a sedan chair\]: “Wait there, I must speak to you”, but the same, with his comrade Fortuijn who was also holding a pole in his hand, retreated outside onto the stoep of the house, while saying to the prisoner: “Come on, come here”, whereupon the prisoner went up to the door of the *voorhuijs* with the knife in his hand, when he saw his owner standing on the stoep outside the door with a unsheathed sword in his hand, who said to him: “Alexander, if you have a knife or something sharp with you, throw it down”, but as the prisoner did not reply to this, his owner beat him with the sword in his face, and seeing that he had a knife with a white handle in his hand, once again told him: “Throw down the knife and give yourself up as prisoner”, but as the prisoner again did not reply, his owner gave him a blow with his sword on the hand in which he held the knife in such a manner that he was forced to drop the said knife. He was then grabbed by the slave Fortuijn and held close, with the help of the prisoner’s owner, until he was handed over with the aforementioned knife to the *burgerwacht* who arrived there, and was thus delivered into the hands of justice, although the prisoner pretended not to have planned anything wicked other than to beat the *meijden* because they had accused him of being drunk to his owner.
 
-And since such outrageous deeds can under no circumstances be tolerated
-from so vile a slave in a country where justice is strictly
-administered, but should on the contrary, be punished most rigorously as
-a deterrent to other similar malefactors.
+And since such outrageous deeds can under no circumstances be tolerated from so vile a slave in a country where justice is strictly administered, but should on the contrary, be punished most rigorously as a deterrent to other similar malefactors.
 
-Thus it is, that the honourable Council of Justice of this government,
-serving today, having seen and read with attention the written
-*crimineelen eijsch ende conclusie* drawn up and delivered for and
-against the prisoner by the honourable independent fiscal, *Meester*
-Daniel van den Henghel, by reason of his office, as well as having noted
-the prisoner’s voluntary confession, properly verified, and the other
-documents handed over to the court, further everything having been taken
-into consideration that served the case and could have moved their
-honours, practising justice in the name and on behalf of the high and
-mighty Lords States General of the free United Netherlands, having
-judged the prisoner Alexander van Maccasser, is sentencing him with
-this: to be taken to the place where criminal sentences are usually
-executed here and there to be handed over to the executioner, to be
-punished in such a way with the rope on the gallows that death will
-follow, further that the same’s dead body be dragged to the outer place
-of execution, there again to be hanged up, to remain thus until being
-consumed by the air and the birds of heaven, with sentencing to the
-costs and expenditure of justice, and denying the further or otherwise
-demanded *eijsch* of the honourable officer.[^6]
+Thus it is, that the honourable Council of Justice of this government, serving today, having seen and read with attention the written *crimineelen eijsch ende conclusie* drawn up and delivered for and against the prisoner by the honourable independent fiscal, *Meester* Daniel van den Henghel, by reason of his office, as well as having noted the prisoner’s voluntary confession, properly verified, and the other documents handed over to the court, further everything having been taken into consideration that served the case and could have moved their honours, practising justice in the name and on behalf of the high and mighty Lords States General of the free United Netherlands, having judged the prisoner Alexander van Maccasser, is sentencing him with this: to be taken to the place where criminal sentences are usually executed here and there to be handed over to the executioner, to be punished in such a way with the rope on the gallows that death will follow, further that the same’s dead body be dragged to the outer place of execution, there again to be hanged up, to remain thus until being consumed by the air and the birds of heaven, with sentencing to the costs and expenditure of justice, and denying the further or otherwise demanded *eijsch* of the honourable officer.[^6]
 
-Thus done and sentenced in the Castle of Good Hope on 3 December 1739,
-as well as being pronounced and executed on the 5^th^ thereafter.
+Thus done and sentenced in the Castle of Good Hope on 3 December 1739, as well as being pronounced and executed on the 5^th^ thereafter.
 
 Let the execution be done, \[signed\] H. Swellengrebel.
 
-\[signed\] R. Tulbagh, J.T. Rhenius, Ns. Heijning, Cl. Brand, Mns.
-Bergh, Corns. Eelders, P.R. de Savoije, Js. de Grandpreez.
+\[signed\] R. Tulbagh, J.T. Rhenius, Ns. Heijning, Cl. Brand, Mns. Bergh, Corns. Eelders, P.R. de Savoije, Js. de Grandpreez.
 
 In my presence, \[signed\] D.G. Carnspek, secretary.
 
-[^1]: * The *sententie* given here summarises the case from the
-    testimonies of Abraham Decker and those of his slaves: Alexander van
-    Maccasser (incorrectly named Alexander van Madagascar, an indication
-    of the untrustworthiness of slave toponyms), Diana van de Caab,
-    Candace van de Caab, Galant van Samboua and Fortuijn van Bengalen,
-    given in CJ 344, vol. 6, ff. 631-48.*^*\ *^
+[^1]: * The *sententie* given here summarises the case from the testimonies of Abraham Decker and those of his slaves: Alexander van Maccasser (incorrectly named Alexander van Madagascar, an indication of the untrustworthiness of slave toponyms), Diana van de Caab, Candace van de Caab, Galant van Samboua and Fortuijn van Bengalen, given in CJ 344, vol. 6, ff. 631-48.*^*\ *^
 
-[^2]:  *The description of the layout of rooms indicate that this was an
-    early townhouse of a type of which no examples survive today. It
-    seems to have included a *voorhuijs* entered directly from the
-    street, another front room in which the owners were eating, a
-    kitchen with a hearth, a small upper room and possibly a rear
-    scullery or pantry. These were linked by the *galderij*, which
-    appears to have been a linking passageway rather than, as in later
-    Cape houses, a room behind the *voorhuijs* in which people ate and
-    sat. We are grateful to Antonia Malan for this information. *
+[^2]:  *The description of the layout of rooms indicate that this was an early townhouse of a type of which no examples survive today. It seems to have included a *voorhuijs* entered directly from the street, another front room in which the owners were eating, a kitchen with a hearth, a small upper room and possibly a rear scullery or pantry. These were linked by the *galderij*, which appears to have been a linking passageway rather than, as in later Cape houses, a room behind the *voorhuijs* in which people ate and sat. We are grateful to Antonia Malan for this information. *
 
-[^3]:  For three lines, the end of the page is slightly damaged; what it
-    presumably once read is provided here in square brackets
+[^3]:  For three lines, the end of the page is slightly damaged; what it presumably once read is provided here in square brackets
 
-[^4]:  The *overdrager* was at the head of the *negotie kantoor*, the
-    office which controlled and administered all the trade goods of the
-    VOC, and under whom the warehouses were administered (Haafner 1992:
-    171 and Wagenaar 1994: 143-44). Decker had an exemplary career in
-    the VOC administration: he arrived at the Cape in 1717 after three
-    years in the East Indies and was appointed clerk in the *negotie
-    kantoor* with the rank of assistant. After he had been promoted to
-    the rank of *boekhouder* in 1722 and to that of *onderkoopman* in
-    1730, the crowning achievement came after thirty years of service
-    when he became *koopman* in 1743. He returned to Holland in 1753
-    (Leibbrandt 1905: 352, 365, 372 and 375).
+[^4]:  The *overdrager* was at the head of the *negotie kantoor*, the office which controlled and administered all the trade goods of the VOC, and under whom the warehouses were administered (Haafner 1992: 171 and Wagenaar 1994: 143-44). Decker had an exemplary career in the VOC administration: he arrived at the Cape in 1717 after three years in the East Indies and was appointed clerk in the *negotie kantoor* with the rank of assistant. After he had been promoted to the rank of *boekhouder* in 1722 and to that of *onderkoopman* in 1730, the crowning achievement came after thirty years of service when he became *koopman* in 1743. He returned to Holland in 1753 (Leibbrandt 1905: 352, 365, 372 and 375).
 
 [^5]:  One Amsterdam *aam* (aum) is the equivalent of about 154 litres.
 
-[^6]:  This sentence was recorded in the *regtsrollen*, CJ 21, ff. 84-5.
+[^6]:  This sentence was recorded in the *regtsrollen*, CJ 21, ff. 84-5. 
