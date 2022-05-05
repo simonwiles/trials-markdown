@@ -1,0 +1,578 @@
+1.  MICHIEL DANIEL LOURICH
+
+*Slaves were often caught up in the domestic disputes of their owners.
+Michiel Lourich*^[^1]^* was clearly a violent man who both beat his wife
+and ordered his slave January to whip his female slave Diana, causing
+the latter’s death. The reasons for his abuse of Diana are not clear,
+but they may have been linked to his dispute with his wife, whom he had
+thrown out of the house*^*[^2]*^*. Fabricius, the Company soldier who
+was lodging at Lourich’s house,*^*[^3]*^* was clearly shocked by his
+behaviour, towards both his wife and Diana, and left the household. *
+
+*The fiscal did not recommend a sentence, but the court decided that
+Lourich should be banished from the Cape ‘as soon as possible’ and sent
+back to the Netherlands at his own cost ‘as a useless subject’.*^*[^4]*^
+
+*Included here are two testimonies, those of the lodger soldier Jan
+Fabricius, and that of one of Lourich’s slaves, Januarij, both of whom
+witnessed the events, as well as a report on the autopsy.*^*[^5]*^
+
+**CJ 345** Criminele Process Stukken, 1740, ff. 581-83.
+
+Huijden, den 11^e\ ^October 1740, compareerde voor mij, Daniel Godfried
+Carnspek, secretaris van den edelagtbare Raad van Justitie des Casteels
+de Goede Hoop, ter presentie van de naargenoemde getuijgen, de soldaat
+Jan Christoffel Fabricius van competenten ouderdom, denwelken, ter
+requisitie van den heer Independent Fiscaal, meester Daniel van den
+Henghel, verclaarde de waaragtige waarheijt te behelsen:
+
+Dat op Saturdag, den 8^e^ deeser loopende maand October, des morgens te
+seeven uuren, hij comparant in de combuijs van den burger Michiel Daniel
+Lorich, bij wien denselven ten dien tijd was logeerende, de huijsvrouw
+van gemelde Lorich heeft sien sitten, waarom hij comparant aan haar
+vroeg: Juffrouw, hoe komt het dat gij soo vroeg hier sit?, daar zij op
+antwoorde: Lorich heeft de deur van de caamer toegeslooten, gaande den
+comparant alsdoen in desselfs slaapcaamer alwaar sig aankleede, in
+welken tusschentijd den gedagten burger Lorich uijt zijn caamer quam,
+vraegende hierop de gemelde vrouw van Lorich aan haar man toen bijde in
+’t voorhuijs sijnde, off zij mogte uijtgaan, daar denselven haar ten
+antwoord op gaff: Neen, gij sult thuijs blijven, als wanneer zij van een
+stoel, daar zij eeven bevoorens op was gaan sitten, opstond, onder het
+seggen: Ik gaa uijt, waarop boovengemelde Lorich desselfs meergemelde
+vrouw een schop met de voet teegens haar agterste gaff, meteens
+seggende: Schrob je, beest, met jouw hoerkind de deur uijt; en ging die
+vrouw met haar kind op den arm vervolgens ook uijt het huijs weg.
+
+Dat hij comparant hierop meede uijtgegaan sijnde, des avonds de clokke
+omtrent te ses uuren, te huijs is gekoomen en vond alsdoen bij
+voornoemde Lorich in de caamer sitten, den bootsman van de werff,
+Laurens Staff, denwelken, soo als hij comparant koste hooren, sijn best
+deede hem Lorich, die verschijde vloekwoorden uijtte, te beweegen om
+sijn voorwaarts genoemde huijsvrouw weederom bij sig in huijs te neemen,
+’tgeen den comparant hoorende, is hij voor de deur op de stoep heen en
+weeder gaan wandelen, koomende kort hierna, gemelde bootsman Laurens
+Staff insgelijx buijten de deur en, afschijd genoomen hebbende, ging hij
+van daar weg, waarop gemelde Lorich naar den comparant toe quam, hem
+vraagende off een glaesje wijn met hem wilde drinken, daar hij comparant
+van Ja op ten antwoord gaff, hebben zij met malkanderen in de caamer
+gegaan sijnde, ijder een glas wijn gedronken, inmiddels dat hij
+comparant dan eens in de gemelde caamer met voormelde Lorich sat te
+praaten en dan weeder in ’t huijs gins en herwaarts kuijrde, tot de
+clocke over thien, in welken tijd meergenoemde Lorich al geduurig op
+zijn gemelde huijsvrouw schold en vloekte, naar’t welke hij comparant
+teegens eeven gemelde Lorich seijden, dat hij wijl ’t al over thien was,
+sig tot slaapen soude begeeven, waarop gemelde Lorich ook van hem
+wegging, en hij comparant sig in de groote caamer ter regter hand heeft
+needer gelegt om te rusten, dog, nog maar een kort poosje geslaapen
+hebbende, quam seekere mijd, gemelde Lorich toebehoorende, sonder
+derselver naam te weeten, bij hem comparant in de caamer op desselfs
+lichaam vallen, roepende: O baas, help, o baas, help; waarop meede kort
+daaraan seekere slaave jonge, Januarij genaamt, in de caamer quam,
+denwelken voormelde mijd weeder daar uijt haalde, welke slavin egter
+kort daarop voor de tweede rijs in de gemelde caamer is gekoomen, onder
+het geroep van: O baas, help, baas, help; naar ’twelke den comparant
+opstond, en naar de combuijs ging, alwaar hij sag dat voormelde Lorich
+stond met voorszeijde Januarij, teegens denwelken hij seijde: Januarij,
+raakt wat, en soo als denselven genoemde mijd slaan wilden, heeft hij
+comparant de sjambok uijt dies jongens hand gerukt, en in de groote
+caamer gegooijt, seggende met eens teegens gemelde Lorich: Gij behoorde
+uw wat te schaamen, wat is dit voor een leeven hier in huijs, wat sullen
+de buuren daarvan denken?, daar gemelde Lorich op ten antwoord gaff: Dat
+raakt jouw niet, het is mijne slavin, de diefse hoer heeft het wel
+verdient, waarna den comparant weeder in sijn caamer ging, alwaar sig
+aangetrokken hebbende, uijt het huijs vertrok en begaff sig ten huijse
+van den burger Jochem Jurriens, sijnde het alsdoen des nagts omtrent de
+clocke twaalf uuren.
+
+Anders niet verclaarende, geeft den comparant voor reedenen van
+weetenschap als in den text, berijd sijnde alle het boovenstaande, des
+gerequireert werdende, met solmneelen eede nader te sullen gestand doen.
+
+Dat aldus passeerde ter justitieelen secretarije des Casteels de Goede
+Hoop, ten overstaan der clercquen Adriaan van Schoor en Otto
+Camphuijsen, als getuijgen, die de minute deeses, beneeevens den
+comparant ende den secretaris, meede behoorlijk hebben onderteekent.
+
+Recollement
+
+Compareerde voor ons, ondergetekende gecommitteerdens uijt den
+edelagtbare Raad van Justitie deeses gouvernements, den soldaat Jan
+Christoffel Fabricius, dewelke deese, sijne gegeevene depositie, van
+woorde tot woorde claar en duijdelijk voorgeleesen zijnde, verklaarde
+daarbij volkoomen te persisteeren, oversulx niet begeerende datter iets
+meer bijgevoegt ofte van gedaan werden sal, en sprak derhalven tot
+bekragtiging der waarheijd, in presentie van den burger Michiel Daniel
+Lourich, de solemneele woorden: Soo waarlijk, help mij, God almagtigh.
+
+Aldus gerecolleert ende beëedigt aan Cabo de Goede Hoop, den 18 November
+1740 voor d’ edele Am. Decker en Jacob de Hennion, leeden uijt den
+edelagtbare Raad van Justitie, voornoemd, die de minute deeses,
+beneevens den comparant ende mij, eerste geswoore clercq, meede
+behoorlijk hebben ondertekent.
+
+’Twelk ik getuijge, \[get.\] P.J. Slotsboo, eerste geswoore clercq.
+
+**CJ 345** Criminele Process Stukken, 1740, ff. 584-86v.
+
+Huijden, den 11^e^ October 1740, compareerde voor mij, Daniel Godfried
+Carnspek, secretaris van den edelagtbare Raad van Justitie deeses
+gouvernements, in ’t bijweesen van de naargenoemde getuijgen, Januarij
+van Mallabaar, slaaff van den burger Michiel Daniel Lourick \[*sic*\],
+van competenten ouderdom, dewelke ter requisitie van den heer
+Independent Fiscaal, meester Daniel van den Henghel, verklaarde hoe waar
+is:
+
+Dat hij comparant op Saturdagh, den 8^e^ deeser loopende maand October,
+des morgens, omtrent te neegen uuren, is uijtgegaan om, soo als hem
+belast was, wat brandhout te haalen, siende alsdoen dat zijn comparants
+lijfvrouw insgelijx met het kind op den arm het huijs uijtging,
+begeevende sig met het selve naar den bootsman Lourens Staff, met welk,
+door hem gehaalde brandhout, hij comparant des middaags, de klokke
+twaalff uuren, weederom te huijs quam, sonder desselfs lijffvrouw
+alsdoen te huijs te vinden, en begaff sig, naedat gegeeten hadde, ter
+ordre van sijn baas, de klokke omtrent een uuren, voor de tweede rijs om
+brandhout te haalen, met hetwelke, des avonds te ses uuren, weederom te
+huijs is gekoomen.
+
+Dat zijn comparants gemelde baas hem hierop belast heeft wat waater te
+gaan haalen en bottels te spoelen om een vat bier aff te tappen, hetgeen
+hij comparant ook verrigt heeft, sonder egter de gemelde bottels
+gespoelt te hebben, werdende hem vervolgens door sijn comparants baas
+geordonneert om in het voorhuijs te blijven en op te passen als er volk
+quam, bevindende sijn comparants baas sig alsdoen in de groote caemer
+ter regter hand met den zoldaat Jan Christoffel Fabricius, die hem
+comparant vervolgens riep in de caemer te koomen om een pijp tobacq op
+te steeken en een glas wijn voor hem en gemelde Fabricius in te
+schenken, hetwelk verrigt hebbende, belaste hem sijn comparants baas om
+weederom in het voorhuijs op te passen, werdende daarop nog een rijs off
+drie door zijn baas geroepen om telkens een pijp tobak op te steeken en
+een glas wijn in te schenken, en wijders gelast in het voorhuijs te
+blijven.
+
+Dat zijn comparants baas, wanneer gemelde Fabricius sig reets in de
+groote caemer tot rusten begeeven hadde, alsdoen uijt de gemelde kaemer
+is gekoomen, begeevende sig naar de combuijs, alwaar hij naar de meijd
+Diana sogte, dog deselve aldaar niet vindende, heeft hij agter op de
+plaats en overal naar haar gesogt, totdat hij de gemelde mijd eijndelijk
+(*salva venia*) in het secreet agter op de plaats vond, waaruijt sijn
+comparants baas gemelde slavin Diana bij het haar uijttrok, en
+vervolgens naar de combuijs bragte, geevende hem comparant een sjambok
+in de hand met last om de gemelde meijd Diana daar meede te slaan,
+hetwelke hij comparant in presentie van desselfs baas deede, die
+geduurig riep: Raak wat, off ik sal jouw raeken.
+
+Dat hij comparant de gemelde Diana omtrent een pijp tobacq rookens met
+de genoemde sjambok geslaagen hebbende, en nog beesig sijnde om deselve
+te slaan, sij inmiddels met een vaart uijt de combuijs naar de groote
+caemer is geloopen, alwaar gemelde Fabricius te slaapen lag, en om hulp
+heeft geroepen, seggende tegens denselve, soo als hij comparant, die met
+desselfs baas de gemelde meijd Diana op de hielen volgde, gehoort heeft:
+Help, baas, help, baas; waarop gemelde Fabricius sijde: Meijd, schrob
+jouw van mijn lijff aff; belastende sijn comparants baas aan hem,
+gemelde Diana weederom in de combuijs te brengen en van voor aff aan te
+slaan, soo als hij deede, hetwelk omtrent een halff quartier uurs
+geduurt hadde, is deselve meijd Diana weederom naar de groote caemer
+geloopen en heeft den gemelde Fabricius om hulpe versogt, denwelken
+hierop in de combuijs, alwaar gemelde Diana sig reets weer bevond,
+gekoomen sijnde, hem comparant de sjambok uijt de hand trock, en teegens
+sijn gemelde baas sijde: Wat is dat voor een leeven hier in huijs, wat
+sullen de buuren daarvan denken?, waarop sijn comparants baas ten
+antwoord gaff: Dat sijn saaken die jouw niet raaken, en belaste voorts
+aan hem comparant om den sjambok weederom op te soeken, soo als hij
+deede, en de gemelde sjambok aan sijn baas overgaff, waarop gemelde
+Fabricius teegens gemelde Laurich seijde: Ik wil in een huijs daar het
+soo toegaat niet langer blijven, en ging voorts de deur uijt, sijnde des
+nagts de klokke twaalff uuren.
+
+Dat sijn comparants baas hierop naar de agter plaats is gegaan en aldaar
+een touw opgesogt hebbende, met hetselve sig weederom in de combuijs
+heeft begeeven, blijvende hij comparant in ’t voorhuijs bij de deur
+staan, van waar hij sag dat sijn gemelde baas voornoemde meijd Diana de
+kleederen van het lijff aftrock, en deselve geheel naakt sijnde, met het
+gemelde touw de handen en voeten aan malkanderen bond, en vervolgens met
+de sjambok op het bloote lijff sloeg, hetwelk bijkans een geheel uur
+duurde, siende hij comparant dat sijn gemelde baas voornoemde meijd
+Diana, soo drae uijtscheijde met slaan, deselve wederom los maakte, dog
+haar nog op de grond leggende een schop off twee met de voet, waaraan
+een muijl was, heeft gegeeven, onder het seggen: Schrob jouw hoer, welke
+Diana daarop seijde: Baas, ik ben al half dood, en sijn gemelde baas
+weederop ten antwoord gaff: Wat er van komt, sal ik verantwoorden,
+begeevende sig voorts tot rusten, en ging hij comparant alsdoen
+insgelijx in ’t voorhuijs slaepen.
+
+Dat sijn comparants baas hem op Sondag morgen, de klokke omtrent ses
+uuren bij sig in de caamer geroepen en belast heeft, het kooij goed van
+gemelde Diana booven op de solder te brengen en haar te seggen dat zij
+ingelijx op de solder soude gaan, hetwelk hij verrigt hebbende, is de
+gemelde mijd Diana voorts de trap op, sonder een woord te spreeken, naer
+booven geklommen, hoorende hij comparant, omtrent de klokke neegen
+uijren, dat desselfs lijfvrouws broeder, Christiaen genaamt, teegens
+sijn comparants baas, die als doen nog in desselfs caamer op de cooij
+lag, seijde: Broer, de meijd Diana is al dood, waarop sijn comparants
+baas is opgestaan en sig aangekleet hebbende, vervolgens het huijs is
+uijtgegaan.
+
+Anders niet verclaarende, geeft den comparant voor reedenen van
+weetenschap als in den text, met presentatie van dit, sijn gedeposeerde,
+ten allen tijden, sulx vereijscht werdende, nader te sullen gestand
+doen.
+
+Dat aldus passeerde ter justitieele secretarije des Casteels des Goede
+Hoop, ten overstaan der clercquen Hendrik Emanuel Blanckenberg en Otto
+Camphuijsen, als getuijgen, die de minute deeses beneevens den comparant
+ende mij, secretaris, meede behoorlijk hebben onderteekent.
+
+Recollement
+
+Compareerde voor ons, ondergetekende gecommitteerdens uijt den
+edelagtbare Raad van Justitie deses \[*sic*\] gouvernements, den slaaff
+Januarij van Mallebaar, dewelke deese, zijne gegevene depositie, van
+woorde tot woorde klaar en duijdelijk voorgelezen zijnde, verclaarde
+daar bij volkomen te persisteren, oversulx niet begerende dat er iets
+bijgevoegd ofte van gedaen werden zal, betuijgende, in presentsie van
+zijn gemelde lijfheer, al het vorenstaende de suijvere waarheid te
+behelsen.
+
+Aldus gerecolleert aen Cabo de Goede Hoop, den 18^e^ November 1740, voor
+de edele Am. Dekker en Jacob de Hennion, leeden uijt voorgemelde Raad
+van Justitie, die de munute \[*sic*\] deeses, benevens den comparant en
+mij, eerste clercq, meede behoorlijk hebben ondertekend.
+
+’Twelk ik getuijge, \[get.\] P.J. Slotsboo, eerste geswoore clercq.
+
+**CJ 345** Criminele Process Stukken, 1740, ff. 594r-v.
+
+Ter requisitie van den edele heer Independent Fiscaal, meester Daniel
+van den Henghel, verklaaren wij, eerste en tweede opperchirurgijns van
+’s edele Compagnies hospitaal, ten overstaan van gecommitteerdens uijt
+den edelagtbare Raad van Justitie deeses gouvernements, d’ edele Philip
+Rudolph de Savoij en Jacobus d’ Hennion, het hoofd g’opent en vervolgens
+gevisiteert: een slaavin, genaamt Diana van Bengaalen, toebehoorende den
+borger Michiel Daniel Lorich, en bevonden:
+
+Een wonde boven het slinker oog, nogh een klijne boven op het hoofd,
+gaande niet verder als ten deele door de spieren, is veroorzaakt door
+een uijtwendig scherp instrument; Nogh op menigvuldige plaatsen van het
+geheele lighaam, met kneusingen door d’ huijd, naa ’t uijterlijk schijnt
+door sjambok slagen veroorzaakt; zijnde geen doodelijke wonden, hebben
+ook niet konnen ervaaren, of daar door de dood veroorzaakt is, dan door
+het schielijk koud drinken, op het verhit en gantsch ontroert lighaam,
+of door de koude, alsoo het lijk bij d’ eerste visitatie gantsch naakt
+gevonden hebben.
+
+In teeken van waarheid, zoo hebben wij deeze met onse gewoonelijke
+handteekening ondergeteekent.
+
+Cabo de Goede Hoop, den 10^e^ October 1740,
+
+\[get.\] Js. van Schoor, B. de St. Jean.
+
+TRANSLATION
+
+Today, 11 October 1740, there appears before me, Daniel Godfried
+Carnspek, secretary of the honourable Council of Justice of the Castle
+of Good Hope, in the presence of the witnesses named below, the soldier
+Jan Christoffel Fabricius, of competent age, who, on the requisition of
+the honourable independent fiscal, *Meester* Daniel van den Henghel,
+declares it to be the whole truth:
+
+That at seven o’clock in the morning of Saturday, the 8^th^ of this
+current month October, the deponent saw sitting in the kitchen of the
+burgher Michiel Daniel Lorich \[*sic*\], with whom he was lodging at
+this time, the wife of said Lorich, for which reason, he asked her:
+“*Juffrouw*, why are you sitting here so early?”, to which she answered:
+“Lorich had locked the door of the room”. The deponent then went into
+his bedroom where he dressed himself, during which time the said burgher
+Lorich came from his room, whereupon the said wife of Lorich asked her
+husband, when they were both in the *voorhuijs*,^[^6]^ if she might go
+out, to which the same answered her: “No, you will stay at home”, which
+is when she stood up from the chair on which she had sat down just a
+moment before, saying: “I am going out”. Upon this, the aforementioned
+Lorich gave his wife a kick with his foot on her behind, saying
+suddenly: “Get out of the house with your bastard child, you cow!”,
+whereafter this woman indeed left the house with her child on the arm.
+
+That the deponent also went out, returning home in the evening at about
+six o’clock and found them sitting with abovementioned Lorich in the
+room, the boatswain of the ship’s yard \[at the Cape\], Laurens
+Staff,^[^7]^ who – as the deponent could hear – was doing his utmost to
+persuade Lorich, who was uttering several swearing words, to take back
+again into his house his aforementioned wife. Hearing this, the deponent
+went to the stoep where he walked up and down, and shortly hereafter the
+said boatswain, Laurens Staff, also came through the door and, after
+saying goodbye, went away. Whereupon the said Lorich came to the
+deponent, asking him if he would like to drink a glass of wine with him,
+to which the deponent answered yes; and together went into the room
+where each drank a glass of wine. That the deponent, with the
+aforementioned Lorich, first sat talking in the said room and then
+walked up and down in the house until after ten o’clock, during which
+time the said Lorich was continually swearing and cursing his wife;
+after which the deponent said to Lorich that, since it was already after
+ten, he would go to bed, whereupon the said Lorich left him and the
+deponent lay himself down to rest in the large room on the righthand
+side. However, having slept for only a short while, a certain *meijd*
+belonging to Lorich, without him knowing her name, came into the room to
+the deponent and fell onto his body, crying: “Oh, *baas*, help! Oh,
+*baas*, help!”, upon which, shortly thereafter, a certain slave *jongen*
+named Januarij also came into the room and took the aforementioned
+*meijd* from it. A short while thereafter, though, this woman slave came
+into the said room for the second time, crying: “Oh, *baas*, help!
+*Baas*, help!”, at which the deponent got up and went to the kitchen,
+where he saw that aforementioned Lorich standing with the said Januarij,
+to whom he was saying: “Januarij, go on, hit!”, and as the same wanted
+to hit the *meijd*, the deponent grabbed the *sjambok* from the hand of
+this *jongen* and threw it into the large room, saying at once to
+Lorich: “You ought to be ashamed of yourself, what sort of life is this
+in this house, what would the neighbours think?”, to which the said
+Lorich answered: “That is none of your business, she is my slave, the
+thievish whore has earned it”, after which the deponent again went into
+his room, where he dressed himself, left the house and went to the house
+of the burgher Jochem Jurriens, at which point it had been about 12
+o’clock at night.
+
+There being nothing else to declare, the deponent asserts to be
+convinced of the accuracy of his statement as in the text, being willing
+to subsequently confirm all of the above with solemn oaths, if so
+required.
+
+Thus recorded at the office of the secretary of justice at the Castle of
+Good Hope in the presence of the clerks, Adriaan van Schoor and Otto
+Camphuijsen, as witnesses, who have properly signed the original of
+this, together with the deponent and me, the secretary.
+
+Verification
+
+There appears before us, the undersigned delegates from the honourable
+Council of Justice of this government, the soldier Jan Christoffel
+Fabricius, who, after this, his given deposition, had been read out word
+by word, clearly and plainly, declares to fully persist by it, therefore
+not desiring that anything more be added to or taken from it, and
+consequently said, in the presence of the burgher Michiel Daniel
+Lourich, as confirmation of the truth, these solemn words: “Truly so,
+help me, Almighty God”.
+
+Thus verified and confirmed at the Cape of Good Hope on 18 November
+1740, before the honourables Am. Decker and Jacob de Hennion, members
+from the honourable Council of Justice, aforementioned, who have
+properly signed the original of this, together with the deponent and me,
+the first sworn clerk.
+
+Which I declare, \[signed\] P.J. Slotsboo, first sworn clerk.
+
+TRANSLATION
+
+Today, 11 October 1740, there appears before me, Daniel Godfried
+Carnspek, secretary of the honourable Council of Justice of this
+government, in the presence of the witnesses named below, Januarij van
+Mallabaar, slave of the burgher Michiel Daniel Lourick, of competent
+age, who, on the requisition of the honourable independent fiscal,
+*Meester* Daniel van den Henghel, declares it to be true:
+
+That at about nine o’clock in the morning of Saturday the 8^th^ of this
+current month October, the deponent went out to collect some firewood,
+as he had been ordered; seeing at that time that his mistress was also
+leaving the house with her child on the arm, going with the same
+\[child\] to the boatswain Lourens Staff. The deponent returned to the
+house in the afternoon at about 12 o’clock with the firewood he had
+collected, without finding his mistress then at home, and at about one
+o’clock, after having eaten, he, on the order of his *baas*,* *went out
+for the second time to collect firewood, with which he returned home at
+about six o’clock that evening.
+
+That his *baas* then instructed the deponent to go and fetch some water
+and to rinse out some bottles into which a casket of beer was to be
+tapped, which he also did, without, though, rinsing the said bottles,
+after which his *baas* ordered him to remain in the *voorhuijs* and to
+attend to \[i.e. serve\] people when they came in. At this time his
+*baas* was with the soldier Jan Christoffel Fabricius in the large room
+on the right-hand side, who then called the deponent into the room to
+light a pipe of tobacco and to pour a glass of wine for him and the said
+Fabricius. After the deponent had done this, he was again ordered by his
+*baas* to attend in the *voorhuijs*, after which he was called two or
+three times more by his *baas*, each time to light a pipe of tobacco and
+pour a glass of wine, and moreover ordered to remain in the *voorhuijs*.
+
+That when the said Fabricius had already gone to the large room to
+sleep, the deponent’s *baas* left the aforesaid room and went into the
+kitchen where he searched for the *meijd* Diana. Yet, not finding the
+same there, he searched in the back of the yard and everywhere for her,
+until he at last found the said *meijd* in (by your leave) the privy,
+from where the deponent’s *baas* dragged the said slave Diana by the
+hair and then brought her into the kitchen, giving the deponent a
+*sjambok* in the hand and instructed him to beat the said *meijd* Diana
+with it, which he did in the presence of his *baas*, who continually
+shouted: “Go on, hit, or I’ll hit you”.
+
+That when the deponent had been beating the said Diana with the
+*sjambok* for about the length of time it takes to smoke a pipe of
+tobacco, and was still busy beating her, she suddenly ran very quickly
+from the kitchen into the large room where the said Fabricius was lying
+asleep and called for help, saying to the same, as the deponent – who,
+with his *baas*, had followed the said *meijd* Diana on the heels –
+heard: “Help, *baas*; help, *baas*”, to which Fabricius said: “*Meijd*,
+get off my body”. His *baas* ordered the deponent to take the said Diana
+to the kitchen again and to continue beating her, which he also did, and
+which lasted for about half of a quarter of an hour, when the same
+*meijd* Diana yet again ran to the large room and requested help from
+Fabricius, who then came into the kitchen where the said Diana already
+found herself again, grabbed the *sjambok* from the deponent’s hand and
+said to his *baas*: “What sort of life is it in this house, what would
+the neighbours think of it?”, to which the deponent’s *baas* answered:
+“These are matters which don’t concern you”, and then ordered the
+deponent to find the *sjambok* again, which he did, and handed it to his
+*baas*, which is when Fabricius said to Laurich \[*sic*\]: “I don’t wish
+to stay any longer in a house such as this” and went out of the house,
+it then being 12 o’clock at night then.
+
+That thereupon his *baas* went out to the back yard, found a rope there
+and returned with the same to the kitchen, while the deponent, remained
+standing by the door in the *voorhuijs*, from where he saw that his said
+*baas* pulled the clothes from the body of the aforementioned *meijd*
+Diana and, when the same was totally naked, tied her hands and feet
+together with the rope and then beat her with the *sjambok* on her naked
+body, which lasted almost a whole hour. The deponent saw that his said
+*baas*, as soon as he had stopped beating, untied her, but, while she
+was still lying on the ground, gave her a kick or two with his foot on
+which was a slipper, saying: “Damn you, whore”, to which Diana said:
+“*Baas*, I am already half dead”, to which his said *baas* answered
+again: “I shall answer for what may come of it”; thereafter going to
+bed, while the deponent likewise went to sleep in the *voorhuijs*.
+
+That at about six o’clock on Sunday morning the deponent’s *baas* called
+him into his room and ordered him to take the bedding of the said Diana
+up to the attic and to tell her that she too should go up to the attic,
+which he also did. The said *meijd* Diana then climbed the stairs to the
+top without saying a word, and at about nine o’clock the deponent heard
+the brother of his mistress, named Christiaan, say to his *baas*, who
+was then still lying on the bed in his room: “Brother, the *meijd* Diana
+is already dead”, whereupon the deponent’s *baas* got up, dressed
+himself and then went out of the house.
+
+There being nothing else to declare, the deponent asserts to be
+convinced of the accuracy of his statement as in the text, while
+offering to subsequently confirm this, his deposition, at any time, if
+so required.
+
+Thus recorded at the office of the secretary of justice at the Castle of
+Good Hope, in the presence of the clerks Hendrik Emanuel Blanckenberg
+and Otto Camphuijsen, as witnesses, who have properly signed the
+original of this, together with the deponent and me, the secretary.
+
+Verification
+
+There appears before us, the undersigned delegates from the honourable
+Council of Justice of this government, the slave Januarij van Mallabaar,
+who, after this, his given deposition, had been read out word by word,
+clearly and plainly, declares to fully persist by it, therefore not
+desiring that anything be added to or taken from it, declaring, in the
+presence of his said owner, all of the above to contain the whole truth.
+
+Thus verified at the Cape of Good Hope on 18 November 1740 before the
+honourables A. Decker and Jacob de Hennion, members from the
+aforementioned honourable Council of Justice, who have properly signed
+the original of this, together with the deponent and me, the first
+clerk.
+
+Which I declare, \[signed\] P.J. Slotsboo, first sworn clerk.
+
+TRANSLATION
+
+On the requisition of the honourable independent fiscal, *Meester*
+Daniel van den Henghel, we, the first and second chief surgeons of the
+honourable Company’s hospital, declare to have opened the head and
+inspected, in the presence of the delegates from the honourable Council
+of Justice of this government, the honourables Philip Rudolph de Savoij
+and Jacobus d’Hennion, a woman slave named Diana van Bengalen, belonging
+to the burgher Daniel Lorich, and to have found:
+
+A wound above the left eye, another small one on top of the head, not
+going further than partly through the muscles and being caused by an
+external sharp instrument, and also wounds on numerous places over the
+whole body, with bruises on the skin, to outward appearances caused by
+*sjambok* lashes, but which are not mortal wounds; also being unable to
+determine if death was caused by them, or rather by suddenly drinking
+\[something\] cold on a heated and wholly agitated body,^[^8]^ or
+because of the cold, since the corpse was found totally naked on the
+first inspection.
+
+As sign of the truth we have undersigned this with our customary
+signatures.
+
+Cape of Good Hope, 10 October 1740,
+
+\[signed\] Js. van Schoor, B. de St. Jean.
+
+[^1]:  Michiel Daniel Lourich was born in Germany and arrived at the
+    Cape as soldier in 1727, served as loan *knecht* during 1730-31, and
+    became a free burgher in 1734. In 1736 he obtained the *pacht* to
+    sell malt beer for a year (Hoge 1946: 248-49 and Leibbrandt 1906:
+    670). In this case it appears that by 1740 he was running some sort
+    of public house, with his slave having to wait upon people who were
+    drinking there. The place was also a lodging house, hence
+    Fabricius’s presence. Running lodging houses was one of the main
+    occupations of Cape burghers in the eighteenth century (Worden et
+    al. 1998: 57).
+
+[^2]: * She was Anna Catharina Biesel, born at the Cape, the daughter of
+    Christiaan Andries Biesel and Aletta de Nijs. She married Lourich on
+    14 October 1736 and their only child, Johannes Georg, was the
+    four-month-old baby who features in this case. (Heese & Lombard
+    1986-2004, vol. 1: 278). Mentzel, the contemporary writer on the
+    Cape who stayed here between 1733 and 1741, was a friend of Lourich
+    and had this revealing, though euphemistic, passage on their
+    marriage: ‘He \[Lourich\] was married but he could not get on with
+    his wife. They were both excellent people but their dispositions
+    would not harmonise.’ He glossed over the reason for Lourich’s
+    departure from the Cape, which is revealed in this case, and merely
+    continued: ‘So they separated, and the man obtained the Governor’s
+    permission to leave the Cape and return to his native place’
+    (Mentzel 1919: 138). It was as an indirect result of this case that
+    Mentzel accidentally left the Cape: In January 1741 he went on board
+    *Hartenlust* in order to deliver some letters to the banished
+    Lourich who was returning to Europe on this ship. Mentzel spent the
+    night on board but only awoke when the ship was already sailing away
+    from the Cape (ships usually waited for a favourable wind and, when
+    it did arrive, left immediately) (Mentzel 1919: 136-45). *
+
+[^3]: * Fabricius was not stationed at the Cape (he does not appear in
+    the Cape muster rolls for 1739 or 1740) and it is therefore likely
+    that he was on one of the ships that was then in Cape Town harbour
+    (possibly the *Hartenlust* which had arrived two days earlier,
+    Bruijn et al. 1979, vol. III: 354) and that he was lodging with
+    Lourich. *
+
+[^4]: * The fiscal (unusually) did not recommend a sentence in the
+    *eijsch*, although he commented that while a slaveowner was entitled
+    to punish his slaves for ‘eenige fouten’ (any faults), he should not
+    put them in chains, nor torture them without permission of the
+    authorities, CJ 345, f. 579v.* *Although Lourich pleaded that ‘soo
+    hij iets in deese gedaan heeft dat strafbaar is, dat hem sulx mag
+    gepardoneert werden’ (if he had done anything in this matter that
+    was punishable, that it should be forgiven), he was found guilty by
+    the court of maltreating a slave and was sentenced on 1 December
+    1740 ‘omme … als een onnut subject van hier naar het vaderland
+    verzonden te werden, met condemnatie in de costen’ (to be sent from
+    here to the fatherland as a useless subject, with sentencing to the
+    \[court\] costs), CJ 22, ff. 81-2.*
+
+[^5]: * The documentation also includes Lourich’s interrogation, CJ 345,
+    ff. 587-93. *
+
+[^6]:  The *voorhuijs *was the first room entered from the street or
+    stoep, where visitors were received and where Januarij slept.
+    Fabricius slept in the large room to the right, probably leading off
+    the *voorhuijs*, and Lourich slept in another room, either to the
+    left of the *voorhuijs* or behind the large room. We are grateful to
+    Antonia Malan for this information.
+
+[^7]:  Laurens Staff of Gottenborg had arrived at the Cape in 1729 and
+    married the sister of Lourich’s wife on the same day as their own
+    marriage in 1736 (Heese & Lombard 1986-2004, vol. 1: 278). He was
+    later sent sent to Robben Island ‘in consequence of his insanity’
+    (Leibbrandt 1905: 383) and appears on the Company pay registers
+    until 1781 (VOC 12792, ff. 77, 333-34, 368-69, 371 and 373).
+
+[^8]:  Contemporaries believed that beatings inflamed the body and that
+    drinking water afterwards could cause collapse and death (Sparrman
+    1977, vol. II: 256-57; Schoeman 2004: 206). See 1729 Jan Botma for
+    another instance of this.

@@ -1,0 +1,426 @@
+**1707 JAN DE THUILOT**
+
+*Jan de Thuilot, a Huguenot immigrant, was found guilty of killing two
+of his labourers, a slave named Andries and a Khoi named Caffer. They
+died after severe whippings inflicted by De Thuilot because he suspected
+them of stealing his keys. This was despite the advice of a visiting
+farmer, that errant slaves should be reported to the authorities rather
+than being punished severely by their owner: in the early eighteenth
+century, Company authority was only slowly extending into the world of
+masters and their slaves.*^*[^1]*^
+
+*De Thuilot’s letter to the court (written in French) tried to shift the
+blame for the deaths onto a neighbour who had assisted him in the
+punishment, but he clearly realised his guilt and fled before he could
+be arrested. The Council of Justice tried him in absentia,*^*[^2]*^* and
+sentenced him to be shot. *^[^3]^
+
+*This was not the first time a Cape burgher had been sentenced to death
+for murdering a slave, but it was the last time such a sentence was
+passed in the VOC period.*^*[^4]*^* The fact that this was a double
+murder, carried out mainly by De Thuilot himself (rather than the result
+of a whipping ordered by him, but administered by someone else) and
+including a (nominally) free Khoi servant as victim, may explain its
+severity. In any event, De Thuilot was not captured and the execution
+was never carried out.*^*[^5]*^* *
+
+**CJ 782** Sententiën, 1705-1713, ff. 136-141.
+
+Aangesien den provisioneel landdrost aan ons, voor eenigen tijd
+verleeden, heeft vertoond hoe dat den landbouwer Jan de Thuilot,
+woonagtig in de Wagemaakers Valeij onder het district van Draakenstein,
+in de maand December lestleeden, in zijn eigen huis, zig hadde schuldig
+gemaakt aan twee abominable manslagen aan een zijner slaaven Andries, en
+van bij hem in dienst zijnde Hottentot, Caffer genaamd, waarop hem
+landdrost, t’ zijner verzoeken, vermits zijn aufugie, is verleend
+provisie, beneevens een eerste, tweede en derde citatie bij edicte,
+mitsgaders een vierde mandament *ex superabundanti*,^[^6]^ met een
+premie van vijfentwintig rijxdaalders voor degeene die hem mog te komen
+te apprehendeeren en in handen van de justitie te leeveren, beneevens
+een interdictie penaal voor alzulke die hem opgehouden, helpen verbergen
+of eenige leevensmiddelen mogte toegevoegd hebben, zonder dat hij egter
+ten geprefigeerden dage verscheenen, maar als nog latiteerende is, zulks
+die delicten niet alleen na regten voor bekend, maar hij Jan de Thuilot
+voor den daader, als daarvan geconvinceerd en overtuigd, werd gehouden
+dezelve te hebben geperpetreerd, des den genoemde landdrost vervolgens
+heeft gediend van *intendit*, mitsgaders de verificatien daartoe
+specteerende, waar uit den edelagtbare Raade van Justitie klaar en
+evident consteerd, alsook ten genoegen gebleeken is:
+
+Dat wanneer zijn defaillants slaaven en Hottentots op den 4^e^ der
+gezeide maand van ’t land, kooren gesneeden hebbende, thuis waaren
+gekomen, hij defaillant in euvelen moede den gemelte slaav Andries en
+Hottentot, Caffer genaamd, op het vermoeden dat zijn sleutels genoomen
+en geborgen hadden, heeft aangeroepen, gebonden, met de handen aan een
+balk opgehaald, met een kaptouw gants deerlijk afgerost, en daarbij zoo
+lange gecontinueerd totdat moede is geworden, dat hij latitant
+vervolgens met dreijgementen eenen Christiaan Uijker heeft gepersuadeerd
+om de ellendige lijders mede ieder een slag à drie met hetzelfde toe te
+brengen, dewelke bekend heeft hetzelve gedaan te hebben. Dat hij, Jan de
+Thuilot, deeze menschen vervolgens nogh tragten met de voet te trappen
+of te schoppen, dog dat door, tusschen en bij geval daarop in komende,
+Barent Pietersz. Blom, (alias) magere Barent, is verhinderd en tegen
+gesprooken, die hem delinquant geraaden heeft dezelve los te maaken, na
+Stellenbosch te brengen, haar aan te klaagen, en aldaar na verdienste
+door den Officier te doen straffen. Dat hij defaillant de lijders op
+haare erbarmelijke lamentatien, en ernstige vermaaninge van voornoemde
+magere Barent, wel heeft ontbonden en los gemaakt, maar dat gezeide
+Barent vandaar weder vertrekkende, hij, Jan de Thuilot, tot dat barbaris
+besluit is gekomen van die twee zoo jammerlijke afgeroste lijders de
+voeten te binden, dezelve met het hoofd nederwaards aan dezelve balk
+weder op te hangen, en andermaal met hetzelve kaptouw over de lighaamen
+te slaan, laatende dezelve omtrent een uur lang in dat postuur hangen,
+waarna hij haar los laatende, den Hottentot Caffer zoodanig heeft
+getrapt en geschopt dat daarop aanstonds den geest gaf, en den slaav
+eenige weinige dagen daaraan mede, naar alle apparentie, door die
+euvelle kastijding, schoppen of trappen gestorven en omgebragt zal zijn;
+waarop hij aanstonds van zijn huis geretireerd, de vlugt genoomen, en
+wegens zijn non comparitie hem zelve aan die afgrijsselijke moordaaden
+schuldig gemaakt ende justitie versmaad heeft.
+
+Alle ’twelke zijnde zeer abominable capitaale delicten, en dat op zulke
+cruelle \[*sic*\], barbarische wijse uijtgevoerd, dat ze den mensch doet
+afgrijzen die onder welgestelde eer- en vreedelievende regeeringen, daar
+niet als de liefde, rust en eendragt geplant en voortgezet, mitsgaders
+de justitie, tot weering en demping van de moetwillige misdaaden,
+spoorloose ongebondendheeden, en alle andere quaade zijdgangen, zuiver
+geconserveerd werd, op het aller seveerst strafbaar zijn.
+
+Zoo is dat den edelagtbare Raade van Justitie, ten dage dienende, gezien
+ende geresumeerd hebbende het schriftelijk intendit, met de verdere
+stukken en documenten bij den provisioneel landdrost sieur Samuel
+Martini de Mours in juditio tot justificatie van zijn vermeeten
+geproduceerd, mitsgaders zijne conclusie *ratione officii* tegens den
+gedaagden, defaillant en latitant Jan de Thuilot gedaan ende genoomen,
+wijders met rijpe deliberatie van raade aandagtelijk gepondereerd en
+gelet op alle ’tgeene waarin haar Edel Agtbaarens in deeze te letten
+stond, doende regt in den naam en van wegen haar hoogmogende de Heeren
+Staten Generaal der vrije Vereenigde Nederlanden, den defaillant Jan du
+Thuilot hebben gecondemneert, gelijk hem condemneeren bij deezen: dat
+zoo wanneer in handen van de justitie alhier mogt komen te geraaken,
+geharquebuseerd te sullen worden datter de dood na volgd, met
+confiscatie van alle zijne goederen, alvoorens afgetrokken de kosten en
+mise van de justitie, de eene helft voor den eijscher en d’ andere helft
+voor de kamer.
+
+Aldus gedaan en gesententieerd in ’t Casteel de Goede Hoop, den 5^e^
+Julij 1708.
+
+Gepronuntieerd den 7^e^ daaraan.
+
+\[get.\] L. v. Assenburgh, Joan Corns. d’Ableing, O. Bergh, Jns.
+Swellengrebel, Willem van Putten, K.J. Slotsboo, J. Brommert, Cornelis
+Botma, CDH (deese letteren heeft Claas Hendrikx Diepenauw gestel\[t\]),
+Hendrick Bouman.
+
+Mij present, \[get.\] A. Poulle, secretaris.
+
+**CJ 312** Criminele Process Stukken, 1708, document 28.
+
+Ick, ondergetekende Jean de Thuile, gedagvaert sijnde wegens den
+landdrost om te verschijnen aen de Caab voor de heer d’Ableing en sijnen
+acthbare Raad tegens de naeste Donderdagh, den 22^e^ December, maer door
+mijn indispositie is ’t mij onmogelijk en dierhalve heb ick nodigh
+geacht mijne redenen bij geschrifft te senden aen de heer d’Ableing en
+sijne achtbare Raad – mijn redenen sijn dese:
+
+Dat op Woensdagh, den 4^e^ deser maand, omtrent den avond,^[^7]^ ick
+verstaan heb dat mijn sleutels waren wegh genomen, dien selve dagh
+hebben mijn slaven en Hottentots koren gesneden bij Louis le Riche,
+soodat ick niet eer als ’s avonts naer mijn sleutels konde vragen, als
+wanneer sij thuijs gecomen waren, en verstaan hebbende dat mijn slaaven
+en een Hottentot hadden gedronken, soo twijffelde ick niet off sij waren
+diegeene die mijn sleutels genoomen hadden. Ick vraegde eerst aen den
+geseijde slave die gedronken had, waer dat mijn sleutels waren, waerop
+hij antwoorde dat hij er niet van wist, alsdoen soo vraagde ick den
+Hottentot, dewelke mij ’tselffde antwoorde, derhalve niet geloovende dat
+andere als zij deselve genomen hadde, soo hebbe ick haer aenstonts
+gebonden om te doen bekennen, en nadat ick haer menigmael gevraagt had
+off sij wilde bekennen, so hebben sij niet gewild, hetgeene mij
+genootsaekt heefft te nemen een touw en daermede op haer te slaen
+\[*sic*\], en onder ’t slaen seijde den eene tegens den andere: Geefft
+de sleutels, en den andere seijde: Geefft gij die; waeruijt ick merkende
+dat sij de sleutels genomen hadden mits dese confessie, soo heb ick de
+slagen verdubbelt en haer nog eenige toegebragt met deselve touw.
+Pomerijntje en magre Barent waren mij komen besoeken, waerop Pomerijntje
+de rottingh van magre Barent heefft genomen en daermede ook op geslagen.
+Magre Barent heefft daerop gesegt: Laet se rusten en brengt se morgen
+naer Stellenbosch, ter selver tijt heb ick haer losgemaakt van den balck
+daer sij aen gebonden waren, latende desniettegenstaende haer nog
+gevleugelt omdat sij niet wegloopen soude en om haer ’s ander daags naer
+Stellenbosch te brengen. Ick belaste mijne andere slaav dat hij sorgh
+dragen soude voor den gebondene, en ontrent middernagt ging ick slapen,
+latende Pomerijntje en Magre Barent nogh op. Magre Barent dede off hij
+mij goede nagt seijde, maar ick heb het niet verstaen en Pomerijntje
+bleeff doen alleen op en, volgens het raport der slaven en Hottentots,
+soo heefft Pomerijntje haer menigmael met de voet op ’t hart getrapt en
+’tselffde, soo men segt, uijt een haet die hij tegens die Hottentot
+hadde, al meer als zedert een jaer, en die hij gedrijgt had dood te
+slaen. ’s Morgens opstaende, soo vernam ick de knegt van juffrou
+Taillifer, Philip Menar genaamt, die wegens sijn juffrou quam om een
+ram, die ick haer beloofft had, en als ick die gegeven had, soo heb ick
+mijn affscheijt van Philip Menar genomen omme mijn schapen te gaen
+keren, die in ’t coorn liepen. Philip Menar was in mijn huijs, en segt
+gesien te hebben dat Pomerijntje haer een brandend hout onder de neus
+stack en haer de baerd affbrande, ick thuij\[s\]^[^8]^ comende, soo
+seijde mijn slaav: Meester, ontbind mij, en ick sal de sleutels gaen
+soeken; daerop heb ick hem losgemaek\[t\] en ick gaff twe Hottentots met
+hem om de sleutels te gaen soeken. Sij komen weder sonder sleutels,
+seggende dat sijn sacken gebroocken waren en dat hij se verloore had,
+hetgeene hoewel vals was, want haer sacken waren goed, en daeruijt kende
+haere valsheijt; soo maekte ick mij vaerdig om naer Stellenbosch te gaen
+en haer te doen straffen, en soo als ick op mijn vertreck stond, soo
+sturff de Hottentot. Ick beken en stae toe dat soo als ick de Hottentot
+dood sag, dat ick aenstonts gevlugt ben, beset met schrick, en
+verlatende mijn huijs, sonder ergens meer naer om te sien, en in mijn
+absentie, op den vierde dagh, is mijn slaav ook gestorven; hoewel van
+die vier dagen hij nog twee bij mijn buurman Gidion Malherbe doorgebragt
+heefft, alwaer hij gesegt heefft, dat hij van Pomerijntje soo geslagen
+was. Siet hier, voor soo veel als ick te seggen heb, en ’tgeene van de
+waerhijt is, terwijl ick bidde de heer d’Ableing en sijne achtbare Raad,
+te doen regt ondersoek, en mij te ordonneren wat haer beliefft dat ick
+doen sal, en ick sal mij houden in mijn pligt, gelijck ick schuldig ben
+te sijn.
+
+Haer getrouwe en gehoorsame onderdaen, Jean du Thuile. De superscriptie
+is aen de heer d’Ableing, administrateur van ’t gouvernement aen Cabo de
+Goede Hoop en aen sijne achtbare Raad.
+
+TRANSLATION
+
+Since, some time ago, the provisional landdrost has demonstrated to us
+how, during the month of last December, the farmer Jan de Thuilot,
+living in the Wagemaakers Valeij in the district of Drakenstein, had
+made himself guilty in his own house of two abominable homicides to one
+of his slaves, Andries, and to a Hottentot working for him, named
+Caffer. The landdrost was then, at his own request and because of his
+\[De Thuilot’s\] flight, granted the right to act in anticipation,^[^9]^
+together with a first, second and third writ of summons, as well as a
+fourth mandate in superabundance,^[^10]^ with a premium of twenty-five
+rixdollars for whoever may apprehend him and deliver him into the hands
+of justice, besides a penal prohibition against all who support, help to
+hide or may provide him with any provisions; that if he did not appear
+on the day advertised but still remained hidden, then these offences
+will not only be considered to be admitted, in accordance with law, but
+that he, Jan de Thuilot, would also be considered, being convinced and
+persuaded of it, the author and perpetrator of the same. So the said
+landdrost then brought his action, as well as the evidence which
+supported it, from which the honourable Council of Justice determined it
+to be clear and evident, as also to have appeared sufficiently:
+
+That when, on the fourth of the said month, the defaulter’s slaves and
+Hottentots got home from the fields where they had been reaping wheat,
+he, in an evil temper, on the suspicion that they had taken his keys and
+hid them, called the said slave Andries and the Hottentot Caffer, tied
+them, pulled them up by the hands to a beam and thrashed them wretchedly
+with a halter and continued so long with this until he became tired.
+That the fugitive then persuaded with threats one Christiaan Uijker, who
+confessed to have done this, to also give these wretched sufferers about
+three strokes each. That he, Jan du Thuilot, in addition then tried to
+trample or kick these people with his foot, but that he was prevented
+and dissuaded from this by Barent Pietersz. Blom, alias Skinny Barent,
+who had come by there during this, and who advised him, the delinquent,
+to untie them, to take them to Stellenbosch, to charge them and to have
+them punished there according to merit by the officer. That, on their
+wretched lamentations and the serious exhortations of the aforementioned
+Skinny Barent, the defaulter did untie and free the sufferers, but, when
+the said Barent again departed from there, Jan de Thuilot came to the
+barbaric decision to tie the feet of these two sufferers, so pitifully
+thrashed, and to hang them from the same beam with their heads downwards
+and yet again beat them with the same halter over their bodies, letting
+them hang in this position for about an hour, after which he set them
+free and then trampled and kicked the Hottentot Caffer in such a way
+that he presently gave up the ghost; while some days thereafter, the
+slave too – to all appearences because of this evil chastisement,
+kicking or trampling – was to die, whereupon he immediately went from
+his house, took flight and, because of his non-appearance, made himself
+guilty of these hideous deeds of murder, and disdained justice.
+
+All of which are the most abominable capital crimes, moreover executed
+in such a cruel barbaric fashion that it fills one with horror, and are
+punishable as severely as possible in a well-appointed honour- and
+peace-loving government, where nothing but love, peace and harmony were
+planted and are continued, and moreover where justice is properly
+maintained for the restraint and suppression of wanton crimes, excessive
+dissoluteness and every other evil consequence.
+
+Thus it is, that the honourable Council of Justice, serving today,
+having seen and read the arraignment, with the other papers and
+documents which the provisional landdrost *Sieur* Samuel Martini de
+Mours has produced in court as justification for his case, as well as
+the *conclusie* he had drawn up and delivered, by reason of his office,
+against the defendant, defaulter and fugitive, Jan de Thuilot, further
+having pondered and noted with carefully considered counsel everything
+which their honours have to take into account in this, practising
+justice in the name and on behalf of the high and mighty Lords States
+General of the free United Netherlands and, having judged the defaulter
+Jan du Thuilot, is sentencing him with this: that when he will have come
+into the hands of justice here, to be shot with an arquebus^[^11]^ so
+that death will follow, with confiscation of all his goods with, after
+the costs and expenditure of justice had been deducted, the one half for
+the *eijscher* and the other half for the Chamber.^[^12]^
+
+Thus done and sentenced in the Castle of Good Hope on 5 July 1708.
+
+Pronounced on the 7^th\ ^thereupon.
+
+\[signed\] L. v. Assenburgh, Joan Corns. d’Ableing, O. Bergh, Jns.
+Swellengrebel, Willem van Putten, K.J. Slotsboo, J. Brommert, Cornelis
+Botma, CDH (these letters were set down by Claas Hendrikx Diepenauw),
+Hendrick Bouman.
+
+In my presence, \[signed\] A. Poulle, secretary.
+
+TRANSLATION
+
+I, the undersigned Jean de Thuile, have been summonsed by the landdrost
+to appear at the Cape before the honourable d’Ableing and his honourable
+Council at the latest Thursday, 22 December, but through my
+indisposition it is impossible for me, and therefore I considered it
+necessary to send my reasons in writing to the honourable d’Ableing and
+his honourable Council – my reasons are these:
+
+That around sunrise on Wednesday the 4^th^ of this month, I discovered
+that my keys had been taken away, that same day my slaves and Hottentots
+had been reaping wheat at Louis le Riche so that I could not ask for my
+keys until the evening, which is when they came home and I discovered
+that my slaves and a Hottentot had been drinking, so that I did not
+doubt that they were the ones who had taken my keys. I first asked the
+said slave^[^13]^ who had been drinking where my keys were, to which he
+answered that he knew nothing of it; I then asked the Hottentot, who
+answered me the same. Therefore, not believing that anybody but them had
+taken it, I immediately tied them up to make them confess, and after I
+had asked them many a time if they would confess, and since they did not
+want to, this forced me to take a rope and to beat them with it, and
+during this beating the one said to the other: “You give the keys”,
+while the other one said: “You give them”, from which I realised that
+they had taken the keys. With this confession I doubled the lashes and
+gave them some more with the same rope. Pomerijntje^[^14]^ and Skinny
+Barent came to visit me, whereupon Pomerijntje took Skinny Barent’s cane
+and also beat \[them\] with it. Upon this Skinny Barent said: “Leave
+them be, and take them to Stellenbosch tomorrow”, at the same time I
+untied them from the beam to which they had been tied, leaving them
+nonetheless still trussed so that they would not run away, in order to
+take them to Stellenbosch the following day. I ordered my other slave
+that he should take care of the tied-up ones and, at about midnight, I
+went to sleep, leaving Pomerijntje and Skinny Barent still up. Skinny
+Barent said good night to me, but I did not understand it^[^15]^ and
+then only Pomerijntje remained up and he, according to the report of the
+slaves and Hottentots, trampled with his foot several times on their
+chests and did this, so it is said, because of a hatred which he had had
+against this Hottentot for already more than a year now, and whom he had
+threatened to beat to death. After getting up in the morning, I saw the
+*knecht* of *juffrouw* Taillifer, named Philip Menar, who had come on
+behalf of his *juffrouw* to collect a ram which I had promised her and,
+when I had given this, I took my farewell of Philip Menar in order to go
+and turn back my sheep who were walking into the wheat \[fields\].
+Philip Menar was in my house and says that he had seen Pomerijntje
+sticking a piece of burning wood under their noses and burning off their
+beards. When I got home, my slave said: “Master, untie me, and I will go
+and look for the keys”, whereupon I untied him and gave two Hottentots
+with him to go and look for the keys. They returned again without the
+keys, saying that his \[*sic*\] pockets were loose and that he had lost
+them, which was false however, as their pockets were fine. Knowing from
+this their dishonesty, I got ready to go to Stellenbosch and to have
+them punished, and when I was ready to depart, the Hottentot died. I
+confess and admit that when I saw this Hottentot dead, I immediately
+fled, taken with fright, and left my house, without taking care of
+anything, and on the fourth day of my absence the slave also died,
+although of these four days he had still spent two with my neighbour
+Gidion Malherbe where he said that he had been beaten thus by
+Pomerijntje. Behold, here is everything I have to say and which is the
+truth, while I pray that the honourable d’Ableing and his honourable
+Council will do a proper investigation and will order me what pleases
+them, which I shall do, and I shall do my duty, as I am bound to be.
+
+Their faithful and obedient servant, Jean du Thuile. The superscription
+\[i.e. address\] is to the honourable d’Ableing, administrator of the
+government at the Cape of Good Hope, and his honourable Council.
+
+[^1]: * As is also revealed in the career of De Thuilot’s contemporary
+    Peter Becker, who sadistically tortured a woman slave of his to
+    death, in spite of Company law to the contrary (Biewenga 1999:
+    114-15). Theoretically owners were only allowed ‘domestic
+    correction’ of their slaves (*Kaapse Plakkaatboek *I: 36-7), and
+    needed to send slaves for harsher punishment to the judicial
+    authorities, for which service they had to pay. However, owners
+    often took the law into their own hands, despite Company attempts to
+    prevent the maltreatment of slaves (see 1729 Jan Botma, n. 4 and
+    1766 Nicolaas Heijns, n. 6). *
+
+[^2]: * For this procedure, see 1788 David Malan Davidsz, n. 15.*
+
+[^3]:  For the process of this case between its first appearance in the
+    Council of Justice on 19 January 1708 and the passing of the death
+    sentence on 5 July 1708, see CJ 4, ff. 4, 6, 7v, 9v, 12, 44
+    (reporting De Thuilot’s desertion), 45r-v (payment of *amende* fine)
+    and 48 (death sentence). The documentation also includes the
+    *eijsch, *the letter of Jan de Thuilot in French, with the Dutch
+    translation reproduced here, and the examination of Christiaan
+    Uijker, CJ 312, documents 27-31. Additional information about this
+    case, based on the Stellenbosch criminal records, is given in
+    Biewenga 1999: 113-14. The case, and the background to it, is
+    discussed by Franken 1978: 128-34, who also includes a transcription
+    and linguistic analysis of De Thuilot’s original French letter.
+
+[^4]: * Jan van As was executed (by shooting) in 1688 for stock theft
+    and murder of a slave boy. Upham (1997-9) suggests that the death
+    sentence was passed because of Jan’s mestizo origins and because of
+    the severity with which the authorities regarded stock theft. The
+    three other burghers who killed slaves in the seventeenth century
+    were given sentences ranging from fines to banishment (De Wet 1981:
+    160-61; Upham 1997: 7-8). For similar examples in the eighteenth
+    century, see 1729 Jan Botma and 1749 Jan Lategaan. The next such
+    case, that of Willem Gebhardt, only took place in 1824 (Cairns
+    1984). *
+
+[^5]: * De Thuilot was never found and the following year his estate was
+    sequestrated and his farm sold (Franken 1978: 134). De Kock (1950:
+    190-91) suggests that he might have fled on one of the Company
+    ships.*
+
+[^6]:  *Sic* for *ex superabundantia*. By law people were allowed three
+    chances, but a fourth one was added ‘in superabundance’.
+
+[^7]:  According to Franken (1978: 131) this is one of two mistakes in
+    the Dutch translation of the French: the Dutch text here says
+    ‘omtrent den avond’ (around evening), but it should be ‘at sunrise’.
+
+[^8]:  The end of the paper is slightly damaged here. The missing
+    letters have been supplied in square brackets.
+
+[^9]:  Translation of *provisie*, meaning that one is allowed to omit
+    certain parts of the legal process, in this case the presence of the
+    accused. This case is similar in this technical sense to 1788 David
+    Malan Davidsz.
+
+[^10]:  See note 6 above.
+
+[^11]:  A type of rifle (which went out of fashion in the course of the
+    eighteenth century) with a long barrel which was put on a stand when
+    shooting. Being killed in this way was considered a more honourable
+    death than by hanging.
+
+[^12]:  The Orphan Chamber which, apart from administering the
+    inheritance of orphans until they reached their majority, also
+    operated as a poor fund (Visagie 1969: 56-62; De Wet 1981: 172-73).
+    This probably explains why half of De Thuilot’s estate was donated
+    to it.
+
+[^13]:  The original also has this mixture of singular and plural as
+    regards the slave.
+
+[^14]:  Throughout his letter, Jan de Thuilot refers to Christiaan
+    Uijker or Uker as ‘Pomerijntje’, literally ‘little Pomeranian’.
+    Uijker was born in Pomerania (the regions of north-eastern Germany
+    and northern Poland bordering on the Baltic) and arrived in 1693 at
+    the Cape, where he eventually came into possession of a farm close
+    to that of De Thuilot (Franken 1978: 129-30).
+
+[^15]:  The Dutch translation is wrong here (Franken 1978: 131). It
+    says: “Barent *pretended* to say good night to me, but I did not
+    understand it”, but after this only Pomerijntje remained to torment
+    the slaves, and Barent disappeared from the scene.^\ ^It seems as if
+    Barent was leaving and waved or made a sign to Du Thuilot saying
+    goodnight, which he did not understand, which would explain why
+    Barent disappeared and only Pomerijntje was left.

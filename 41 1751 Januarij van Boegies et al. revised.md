@@ -1,0 +1,463 @@
+1.  **JANUARIJ VAN BOEGIES ET AL.**
+
+*These documents relate to two groups of slave runaways. The first deals
+with ten recently arrived Southeast Asian slaves, who separated into two
+groups. The first, of four, seem to have got away, while of the other
+six, four were killed by a commando, one got away and one was captured,
+hence this letter by the Stellenbosch landdrost. They escaped in the
+middle of January and it seems as if the encounter with the commando
+took place around 2 February.*
+
+*News of all this reached the slaves in Cape Town, because on 13
+February the second group of twelve slaves and a *bandiet^*[^1]*^* fled,
+inspired by the news that ‘recently a group of slaves had taken flight
+and had already arrived safely in a free negerij’.*^*[^2]*^* This group
+did not get very far, as they were all recaptured three days later, not
+far from Cape Town.*
+
+*This example thus illustrates how news travelled (and was elaborated)
+on the slave ‘grapevine’ in Cape Town and how one episode of escape
+could act as an incentive for others. It is interesting that all the
+slaves involved were from the Indonesian archipelago: this may reveal an
+alternative information network that existed among Malay-speaking
+slaves, despite their different owners, and some of the convicts in the
+town. *
+
+*The second group was hierarchically structured, with an appointed
+leader. Their plot was foiled when they were cornered by a commando, but
+their organisation was demonstrated by their spirited defence in what
+amounted to a pitched battle, with use of Southeast Asian weapons and
+war cries.*^*[^3]*^* *
+
+**CJ 2485** Inkoomende Brieven, 1729-1759, Deel 1, ff. 130-33.
+
+Cabo de Goede Hoop.
+
+Aan den weledele gestrenge heere Rijk Tulbagh, g’eligeert gouverneur van
+Cabo, voormeld, ende den resorte van dien etc. etc. etc.
+
+Weledele gestrenge heer!
+
+Neeme de vrijheijt hierneevens Caebwaerts op te senden, seekeren
+Bougeneesen mans slaef (zijnde, soo als best van hem verstaen kan,
+Januarij genaamt, sonder desselfs meester te kunnen noemen, en nu, 3 à 4
+weeken geleeden, met nog neegen andere lijfeijgenen, alle Oosterlingen
+en onlangs uijt India hier aangebragt, van hunne, aen Cabo woonende,
+lijfheeren gevlugt) denwelke mij, door den landbouwer Andries van Dijk,
+gevangen is overgeleevert geworden, met berigt dat gemelde slaef op den
+2^de\ ^deeser maand, des voordemiddags, met ende beneevens nog vijf
+andere lijfeijgenen, die met 1 bajonet, 1 bijl, 1 kapmes, 3 messen en 5
+knuppels gewapent waren, op de plaats van den meede landbouwer Fredrik
+Hijlon, over de berg aan de Klijne Riviersvallij geleegen, gekoomen
+zijnde, drie van voorseijde slaeven, nademael zijlieden sig niet hadden
+willen gevangen geeven en selfs onder ’t geroep van: Amock, te weer
+tragten te stellen, soo door hem Van Dijk (denwelken ter voorseijde
+plaetse woonagtig is), als door gedagte Hijlon en seeker jongeling,
+Martiens Hendrikse genaamt, doodgeschooten waeren geworden, als meede
+dat een vierde slaef, al vlugtende, door een lijfeijgen van meergemelde
+Van Dijk met een stock sodanig een slag, soo op de rug, als teegen het
+hoofd, was toegebragt, dat insgelijx wijnig tijds daeraen den geest
+gegeeven had, mitsgaders wijders dat den slaef Januarij, boovengemeld,
+(die hij Van Dijk segt dat niets bij sig gehad, nog ook te weeten dat
+eenig teegenweer gedaen heeft) daerop door gerepte Van Dijk
+geapprehendeert geworden was, en eijndelijk dat den sesde of overige
+slaef sig inmiddens met de vlugt, soo als ook nog absent is, gesalveert
+had.
+
+Ende ten aensien den laetstgemelde sig mogelijk wel weeder bij zijn vier
+andere mackers (hoewel meergemelde Januarij voorgeeft dat zijlieden ter
+saeke van onderlinge ontstane questi van den anderen waren afgeschijden)
+sal vervoegt hebben, en men daer en booven verstendigt geworden is, dat
+gints en herwaerts langs het strand, omtrent de Hanglip, eenige
+voetspooren souden ontdekt geworden zijn; soo heb ik, ten eijnde bij
+moogelijkheijt die fugativen te kunnen agterhaelen, reets twee
+commandos, als namentlijk de eene van hier en de andere van de
+Botrivier, over de berg geleegen, om malkanderen aan de groote baaij,
+agter de Hanglip, te gemoet te koomen, uijtgezonden; van welk een en
+ander de eer heb uw weledele gestrenge bij deesen onderdaniglijk berigt
+te doen, terwijl wijders met de uijtterste hoogagting verblijve.
+
+Weledele gestrenge heer!
+
+Uw weledele gestrenges seer onderdanigen en gehoorsamen dienaer,
+
+\[get.\] A. van Schoor.
+
+Stellenbosch, den 12^e\ ^Februarij 1751.
+
+**CJ 788** Sententiën, 1750-1755, ff. 58-67.
+
+Dewijl uijt de vrijwillige gerecolleerde confessiën van Tallone van
+Boegies, als bandiet in ’s edele Compagnies slaven logie beschijden
+geweest, oud omtrent 40, Jason van Boegies, lijfeijgen van den Capitain
+Lieutenant d’ edele Wijnand Willem Muijs, oud 36, Jephta van Boegies en
+Baatjoe van Balij, bijde slaaven van den cipier Hermanus Hermansz., den
+eenen oud 25 en den anderen 22, Fortuijn van Boegies, toebehoorende den
+Chinees Limpsinko, oud 24, Pomade van Macassar, slaaf van den soldaat
+Nicolaas van Blerk, oud 30, September van Padang, lijfeijgen van den
+meester knegt der waapenkamer Jochim Kannemijer, oud 25, Maij van
+Sambouwa, toebehoorende den burger Roelof Ruijgrok, oud 30, Baatjoe van
+Boegies, lijfeijgen van den burger Gijsbert Rogiers, oud 40, Baatjoe van
+Mandhaar, slaaf van de capitain ter zee d’ edele Gerrit Rijndertsz. de
+Vos, oud 25, en April van Boegies, toebehoorende Hendrick Pietersz. van
+Gale, meede naar gissing oud 40 jaaren, thans ’s heeren gevangens,
+buijten pijn ofte dwang van banden, van ijsers, dan wel de minste
+bedrijging van dien gedaan, en andere stucken ten processe gefourneert,
+den edelagtbaare Raad van Justitie deeses gouvernements sonneklaar is
+gebleeken:
+
+Dat de gevangens onderling met malkander afspraak genoomen hebbende om
+te gaan drossen, ende wel insonderheijd op het voorstel van den eersten
+gevangen, die hun voor ’t meeste gedeelte heeft ingeprent dat er onlangs
+ook een parthij slaaven de vlugt genoomen hadden, dewelke reets behouden
+in een vrije negereij, dan wel op Madagascar, aangeland waaren, zij
+gevangens gesamentlijk ten dien eijnde op Saturdag avond, zijnde geweest
+den 13 der gepasseerde maand Februarij, ten getalle van derthien stux,
+den eenen na den andere, hun agter ’t Casteel begeeven hebben; alwaar
+dan ook den eerste en tweede gevangen, onderwijl dat sommige der
+gevangens nog aankoomende waaren, tot hunne capitains en aanvoerders
+aangestelt zijn geworden. Waarna sij gevangens hun, behalven den
+seevenden gevangen, die vermits, volgens sijn voorgeeven, den regten
+wegwijser aldaar niet praesent was, weederom terug is gekeert, hun
+gesamentlijk, over de Zoute Rievier \[*sic*\] naar de kant van Jan
+Biesjes Kraal begeeven hebbende, den eerste gevangen als hun eerste hoof
+en capitain, den vijfde en elfde gevangens, van daar na de Caab weederom
+terug heeft gesonden, met ordre om niet alleen kost voor hun te gaan
+haalen, tot welkers inkoop hij eerste dan ook aan den tweede gevangen
+vijf schellingen, om aan den vijfde en elfde gevangen ter hand te
+stellen, gegeeven heeft, maar ook teffens sijne twee afgesanten heeft
+geordonneert, om teegens den seevende gevangen aan de Caab te seggen,
+dat hij seevende gevangen met den snaphaan en ’t kruijt, agtervolgens
+zijne gedaane beloften, meede bij hem en sijn complot koomen moeste,
+hetwelke door den tweede gevangen insgelijx aan deselve is belast
+geworden, op welke bekoomene ordre de twee voornoemde gevangens sig dan
+ook immediaat Caabwaarts vervoegt hebben, alwaar gekoomen zijnde, heeft
+den vijfde aan den elfde gevangen, van den ontfangene vijf schellingen,
+een schelling tot den inkoop van brood afgegeeven, waarmeede hij elfde
+gevangen sig egter van hem heeft geabsenteert en naar huijs gegaan is,
+sonder sig wederom het complot^[^4]^ te bemoeijen, oversulx hij vijfde
+gevangen voor een schelling brood, en drie schellingen vis gekogt
+hebbende, zich daarmeede weederom op weg naar buijten bij het complot
+begeeven heeft, sonder egter den seevende gevangen, die in het Casteel
+sig onthoudende was, gesprooken te hebben, ter saake dat hij vijfde
+gevangen ’s nagts aan de Caab gekoomen is en dus geen occasie gehad
+heeft den seevende gevangen te kunnen spreeken. Welk complot door hem
+vijfde gevangen dan gevonden zijnde ter plaatse alwaar hij hetselve
+gelaaten hadde, is wijders door den eerste, tweede, derde, vijfde en
+sesde gevangens, op het voorstel van den eerste en sesde gevangen aldaar
+beslooten, tot verkrijging van kost hun op de buijten plaatsen te
+begeeven, en aldaar in der minne kost en andere benoodigtheeden te
+vraagen; dog in gevalle hun deselve geweijgert wierden, als dan alles
+wat hun voorquam te sullen vermoorden en wegneemen, met bijvoeging van
+den eerste gevangen dat indien ijmand van hun gevangens niet meede doen
+wilde, hij eerste gevangen denselven rampocken^[^5]^ ofte vermoorden
+soude, ende sij gevangens met dit, hun quaad voorneemen, sig
+daaromstreeks nog opgehouden hebbende tot Dingsdag, den 16 Februarij
+jongstleeden, sijn sijlieden, ’s agtermiddags in de ruijgte te slaapen
+leggende, door een commando Europeesen geattaqueert en eijndelijk tot de
+overgaave genootsaakt geworden, waartoe zij gevangens egter in den
+beginne geensints hebben willen resolveeren, aangesien den eerste
+gevangen, als hun eerste capitain, met een groot mes of parrang in sijn
+hand opgesprongen is en hun aangemoedigt heeft om hun ter weer te
+stellen, onder het roepen in ’t Maleitsch: Lavang, dat is: Weert jouw,
+welke ordre, zij gevangens voor ’t grootste gedeelte dan ook
+getrouwelijk hebben getragt te agtervolgen, en wel insonderheijd den
+tweede gevangen, als hun tweede hoofd en capitain, gemerkt hij tweede
+gevangen met zijn, meede gebragten en zijnen lijfheer omtrend een maand
+bevoorens ontvreemt hebbenden, houwer niet alleen door het swaaijen van
+denselven over zijn hoofd zijne bende tot teegenweer heeft soeken aan te
+moedigen maar ook, doen reets twee van ’t complot dood geschooten
+waaren, hij tweede gevangen, zich neevens den eerste gevangen, geensints
+heeft willen gevangen geeven, maar sig soo lange gepoogt heeft te
+verweeren, totdat het commando genoodsaakt geworden is op hun beijden te
+schieten en hun, dus gequetst, met hunne andere, nog leevende, seeven
+complicen, waarvan nog twee stux gewond waaren, in hande der justitie
+over te leeveren, waarin den seevende en elfde gevangen vervolgens dan
+ook overgeleevert zijn geworden.
+
+Alle ’twelke sijnde verfoeijelijke daaden, door een bende vlugtende
+schurken gepleegt, die om enkel moedwil en brooddronkenthijd hun
+meesters dienst verlaaten hebbende, de ingeseetenen deeses lands
+opsettlijk en godlooselijk hebben willen exponeeren aan veele, bij hun
+reets beraamde, gevaarlijke desseijnen, die waarlijk van seer quaade
+gevolgen hadden kunnen sijn, ende welke dierhalven niet ongestraft
+kunnen blijven, maar ten voorbeeld en afschrik van alle diergelijke
+booswigten op ’t rigoureuste dienen gestraft te werden.
+
+Soo is ’t, dat den edelagtbaare Raad van Justitie, voormeld, ten daage
+dienende, met opmercking hebbende geleesen en geresumeert den
+schriftelijken crimineelen eijsch en conclusie door den heer Independent
+Fiscaal Pieter Reede van Oudshoorn *ratione officii* op ende jeegens de
+gevangens gedaan ende genomen, wijders geleth op haare vrijwillige
+gerecolleerde confessies, en op al hetgeene voorts ter saake dienende
+was, en haar edelagtbaarens konde doen moveeren, doende regt uijt naame
+ende van weegens de hoogmogende heeren Staaten Generaal der Vereenigde
+Neederlanden, mitsgaders van sijne doorlugtigste hoogheid, den heere
+Prince van Orange en Nassouw, als erfstadthouder van de Republique,
+onsen opper Gouverneur, Capitain en Admiraal Generaal, alle de gevangens
+hebben gecondemneert, gelijk haare edelagtbaarens deselve condemneeren
+mits deesen: om gebragt te werden ter plaatse alwaar men alhier gewoon
+is crimineele sententiën te executeeren, en aldaar aan den scherpregter
+overgeleevert zijnde, den eersten en tweeden gevangens Tallone en Jason,
+beijde van Boegies, met de coorde aan de galg soodanig gestraft te
+worden datter de dood naarvolgt, voorts derselver doode lighaamen naar
+’t buijten geregt gesleept en aldaar weeder opgehangen sijnde, dus te
+verblijven totdat door de lugt ende voogelen des heemels sullen weesen
+verteert, voorts de neegen overige gevangens aan een paal gebonden, met
+roeden op de bloote ruggen strengelijk gegeesselt, en den derde, vijfde,
+sesde en seevende gevangens met naamen Jephta en Fortuijn beijde van
+Boegies, Pomade van Macassar en September van Padang, daarop
+gebrandmerkt te werden, vervolgens twee aan twee aan malkander in de
+ketting gekloncken zijnde, daarinne ijder den tijd van vijfthien
+agtereenvolgende jaaren aan ’s edele Compagnies gemeene wercken sonder
+loon te arbeijden; wijders den vierde, agtste, neegende, en thiende
+gevangens, in naame Baatjoe van Balij, Maij van Sambouwa, Baatjoe van
+Boegies en Baatjoe van Mandhaar, ijder voor den tijd van vijf, en den
+elfde gevangen, April van Boegies voor drie, agtereenvolgende jaaren in
+de ketting gekloncken weesende, dus hunne meesters, mits betaalende de
+costen en misen van justitie, weederom te huijs gesonden te werden; met
+condemnatie van alle de verdere gevangens in de costen en misen van
+justitie.
+
+Aldus gedaan ende gesententieert in ’t Casteel de Goede Hoop, den 18^e^
+Maart 1751, mitsgaders gepronuntieert ende geëxecuteert den 20^e^
+daaraanvolgende.
+
+Fiat Executie, \[get.\] R. Tulbagh.
+
+\[get.\] S. Swellengrebel, J. Meinertzhagen, Hendk. de Ruijter, Ns.
+Heijning, Cl. Brand, Corns. Eelders, Js. de Grandpreez, Am. Decker, D.
+d’Aillij, Jn. Raeck, H.J. Prehn, P.J. v.d. Poel.
+
+Mij present, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
+
+TRANSLATION
+
+The Cape of Good Hope.
+
+To the right honourable lord Rijk Tulbagh, nominated governor of the
+aforementioned Cape and the areas falling under its control etc. etc.
+etc.
+
+Right honourable lord!
+
+Taking the liberty to send herewith to the Cape a certain Bugis male
+slave (being, as best as I could understand from him, named Januarij,
+but without him being able to name his master, and who, about 3 to 4
+weeks ago now, with nine other bondsmen, all Orientals and recently
+brought here from the \[East\] Indies, fled from their owners living at
+the Cape), who was delivered to me as prisoner by the farmer Andries van
+Dijk, with the report that during the morning of the second of this
+month, the said slave, together with five other bondsmen, armed with 1
+bayonet, 1 axe, 1 machete, 3 knives and 5 clubs, came to the farm of his
+fellow farmer Fredrik Hijlon, situated across the mountain in the Kleine
+Rivervalley. Since they did not want to give themselves up as prisoners
+and even, while calling out: “Amok!”, tried to resist, three of the
+aforesaid slaves were shot dead, both by Van Dijk (who is living on the
+aforesaid farm) and by the said Hijlon and a certain young man, Martien
+Hendrikse; and also that a fourth slave, while fleeing, was given a blow
+with a stick in such a way both on his back and against his head by a
+bondsman of the aforementioned Van Dijk, that he too, a short while
+thereafter, came to pass away and, moreover, that the aforementioned
+slave Januarij (who, according to Van Dijk, had nothing with him, nor
+does he know whether he had resisted in any way) was thereupon
+apprehended by the said Van Dijk, and finally, that the sixth or
+remaining slave saved himself in the meantime by fleeing, and is still
+absent.
+
+And considering that the last mentioned might possibly once again resort
+to his four other comrades (although the aforementioned Januarij asserts
+that they had separated from the others because of a disagreement which
+developed amongst them), and since some tracks going to and fro were
+apparently discovered on the beach in the vicinity of Hanglip, I have
+therefore already, in order to catch the fugitives, sent out two
+commandos, namely one from here and the other from Bot River, situated
+beyond the mountain, to reach each other at the large bay behind
+Hanglip; of which I have the honour to report with this to your right
+honourable lord, while further remaining with the utmost respect,
+
+Right honourable lord!
+
+Your right honourable lord’s most humble and obedient servant,
+
+\[signed\] A. van Schoor.
+
+Stellenbosch, 12 February 1751.
+
+TRANSLATION
+
+Since, from the voluntary, verified confessions of Tallone van Boegies,
+who used to be assigned as convict to the honourable Company’s slave
+lodge^[^6]^, age about 40, Jason van Boegies, bondsman of the captain
+lieutenant Wijnand Willem Muijs, age 36, Jephta van Boegies and Baatjoe
+van Balij, both slaves of the chief prison warder Hermanus Hermansz.,
+the one aged 25 and the other 22, Fortuijn van Boegies, belonging to the
+Chinese Limpsinko, age 24, Pomade van Macassar, slave of the soldier
+Nicolaas van Blerk, age 30, September van Padang,^[^7]^ bondsman of the
+chief servant of the armoury Joachim Kannemeijer, age 25, Maij van
+Sambouwa, belonging to the burgher Roelof Ruijgrok, age 30, Baatjoe van
+Boegies, bondsman of the burgher Gijsbert Rogiers, age 40, Baatjoe van
+Mandhaar, slave of the captain at sea, the honourable Gerrit Rijndertsz.
+de Vos, and April van Boegies, belonging to Hendrick Pietersz. van Gale,
+also 40 years old at a guess, currently their honours’ prisoners, done
+without torture or force of bonds, of irons, or even the least threat of
+suchlike, and from the other documents furnished in the case, it has
+appeared as clear as daylight to the honourable Council of Justice of
+this government:
+
+That the prisoners agreed with one another to run away, and indeed
+especially on the proposal of the first prisoner, who impressed upon
+most of them that there had recently been a group slaves who had also
+taken flight and who had already arrived safely at a free village of
+blacks or even on Madagascar. To this end, on Saturday evening, the
+thirteenth of the past month February, they, numbering thirteen men,
+went one after the other behind the Castle, where the first and second
+prisoners were also appointed as their captains and leaders during the
+time that some of the prisoners were still arriving, after which the
+prisoners – except for the seventh prisoner who, since, according to
+what he asserts, the right person to show the way was not there, turned
+back again – all went together across Salt River to the side of Jan
+Biesjes Kraal,^[^8]^ from where the first prisoner, being their first
+head and captain, sent back again the fifth and eleventh prisoners to
+the Cape with orders to not only fetch food for them, for the buying of
+which the first prisoner gave the second prisoner five *schellingen* to
+hand over to the fifth and eleventh prisoners, but also, as he ordered
+his two envoys to tell at the same time the seventh prisoner at the
+Cape, that he too had to come to him and his gang with the musket and
+gun powder, in accordance with the promise he had made. All of which was
+likewise ordered of them by the second prisoner, upon which order the
+two aforementioned prisoners then immediately set out to the Cape where,
+when they arrived there, the fifth prisoner gave one of the five
+*schellingen* he had received to the eleventh prisoner to buy bread
+with, but with which \[money\] the eleventh prisoner left him and went
+home, without getting involved again with this gang. Therefore the fifth
+prisoner bought bread for one *schelling* and fish for three
+*schellingen* and thereafter set out again on the way outside \[of Cape
+Town\] to the gang, but without having spoken to the seventh prisoner,
+who kept to the Castle, since the fifth prisoner got to the Cape at
+night and therefore did not have any occasion to speak to the seventh
+prisoner. After the fifth prisoner again found the gang at the place
+where he had left them, it was decided there by the first, second,
+third, fifth and sixth prisoners, on the proposal of the first and sixth
+prisoners, that in order to obtain food they had to go to the outlying
+farms and ask amicably for food and other necessities there but, in
+cases where this would be refused them, they would murder and take away
+everything that they could find; to which the first prisoner added that
+in case any one of the prisoners did not wish to do this, the first
+prisoner would thrash or murder him. The prisoners continued to remain
+in that vicinity until Tuesday, the 16^th^ of February of this year
+when, while they were lying asleep in the underwood, they were attacked
+by a commando of Europeans and were eventually forced to surrender,
+which the prisoners were at first by no means prepared to do, as the
+first prisoner, since being their first captain, leaped up with a large
+knife or *parrang* in his hand and encouraged them to defend themselves
+by shouting in Malay: *Lavang*, that is: “Defend yourself”,^[^9]^ which
+order the prisoners for the most part also faithfully tried to follow,
+and especially the second prisoner, being their second head and captain,
+since he not only sought to encourage his gang to resistance by waving
+over his head the broadsword he had brought with him, and which he had
+stolen from his owner about a month beforehand, but also when two of the
+gang had already been shot dead, the second prisoner, as also the first
+prisoner, still would not give himself up as prisoner, but tried to
+defend himself for so long until the commando was forced to shoot at
+both of them and, thus injured, they were delivered, along with their
+other still living accomplices, of whom two more were wounded, into the
+hands of justice, into which the seventh and eleventh prisoners were
+also afterwards delivered.
+
+All of which are abominable deeds, perpetrated by a gang of fugitive
+scoundrels, who left the service of their masters purely out of
+wantonness and petulance, and wanted wilfully and profanely to expose
+the inhabitants of this country to many of their already planned
+dangerous designs, which could truly have been of the most wicked
+consequences, and which therefore cannot remain unpunished but deserve
+to be punished most rigorously as an example and deterrent to all
+similar malefactors.
+
+Thus it is, that the honourable Council of Justice, aforementioned,
+serving today, having seen and read with attention the written
+*crimineelen eijsch en conclusie* drawn up and delivered for and against
+the prisoners by the honourable independent fiscal, Pieter Reede van
+Oudshoorn, by reason of his office, as well as having noted their
+voluntary, verified confessions, and everything else which served the
+case and could have moved their honours, practising justice in the name
+and on behalf of the high and mighty Lords States General of the United
+Netherlands, as also of his most serene highness, the Lord Prince of
+Orange and Nassouw, as hereditary Stadtholder of the Republic our Chief
+Governor, Captain and Admiral General, and having judged all the
+prisoners, is sentencing them with this: to be taken to the place where
+criminal sentences here are usually executed and there to be handed over
+to the executioner, the first and second prisoners, Tallone and Jason,
+both van Boegies, to be punished with the ropes on the gallows in such a
+way that death will follow, thereafter their dead bodies to be dragged
+to the outer place of execution and there again to be strung up, to
+remain thus until being consumed by the air and birds of heaven; further
+that the nine remaining prisoners be tied to a stake, severely scourged
+with rods on their bare backs, and thereupon the third, fifth, sixth and
+seventh prisoners, by the names of Jephta and Fortuijn, both van
+Boegies, Pomade van Macassar and September van Padang, to be branded,
+after which they must be riveted in chains together two-by-two, in which
+each is to labour without wages on the honourable Company’s public works
+for a period of fifteen consecutive years; further the fourth, eighth,
+ninth and tenth prisoners, with the names of Baatjoe van Balij, Maij van
+Sambouwa, Baatjoe van Boegies and Baatjoe van Mandhaar, each for a
+period of five years, and the eleventh prisoner, April van Boegies, for
+three consecutive years to be riveted in chains, to be thus sent back
+home again to their masters, on condition that they pay the costs and
+expenditure of justice; with the sentencing of all the other prisoners
+to the costs and expenditure of justice.^[^10]^
+
+Thus done and sentenced in the Castle of Good Hope on 18 March 1751, as
+also pronounced and executed on the 20^th^ thereupon.
+
+Let the sentence be done, \[signed\] R. Tulbagh.
+
+\[signed\] S. Swellengrebel, J. Meinertzhagen, Hendk. de Ruijter, Ns.
+Heijning, Cl. Brand, Corns. Eelders, Js. de Grandpreez, Am. Decker, D.
+d’Aillij, Jn. Raeck, H.J. Prehn, P.J. v.d. Poel.
+
+In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
+
+[^1]: * The group originally consisted of thirteen, but two were shot
+    dead during capture, so only eleven were prosecuted in the end. *
+
+[^2]: * An old Dutch colonial word meaning a community, or village, of
+    black people. *
+
+[^3]: * The documentation in this case also includes the *eijsch* and
+    the testimonies of each of the accused, as well as that of
+    *veldcorporaal* Burgert Van Dijk junior and the burgher Willem Pool,
+    CJ 359, ff. 118-62. For a similar example of ethnic links among
+    slave runaways, see 1760 Achilles van de West Cust et al.*
+
+[^4]:  *Sic*. It seems as if the word *met* before ‘het complot’ was
+    omitted.
+
+[^5]:  In the eighteenth century the verb *rampocken *meant ‘to go
+    plundering and stealing in an armed gang’, derived from the Javanese
+    *rampog*, which is translated as ‘to attack somebody or something
+    with spears’ (Boshoff & Nienaber 1967: 531). It is obviously in this
+    last sense that the word is here used. The use of the verb is not
+    known in modern Dutch or Afrikaans, although the noun *rampokker*
+    (gangster) is still common.
+
+[^6]:  *Bandieten* were convicts, many of whom were sentenced to hard
+    labour at the Cape from VOC settlements in Asia. They were either
+    imprisoned in the Slave Lodge, as in this case, or on Robben Island
+    (Shell 1994: 195-97; Ward 2002: 224-74).
+
+[^7]:  Padang is a town on the west coast of the island of Sumatra.
+
+[^8]:  A well-known landmark at the Cape, this Company grazing farm was
+    about eight kilometres north-east of the Castle, approximately where
+    modern-day Milnerton now is (Thunberg 1986: 54).
+
+[^9]:  Since all of these slaves came from the Indonesian archipelago it
+    is not surprising that they used Malay amongst themselves. On the
+    use of contact languages at the Cape, see 1763 Christina Strang and
+    1775 Moses van de Caab.
+
+[^10]:  These sentences were those recommended in the *eijsch* (CJ 359,
+    ff. 124v-25v) and were recorded in the* regtsrollen* after a week’s
+    delay while the documentation was read by the Council, CJ 33, ff.
+    43-5 and 48-52.

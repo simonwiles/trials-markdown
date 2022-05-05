@@ -1,0 +1,356 @@
+1.  BAATJOE VAN MANDHAAR
+
+*This concerns an attic siege at the Cape Town house of the burgher
+blacksmith Jan Broderik, where the slave Baatjoe van Mandhaar*^*[^1]*^*
+had barricaded himself.*^*[^2]*^* Baatjoe’s desperate resistance bore
+similarities to amok cases, including lashing out at anyone who came
+near him and attempted suicide.*^*[^3]*^* His use of Portuguese as a
+means of concealing his true intention from his owners is an intriguing
+indication of complexity of language usage in the colony, and the case
+is especially revealing for the details it gives of the police force of
+the VOC town, the *geweldiger^*[^4]*^* and *caffers* who attempted to
+break into the roof from outside. Baatjoe’s sentence of breaking alive
+on the wheel was one of the most severe punishments that the court could
+give, perhaps reflecting its alarm at the number of amok cases and of
+violent resistance by East Indian slaves in the town at this period. *
+
+**CJ 789** Sententiën, 1756-1760, ff. 80-91.
+
+Den edeleagtbaaren Raad van Justitie deezes gouvernements, soo uijt de
+vrijwillige confessie van Baatjoe van Mandhaar, lijfeijgen van den
+burger Jan Christoffel Broderik, oud naar gissing 30 jaaren, thans ’s
+heeren gevangen, als andere ten processe gevoegde stukken, alle
+behoorlijk gerecolleert, duijdelijk zijnde koomen te blijken:
+
+Dat den gevangen, naar bevoorens eenige dagen geveijnsd hebbende siek te
+weesen, vervolgens op Vrijdag, den 21^e^ der afgeweekene maand October,
+in steede van in opvolginge der door zijn lijfheer teegens den avond aan
+hem gegeevene ordre, van den combuijs zolder, waarop sig dien geheelen
+dag had opgehouden, af te komen en wat te eeten, niet alleen onwillig
+geweest is sulx te doen, maar hem bovensdien niet ontsien heeft om,
+wanneer dien avond de klokke omtrent neegen uur, een der bij zijn
+gevangens lijfheer tot het leeren van ’t smids ambagt aanbesteedde twee
+jongelingen, in naame Jan Karsten, sig op voorseijde zolder wilde
+vervoegen, met voorneemen om hem volgens gewoonte op denzelven tot
+slapen te begeeven, dien leerjongen, wanneer gedagte zolder langs eene
+ladder opklom, sonder ’t minste woord ofte weerwoord, op ’t
+onverwagtste, en sonder dat men toenmaals wist dat sulx door den
+gevangen wierd gedaan, maar vermeijnde dat dien jongeling door
+onvoorsigtigheijd was koomen te vallen, niet alleen van boven needer te
+stooten, maar ook, wanneer kort daarna de andere dier leerjongens, in
+naam Frederik Huijsheer, meede ten fine voorseijde, sig langs dezelve
+ladder op meergemelde zolder vervoegen wilde, denzelven met een puntig
+stuk hout zoodanigen stoot in desselfs aangesigt toe te brengen, dat
+daar door niet alleen gequetst, maar insgelijx van boven is komen needer
+te vallen.
+
+Dat des gevangens lijfheer op dat geraas in de combuijs gekoomen sijnde,
+en mits de ontsteltenisse dier beijde jongelingen uijt dezelve niet
+hebbende verneemen wie henlieden dat gedaan had, oversulx gevraagt
+heeft: Wie doet dat? en door den gevangen daarop geantwoord sijnde: Ik
+Baas!, gemelde Broderik hem gevangen alsdoen heeft g’ordonneert dat
+beneeden koomen zoude, op ’twelke den gevangen ook gesegt had:
+Aanstonds, sonder ’tselve nogthans te doen, des voorseijde Broderik,
+naar nogmaalige ordre, daarbij gevoegt heeft dat, soo den gevangen niet
+beneeden quam, hij dan boven koomen soude. Waarop den gevangen die
+assurantie heeft gehad in ’t Neederduijtsch te seggen dat maar soude
+boven komen dewijl hij gevangen jaarig was, teffens in ’t Portugeesch
+daarbij gevoegt hebbende dat hij gevangen hem lijfheer vermoorden soude,
+welk laatste voormelde Broderik, als geen Portugeesch verstaande, soo
+als beesig was de ladder op te klimmen, door desselfs andere slaven bij
+vertolking bekent gemaakt, en teffens door dezelve, om niet verder te
+steijgen, terug gehouden geworden is.
+
+Dat hierop deeze en geene buuren te hulp gekoomen, mitsgaders om ’s
+heeren geweldiger gesonden geworden sijnde, ten eijnde den gevangen, die
+geensints van den zolder afkomen wilde, door desselfs assistentie magtig
+te worden, voorseijde geweldiger ook opstonds met een caffer of agt is
+toegeschooten, dewelke hem gevangen toegeroepen hebbende, dat beneeden
+koomen soude, hij gevangen nogthans in steede van dien, sulx
+volstrektelijk geweijgert heeft, teffens seggende: Ik ben een Mandhaar,
+kom gij boven tot mij, alwaaromme voorseijde ’s heeren geweldiger aan de
+bij hem sijnde caffers heeft gelast om langs de aldaar staande ladder
+door ’t luijk op dien zolder te klimmen, ’twelk bij den caffer Johanna
+ondernoomen zijnde, heeft den gevangen dien caffer, wanneer den zolder
+genadert was, met een onbewerkte kolf eener pistool zoodanigen slag
+agter op ’t hoofd toegebragt, dat denselven daar door van boven
+needervallende, op de grond voor dood is blijven leggen, werdende
+immediaat daarop door den gevangen van de zolder eene kist omlaag
+gegooijt die, ingevalle voorseijde caffer niet een oogenblik te vooren
+van onder het luijk was weggetrokken, op denselven needergekoomen zijn
+soude.
+
+Dat immiddens de burgerwagt meede te hulp gekoomen sijnde, voorts goed
+gevonden was om, ter bemagtiging van den gevangen, voorseijde zolder van
+buijten ’s huijs te beklimmen, ten welken eijnde eenige ladderen gehaald
+weesende, dezelve eerst aan de, in den brandgeevel en boven de huijs
+deur sijnde, zoldervengsteren, mitsgaders vervolgens ook aan ’t dak zijn
+geset, en teffens is gepoogt geworden om door een dier vengsteren, dan
+wel door een in ’t dak te maakene opening op dien zolder te koomen, dog
+den gevangen soo ras ontwaarde dat aan voorseijde vengsteren gebrooken
+wierd, dezelve met al wat hem voorquam van binnen bebolwerkt hebbende
+heeft, wanneer hoorde dat sig op ’t dak ijmand quam te begeeven, met een
+degen door ’t riet heen naar denzelven gestooken, en dus ook den daarop
+sijnde caffer in de voet gequetst, sulx gemelde caffer sig van daar had
+moeten retireeren. Als wanneer eijndelijk is goedgevonden, eenige gaten
+ter weederseijden van ’t voorseijde huijs in de muuren te kappen, om op
+dusdanige wijse, door middel van kaarsen gestooken op lange stokken, op
+den zolder ligtende, te ontwaaren waar sig den gevangen – die, naar dat
+beweeging hoorde, althoos op dezelven gints en herwaarts liep en, om
+sulx te beletten naar de, dien zolder naderende, menschen, soo met
+boddels, steenen en al wat hem voorquam, verwoedelijk gooide – quam te
+bevinden, ondertusschen dat den burger Daniel Rood sig met eene, met
+hagel gelaaden, pistool voorsien, voor een dier openingen stelde om den
+gevangen ontdekkende, mitsgaders onder ’t visier bekoomende, naar hem te
+schieten en dusdanig magtig te worden, waardoor den gevangen die, soo
+ras men op voorseijde zolder, invoegen voorseijde, sien konde, hem met
+een bloote deegen in de hand in een hoek agter de schoorsteen
+geretireert had, en voorts poogde sig in een aldaar sijnde gat te
+verschuijlen, dog door de hem met een stange ijser van buijten
+toegebragte stooten, daaruijt verdreeven sijnde, voorts door
+bovengemelde burger Daniel Rood is geschooten, en in desselfs
+regterhand, in dewelke hij den deegen als nog was hebbende, soo wel als
+in de regterseijde gequetst geworden, waarop den gevangen met een vaard
+door ’t, in de brandgeevel staande, vengster met den deegen in de hand
+van den zolder op de straat omlaag gesprongen sijnde, alwaar hij naar
+dat nog een treed of drie voortgeloopen was, door de caffers gevat en
+dus in handen der justitie geraakt is; als wanneer is ontwaard geworden
+dat den gevangen hem selfs in de hals gequetst had, ende sulx, soo als
+hij segt, met het voorseijde seijdgeweer, hebbende den gevangen soo dra
+in den tronk gebragt was tot ’s heeren geweldiger nog gesegt dat hij ’t
+op desselfs baas en een der leerlingen had gemunt gehad, met bijvoeging
+dat het beeter was door de justitie als door sijn baas gestraft te
+worden.
+
+Ende wijl sulk eene gevaarlijke en gepraemediteerde moorddaadige
+onderneeming, verseld met quetsing en geweldaadige resistentie van de
+dienaaren der justitie, mitsgaders de te hulp gekoomene respectievelijk
+burgerwagt, in een land daar regt en geregtigheijd naar behooren
+gehandhaaft word, geensints geduld worden mag, maar daarenteegen, tot
+afschrik van diergelijke en andere boose fielten, rigoreuselijk gestraft
+werden moet.
+
+Soo is ’t, dat den edelagtbaaren Raad van Justitie, voormeld, ten dage
+dienende, aandagtelijk geleezen en overwoogen hebbende den
+schriftelijken crimineelen eijsch ende conclusie, door den heer
+Independent Fiscaal, Pieter Reede van Oudshoorn, *ratione officii*, op
+ende jeegens den gevangen gedaan ende genoomen, en weijders geleth op
+des gevangens vrijwillige, gerecolleerde confessie, voorts op alle
+hetgeene ter saake dienende was, en haar edelagtbaarens eenigsints konde
+doen moveeren, regt doende uijt naame ende van weegens de hoogmoogende
+heeren Staaten Generaal der Vereenigde Neederlanden, mitsgaders van
+zijne doorlugtigste hoogheijd den heere Prince van Oranjen en Nassouw,
+als Erfstadhouder, Capitain, en Admiraal Generaal van de Republicq, den
+gevangen Baatjoe van Mandhaar hebben gecondemneert, gelijk haar
+edeleagtbaarens denzelven condemneeren mits deesen: om gebragt te werden
+ter plaatse alwaar men alhier gewoon is crimineele sententiën te
+executeeren, aldaar den scherpregter overgeleevert en op een kruijs
+gebonden zijnde, van onder op, sonder slag van gratie, leevendig
+geleedebraakt te werden, en dus op het kruijs te blijven leggen totdat
+den geest sal hebben gegeeven; vervolgens desselfs doode lighaam naar ’t
+buijten geregt gesleept en aldaar weeder op een rad geset sijnde, dus te
+verblijven totdat door de lugt en de vogelen des heemels sal sijn
+verteerd, met condemnatie in de kosten en misen van justitie.
+
+Aldus gedaan ende gesententieert in ’t Casteel de Goede Hoop, den 3^e^
+November 1757, mitsgaders gepronuntieert ende g’executeert den 5^e^
+daaraanvolgende.
+
+Fiat Executie, \[get.\] R. Tulbagh.
+
+\[get.\] S. Swellengrebel, Cl. Brand, Corns. Eelders, D. d’Aillij, Jn.
+Fr. Tiemmendorf, Pieter Coningh, H.J. Prehn, C.G. Wieser.
+
+\[get.\] L.S. Faber, geswoore clercq.
+
+TRANSLATION
+
+It has come to appear evident to the honourable Council of Justice of
+this government, both from the voluntary confession of Baatjoe van
+Mandhaar, bondsman of the burgher Jan Christoffel Broderik, 30 years old
+at a guess, currently their honours’ prisoner, as well as from the other
+documents, all properly verified, added to the case:
+
+That towards the evening of Friday the 21^st^ of the just passed month
+October, the prisoner, after having pretended to be ill for some days,
+refused to come down, in accordance with the order of his owner, from
+the attic of the kitchen, where he had kept the whole day, in order to
+eat something.^[^5]^ Not only was he unwilling to do this but, what is
+more, at about nine o’clock that evening, when one of the two youths who
+were contracted with the prisoner’s owner for learning the smith’s
+trade,^[^6]^ by the name of Jan Karsten, wanted to enter the aforesaid
+attic with the intention to go to sleep there, as per usual, the
+prisoner not only did not scruple to push down from above, unexpectedly
+and without even the least warning, this apprentice when he was going up
+to the attic on a ladder (and without people realising at that time that
+this was done by the prisoner, but were assuming that this youth had
+fallen down through carelessness), but also shortly thereafter, when the
+other one of these apprentices, by the name of Frederik Huijsheer,
+likewise for the aforesaid reason, wanted to come up with the ladder to
+the attic, the prisoner did not scruple to give him a push with a
+pointed piece of wood in his face in such a way that he not only got
+wounded through this, but also fell down from above.
+
+That upon this noise, the prisoner’s owner came into the kitchen and
+since, because of their alarm, he could not learn from either of these
+youths who had done that to them, he asked: “Who did this?”, and when
+this was answered by the prisoner: “Me, *baas*!”, the said Broderik
+ordered him to come down, upon which the prisoner also said: “At once”,
+without however doing so. The aforesaid Broderik again ordered this and
+added to it that if the prisoner did not come down, he would then come
+up, whereupon the prisoner had the audacity to say in Dutch that he
+should come up since it was the prisoner’s birthday, while at the same
+time adding in Portuguese that he would murder his owner, which last was
+made known through interpretation by his other slaves to the
+aforementioned Broderik who, since he did not understand
+Portuguese,^[^7]^ was already busy climbing up the ladder, but was held
+back by the slaves and prevented from ascending further.
+
+That upon this some of the neighbours came to help,^[^8]^ while at the
+same time they sent for their honours’ *geweldiger* in order to capture
+the prisoner, who did not want to come down from the attic at all, with
+his assistance. The aforesaid *geweldiger* presently rushed in with
+about eight *caffers* and called to the prisoner that he should come
+down, but he still, instead of doing this, utterly refused to, besides
+saying: “I am a Mandhaar, you come up to me”, for which reason their
+honours’ *geweldiger* ordered the *caffers* with him to climb along the
+ladder standing there to the trap-door and onto the attic. This was
+undertaken by the *caffer* Johanna who, when he came close to the attic,
+was given a blow by the prisoner on the back of his head with an
+unwrought butt-end of a pistol in such a way that he came to fall down
+from above as a result of it and remained lying for dead on the ground.
+Immediately hereafter the prisoner threw down from the attic a chest
+which would have fallen onto the aforesaid *caffer* had he not been,
+just a moment before, dragged away from under the trap-door.
+
+That in the meantime the *burgerwacht* also came to help and it was then
+agreed that, in order to capture the prisoner, the aforesaid attic had
+to be entered from outside the house, to which end some ladders were
+fetched. These were first put to the attic windows above the house door
+in the fire-gable,^[^9]^ and then also to the roof, and at the same time
+they attempted to enter the attic through one of these windows, and even
+through making an opening in the roof. However, as soon as the prisoner
+noticed that the aforesaid windows were being broken open, he swiftly
+fortified them from the inside with everything that he could find, and
+when he heard somebody coming onto the roof, he stabbed at him through
+the thatch with a sword, and in this way also wounded the *caffer* on it
+in his foot, so that the said *caffer* had to retreat from there. They
+then finally thought it fit to hack some holes into the walls on both
+sides of the aforesaid house in order to discover in this way, by
+lighting the attic through means of candles on long sticks, where the
+prisoner was who, after he had heard this noise, had started running up
+and down in the attic and, in order to prevent this \[hacking or
+entering\], was frantically throwing bottles, stones and everything that
+he could find at the people who came towards the attic. In the meantime,
+the burgher Daniel Rood, provided with a pistol loaded with shot, took
+position in front of one of these openings in order to shoot at the
+prisoner as soon as he could discover him and get him in sight, and thus
+to capture him. The prisoner, however, as soon as one could see him on
+the aforesaid attic, retreated with an unsheathed sword in his hand to a
+corner behind the chimney and then tried to hide himself in a hole
+there, but was driven out of it by being shoved from the outside with an
+iron rod, when he was shot by the aforementioned burgher Daniel Rood and
+was wounded in his right hand, in which he was then still holding the
+sword, as well as in his right side, whereupon the prisoner, at great
+speed, jumped with the sword in his hand from the attic through the
+window in the fire-gable below onto the street where, after still
+running about three paces forward, he was taken by the *caffers* and
+thus came into the hands of justice; which is when it was discovered
+that the prisoner had wounded himself in the neck and did this with, as
+he claims, the aforesaid side-arm. In addition, as soon as the prisoner
+was brought into the prison, he said to their honours’ *geweldiger* that
+it was aimed at his *baas* and one of the apprentices, while adding that
+it was better to be punished by the justice than by his *baas*.
+
+And while such a dangerous and premeditated murderous undertaking,
+accompanied with the injuring of and violent resistance to servants of
+justice, as well as those of the *burgerwacht* who came to help, cannot
+be tolerated in any way in a country where law and righteousness are
+properly upheld, but, on the contrary, must be punished rigorously as a
+deterrent to similar and other evil scoundrels.
+
+Thus it is that the honourable Council of Justice, aforementioned,
+serving today, having carefully read and considered the written
+*crimineelen eijsch ende conclusie*, drawn up and delivered for and
+against the prisoner by the honourable independent fiscaal Pieter Reede
+van Oudshoorn, by reason of his office, and further having noted the
+voluntary, verified confession of the prisoner, as well as everything
+else which served the case and could possibly have moved their honours,
+practising justice in the name and on behalf of the high and mighty
+Lords States General of the United Netherlands, as well as his most
+serene highness, the Lord Prince of Orange and Nassau, as hereditary
+Stadholder, Captain and Admiral General of the Republic, and having
+judged the prisoner, their honours are sentencing him with this: to be
+taken to the place where criminal sentences are usually executed here,
+there to be handed over to the executioner and to be tied onto a cross,
+to be broken alive from the bottom up without the *coup de grâce*, to
+remain lying thus on the cross until he has given up the ghost,
+thereafter his dead body to be dragged to the outer place of execution,
+there again to be placed upon a wheel and to remain thus until being
+consumed by the air and the birds of heaven; with sentencing to the
+costs and expenditure of justice.^[^10]^
+
+Thus done and sentenced in the Castle of Good Hope on 3 November 1757,
+as well as pronounced and executed on the 5^th\ ^thereupon.
+
+Let the execution be done, \[signed\] R. Tulbagh.
+
+\[signed\] S. Swellengrebel, Cl. Brand, Corns. Eelders, D. d’Aillij, Jn.
+Fr. Tiemmendorf, Pieter Coningh, H.J. Prehn, C.G. Wieser.
+
+\[signed\] L.S. Faber, sworn clerk.
+
+[^1]: * Modern Mandar on the south-west coast of Sulawesi. It seems
+    likely that this is the same slave as the one with this name in 1751
+    Januarij van Boegies et al.*
+
+[^2]: * The documentation in this case also includes the *eijsch,
+    *testimonies of Broderik, the *geweldiger*, Huijsheer, Baatjoe and
+    two doctors’ reports, CJ 369, ff. 502-25. *
+
+[^3]: * The *geweldiger*, Jan Jacob Doeksteen, stated that he had been
+    called to Broderik’s house because one of the slaves ‘amok maakte’
+    (was running *amok*), CJ 369, f. 511). For *amok*, see 1744 Barkat
+    van Timor, n. 3.*
+
+[^4]: * The *geweldiger* arrived at the house when called to do so by
+    Broderik, and brought with him eight *caffers*,* *whom he commanded
+    during the operation*, *CJ 369, ff. 511-15. For the *caffers* and
+    their role, see 1719 Jonas van Manado, n. 13. *
+
+[^5]:  According to other testimonies in this case, Baatjoe was sick and
+    was waiting for medication from the doctor (CJ 369 f. 507v). Baatjoe
+    stated in his interrogation that he refused to come down because he
+    heard his owner say that he was lazy and that he wanted to beat him
+    to death, CJ 369, ff. 519 and 522v.
+
+[^6]:  This is a very rare mention of artisan training among Cape Town’s
+    burgher population. It is noteworthy that the apprentices slept in
+    the attic together with the slaves but that one of them, Frederick
+    Huijsheer, is referred to in the *regtsrollen* as a burgher, CJ 39,
+    f. 118. On artisans at the Cape, see De Wet 1981: 62-76 and Worden
+    2002a.
+
+[^7]:  While by this stage Creole Portuguese was common as a contact
+    language amongst Cape slaves, knowledge of it was not so widespread
+    amongst settlers; see the discussion of this in 1763 Christina
+    Strang, n. 12.
+
+[^8]:  According to the testimony of Jan Christoffel Broderik, these
+    included the surgeon Francois van Nirop, who told Baatjoe to come
+    down in Malay, CJ 369, f. 508v.
+
+[^9]:  The fire-gable (*brandgeevel) *was the central gable above the
+    front door which prevented burning thatch from falling on people
+    escaping from the house, or from scorching the front door. It
+    usually also included windows which let light into the attic. We are
+    grateful to Antonia Malan for this information.
+
+[^10]:  The charge of attack on Baatjoe’s owner, the *burgerwacht*,
+    servants of the court and other persons, as well as the wounding of
+    two servants and the burgher Frederick Huijsheer and the sentence,
+    was recorded in the *rollen*, CJ 39, ff. 117-20. In his
+    cross-examination, Baatjoe stated that he knew he had done wrong but
+    that ‘ik kan het niet helpen, en laat het aan de groote heeren over’
+    (I cannot help it and I leave it in the hands of the important
+    lords), CJ 369, f. 522v.

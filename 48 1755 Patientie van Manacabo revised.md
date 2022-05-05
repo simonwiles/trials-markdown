@@ -1,0 +1,320 @@
+1755 PATIENTIE VAN MANACABO AND DECEMBER VAN BOEGIES
+
+*This is a case of two Cape Town slaves who stole guns and ammunition
+from their owners and ran away.*^*[^1]*^* They survived in the False Bay
+area with the aid of a slave shepherd who brought them food. They were
+seen by a Company soldier, who was subdued by their brandishing their
+guns at him, but were eventually caught when one of them decided to sell
+his coat for food in Cape Town, while the other was apprehended by the
+Company slaves of the False Bay outpost at Simon’s Bay. The case again
+demonstrates the difficulties of survival for runaway slaves in the
+(relatively) settled regions of the colony and graphically illustrates
+the obsessive fear Cape society had of armed and uncontrolled
+slaves.*^*[^2]*^* *
+
+**CJ 788** Sententiën, 1750-1755, ff. 212-19.
+
+Also Patientie van Manacabo, lijfeijgen van den burger Jan Brouwer, oud
+naar gissing 30, en December van Boegies, slaaf van den burger Frederick
+Simon Plaagman, oud omtrent 26 jaaren, thans ’s heeren gevangens,
+buijten pijn ofte dwang van banden, van ijsers, dan wel de minste
+bedreijging van dien, vrijwillig hebben beleeden, ende het den
+edeleagtbaare Raad van Justitie deeses gouvernements ook volkoomen is
+gebleeken:
+
+Dat nu omtrent drie maanden geleeden, de gevangens met malkander
+afspraak genoomen hebbende omme van hunne meesters te gaan op drossen,
+den tweeden gevangen van sijn lijfheer een kromme sabel van de solder
+gestoolen en sig daarmeede des avonds, omtrent neegen uuren, naar ’t
+huijs van des eerste gevangens lijfheer, Jan Brouwer, en aldaar bij den
+eersten gevangen in de combuijs vervoegt heeft, alwaar den 2^e^ gevangen
+so lange is verbleeven totdat hij Brouwer en sijn knegt waaren gaan
+slaapen, als wanneer den 1^e^ gevangen uijt de kamer, waarin sijn baas
+neevens de knegt te slaapen lag, en waarvan de deur open stond, heeft
+gestoolen: een snaphaan, twee pistoolen, en vijf scherpe pattroonen,
+mitsgaders uijt de combuijs een pattroontas, waarmeede sij gevangens,
+naar dat alvoorens in de combuijs jder een pistool met los kruijt
+geladen hadden, des nagts hunne vlugt ondernoomen hebben, dragende den
+1^e^ gevangen den snaphaan, d’ eene pistool en de pattroontas,
+mitsgaders den 2^e^ gevangen de andere pistool en den houwer, en dus die
+nagt door gemarcheert zijnde, sijn sij met den dag omtrent Baas Harmens
+Craal, en ’s nagts daaraanvolgende in de Baaij Fals gekoomen, alwaar sig
+omtrent een maand lang aan ’t gebergte opgehouden hebben, hun, volgens
+haar voorgeeven, erneerende met kost, die den schapewagter van de burger
+Hendrik Feerssen, April genaamt, en aan wien den 1^e^ gevangen kennis
+had, hun uijt sijn knapsack nu en dan soude hebben gegeeven, en
+denwelken vervolgens ook, naar dat een kogel van een der bij sig
+hebbende scherpe pattroonen aan vier stucken gekapt en den snaphaan
+daarmeede geladen hadde, denselven, terwijl door de gevangens insgelijx
+jder een pistool met scherp geladen wierd, ondertusschen afgeschooten en
+weederom soude geladen hebben.
+
+Dat naar verloop van eenigen tijd, dan wel in ’t begin der gepasseerden
+maand October, de gevangens sig op seekeren avond met den donker aan ’t
+hangen van ’t gebergte bevonden, hebbende deselve door den, in de Baaij
+Fals bescheijdenen, soldaat Barent Janssen, die naar de paarden was gaan
+sien, ontdeckt sijn geworden, denwelken, als sustineerende dat sij
+slaven van den burger Jan Munnick waaren, aan deselve, wanneer hun op
+een tree, vijf à ses, genadert was, toegeroepen en gevraagt heeft of sij
+geen paarden gesien hadden, waarop sig gevangens, die hem Janssen als
+nog niet gesien hadden, op dat toeroepen hun schielijk omgekeert en
+teffens van hunne sijde jder een pistool afgehaalt, mitsgaders opstonts,
+met uijtgestreckte armen en overgehaalde haanen, dier pistoolen op hem
+Janssen, onder ’t seggen teegens denselven: Neen, wij hebben geen
+paarden gesien, aangelegt hebben, ende hij Barend Janssen, die van geen
+geweer versien was en voorts gewaar wierd dat een der gevangens nog een
+snaphaan, en den anderen ook nog iets, hetgeen hij, vermits de
+donkerheijd, niet wel verkennen konde, op sijn schouder had, door die
+onverwagte en gevaarlijke vertooning, seer verschrickt werdende, sijde
+hij alsdoen teegens de gevangens: Paaij, doet mij geen quaad, ik soek
+jouw niet, want ik heb paarden verlooren, waarop de gevangens dan ook,
+naar aan hem Janssen geantwoord te hebben: Als gij paarden soekt, so is
+het goet, komt dan niet nader, maar gaat na agter en laat ons niet sien
+dat gij naar de Baaij gaat, de op hem aangelegde pistoolen, naar eenige
+onderlinge, en hem Janssen onverstaanbaare, woordewisseling, langs hunne
+sijden hebben laaten sacken, waarop hij Janssen so voorts eenige wijnige
+treeden van hun af naar agteren is gegaan, begeevende sig egter, wanneer
+de gevangens, die hun weg naar de Baaij vervolgden, uijt het gesigt was,
+insgelijx naar de Baaij Fals, als wanneer hiervan aan den posthouder
+verslag heeft gedaan, terwijl de gevangens inmiddels hun weg meede naar
+de Baaij Fals hebben genoomen.
+
+Dat den 1^e^ gevangen daarop, naar verloop van een dag of vier, te raade
+geworden sijnde sig Caabwarts \[*sic*\] te begeeven om sijn duffeltje te
+verkoopen en daarvoor kost meede te brengen, aan den 2^e^ gevangen den
+snaphaan, de eene pistool en de pattroontas heeft overgegeeven, en van
+denselven af en naar de Caab is gegaan, dog onderweegs inkeer krijgende,
+is denselven niet weeder terug gekeert, maar sig naar sijn lijfheer
+begeeven, door denwelken hij in handen der justitie is overgeleevert
+geworden.
+
+Dat den schapewagter van voormelde Feerssen, April genaamt, op Saturdag
+den 8^e^ der afgeweekenen maand November ’s agtermiddags aan den voet
+van ’t gebergte gekomen sijnde, den 2^e^ gevangen aldaar slaapende heeft
+gevonden met een pistool in zijn linker arm, mitsgaders ter sijde van
+hem in een gat onder de klippen een snaphaan, een pistool, een plamper
+en een pattroontas, welk een en ander hij April, als denkende dat het
+een drosser was, stilletjes heeft weggenoomen, hetgeen den 2^e^
+gevangen, die ondertusschen wacker wierd, ook heeft toegelaten met
+beding dat hem wat kost geeven soude, vermits grooten honger had, en dat
+hij April hem 2^e^ gevangen daarop gesegt hebbende, dat geen kost bij
+sig hadde, maar dat hij ’s avonds aan sijn meesters huijs in de Baaij
+Fals moeste koomen, dat hij hem dan wat eeten zoude geeven, is den 2^e^
+gevangen hierop, met de eene pistool gewaapent, dien eijgensten avond
+aldaar verscheenen, als wanneer hij April hem 2^e^ gevangen in de
+combuijs ook wat heeft gegeeven, dog kort daaraan twee slaven van den
+posthouder dier Baaij, op de gedaane waarschouwing van geciteerde April,
+aldaar gekoomen sijnde, is den 2^e^ gevangen door deselve, met behulp
+van eevengemelde April, gevangen genoomen en dus meede in handen der
+justitie geraakt.
+
+Ende gemerkt sulk eene ten hoogsten gevaarlijke aufugie en gepleegd
+publicq geweld, in een land daar de justitie geoeffent werd, niet kan
+nog mag gedult, maar in teegendeel, ten spiegel en afschrik van andere
+diergelijke booswigten, op het rigoreuste moet gestraft werden.
+
+So is ’t, dat den edelagtbaaren Raad van Justitie, voornoemd, ten dage
+dienende, met nadruk geleesen en overwogen hebbende den schriftelijken
+crimineelen eijsch ende conclusie door den heer Independent Fiscaal,
+Pieter Reede van Oudshoorn, *ratione officii*, op ende jeegens de
+gevangens gedaan en genoomen, en wijders geleth op derselver vrijwillige
+confessiën en andere stucken daarneevens gevoegt, alle in judicio
+behoorlijk gerecolleert, voorts op alle hetgeene ter saake dienende was
+en haar edelagtbaarens eenigsints konde doen moveeren, regt doende uijt
+naame ende van weegens de hoogmoogende heeren Staaten Generaal der
+Vereenigde Neederlanden, mitsgaders van sijne doorlugtigste hoogheijd,
+den heere Prince van Oranjen en Nassouw, als Erfstadhouder, Capitain, en
+Admiraal Generaal van de Republicq, beijde de gevangens, Patientie van
+Manacabo en December van Boegies, hebben gecondemneert, gelijk haar
+edelagtbaarens deselve condemneeren mits deesen: om gebragt te werden
+ter plaatse alwaar men alhier gewoon is crimineele sententiën te
+executeeren, aldaar den scherpregter overgeleevert en aan een paal
+gebonden sijnde, met roeden op de bloote rugge strengelijk gegeesselt,
+en daarop gebrandmerkt te werden, voorts jder voor den tijd van thien
+agtereenvolgende jaaren in de ketting geklonken weesende, dus haar
+lijfheeren weederom te huijs gesonden te werden, mits deselve betaalende
+de kosten en misen van justitie, ontseggende den Raad den verderen ofte
+anders gedaanen eijsch van den heer Officier.
+
+Aldus gedaan en gesententieert in ’t Casteel de Goede Hoop, den 4^e^
+December 1755, mitsgaders gepronuncieert ende g’executeert den 6^e^
+daaraanvolgende.
+
+Fiat Executie, \[get.\] R. Tulbagh.
+
+\[get.\] S. Swellengrebel, R.S. Allemann, Ns. Heijning, Cl. Brand,
+Corns. Eelders, D. d’Aillij, Jn. Raeck, P. Artoijs, Hk. vn. dr. Heijde.
+
+Mij present, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
+
+TRANSLATION
+
+Since Patientie van Manacabo,^[^3]^ bondsman of the burgher Jan Brouwer,
+30 \[years\] old at a guess, and December van Bougies, slave of the
+burgher Frederick Simon Plaagman, about 26 years old, currently their
+honours’ prisoners, voluntarily confessed, without torture or coercion
+of bonds, of irons, or even the least threat of suchlike, and since it
+has also appeared evident to the honourable Council of Justice of this
+government:
+
+That about three months ago now, when the prisoners agreed with each
+other to desert from their masters, the second prisoner stole from his
+owner a crooked sabre from the attic and, at about nine o’clock at
+night, went with it to the house of the first prisoner’s owner, Jan
+Brouwer, where he joined the first prisoner in the kitchen, where the
+second prisoner remained until Brouwer and his *knecht* went to sleep,
+which is when the first prisoner stole from the room in which his *baas*
+and the *knecht* were lying asleep and of which the door stood open, a
+musket, two pistols, and five shot cartridges, and likewise from the
+kitchen a cartridge case; with which the prisoners, after they each had
+first loaded a pistol with loose gunpowder, undertook their flight
+during the night; the first prisoner carrying the musket, one pistol and
+the cartridge case, and the second prisoner the other pistol and the
+broadsword, marching thus through the night, reaching Baas Harmens
+Craal^[^4]^ by daylight and, during the following night, arrived at
+Baaij Fals.^[^5]^ At which place they stayed for about a month in the
+mountains, sustaining themselves, according to them, with food which the
+shepherd of the burgher Hendrik Feerssen, named April, and who was known
+to the first prisoner, would occasionally give them from his knapsack,
+and who also later, after they had chopped a bullet of one of the spent
+cartridges they had with them into four parts, loaded the musket with
+it, discharged it, while each of the prisoners was likewise loading a
+pistol with cartridges, and then loaded it once more.
+
+That after some time, on a certain evening at nightfall, in fact at the
+beginning of the past month October, when the prisoners were on the
+slopes of the mountain, they were discovered by the soldier assigned to
+Baaij Fals, Barent Janssen,^[^6]^ who was looking for horses, and who,
+thinking that they were the slaves of the burgher Jan Munnick, called
+out to them when he got within about five or six paces of them, and
+asked them if they had seen any horses; at which they suddenly turned
+around, and simultaneously each taking from his side a pistol, and at
+once, with stretched-out arms and cocked triggers, aimed these pistols
+at Janssen, while saying to him: “No, we have not seen any horses”. And
+so Barend Janssen, because of this unexpected and dangerous display, and
+because he was not equipped with any gun and, moreover, noticed that one
+of the prisoners had a musket as well, and the other one also something
+else on his shoulder, which he could not see properly because of the
+darkness, got very frightened. He then said to the prisoners:
+“*Paaij*,^[^7]^ do not harm me, I am not looking for you, because I have
+lost horses”, to which the prisoners then, after having told Janssen:
+“If you are looking for horses, it is fine, don’t come closer, but go
+backwards and let us not see you going to the Baaij” and, after having
+exchanged some words among themselves which Janssen did not understand;
+they dropped to their sides the pistols aimed at him. Upon this Janssen
+went backwards a couple of paces from them; however, when the prisoners,
+who were continuing on their way to the Baaij, were out of sight, he too
+set out to Baaij Fals where he gave a report of this to the postholder,
+while the prisoners were meanwhile also on their way to Baaij Fals.
+
+That later, after about four days, the first prisoner, since he thought
+it fit to set out to the Cape in order to sell his *duffeltje*^[^8]^ and
+bring back food for it, handed over to the second prisoner the musket,
+one pistol and the cartridge case and went to the Cape. However, along
+the way he repented and did not return again, but proceeded to his
+owner, by whom he was delivered into the hands of justice.
+
+That on Saturday the 8^th^ of the past month November, the shepherd of
+the aforesaid Feerssen, named April, came to the foot of the mountains
+and found the second prisoner asleep there with a pistol in his left
+arm, and also under the stones in a hole next to him, a musket, a
+pistol, a ramrod and a cartridge case, which April, thinking that he was
+a deserter, silently took it all away, which the second prisoner, who
+had woken up in the meantime, also allowed, on condition that he would
+give him some food as he was very hungry. April then told the second
+prisoner that he did not have any food with him, but that he should come
+in the evening to his master’s house in Baaij Fals, that he would then
+give him something to eat. Upon this, the second prisoner, armed with
+the one pistol, appeared there that very same evening, which is when
+April also gave him something in the kitchen. Yet, shortly hereafter,
+two slaves of the postholder of the Baaij came there, because of the
+warning given by the said April, and the second prisoner was captured by
+them and with the help of the aforementioned April, and thus also came
+into the hands of justice.
+
+And since such a highly perilous escape and perpetrated public violence
+cannot be, nor should be, tolerated in a country where justice is
+practised but, on the contrary, must be punished most rigorously as an
+example and deterrent to other similarly inclined malefactors.
+
+Thus it is, that the honourable Council of Justice, aforementioned,
+serving today, having read and considered with attention the written
+*crimineelen eijsch ende conclusie* drawn up and delivered for and
+against the prisoners by the honourable independent fiscal, Pieter Reede
+van Oudshoorn, by reason of his office, and having noted their
+voluntarily given confessions and the other evidence added to it,
+everything properly verified in court, and further everything else which
+could serve the case and could have moved their honours in any way,
+practising justice in the name and on behalf of the high and mighty
+Lords States General of the United Netherlands, as well as his most
+serene highness, the Lord Prince of Orange and Nassau, as heretidary
+Stadtholder, Captain and Admiral General of the Republic, and having
+judged both the prisoners Patientie van Manacabo and December van
+Boegies, their honours are sentencing them with this: to be taken to the
+place where criminal sentences are usually executed here, there to be
+handed over to the executioner, to be tied to a stake, to be severely
+scourged with rods on their bare backs, thereupon to be branded, further
+each to be riveted in chains for a period of ten consecutive years, thus
+to be sent back home to their owners, provided they pay the costs and
+expenditure of justice; with the Council denying the further or
+differently drawn up *eijsch* of the honourable Officer.^[^9]^
+
+Thus done and sentenced in the Castle of Good Hope on 4 December 1755,
+as also pronounced and executed on the 6^th^ thereupon.
+
+Let the execution be done, \[signed\] R. Tulbagh.
+
+\[signed\] S. Swellengrebel, R.S. Allemann, Ns. Heijning, Cl. Brand,
+Corns. Eelders, D. d’Aillij, Jn. Raeck, P. Artoijs, Hk. vn. dr. Heijde.
+
+In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
+
+[^1]: * Slaves were prohibited from carrying guns, see 1742 Jan Hendrik
+    Hop, n. 1. *
+
+[^2]: * Other documentation for the case included the *eijsch* and
+    testimonies of Patientie van Mannacabo \[*sic*\], December van
+    Boegies, Barend Janssen van Steenderen and April van Palembang, CJ
+    365, ff. 694-719. *
+
+[^3]:  An alternative spelling for Menengkabo (now Menangkabu) in
+    Sumatra (Bradlow and Cairns 1978: 128).
+
+[^4]:  A well-known landmark at the Cape, this Company outpost was close
+    to Sandvlei, not far from the farm Zwaanswijk (Koeman 1955: 263;
+    Sleigh 1993: 264-65).
+
+[^5]:  This seems to refer not to the region of False Bay, but more
+    narrowly to Simon’s Bay, where the VOC had had an outpost since 1743
+    (Sleigh 1993: 302-3).
+
+[^6]:  Recorded in the *scheepsoldijboek *of the vessel
+    Nieuwvijvervreugd as Bernhard \[*sic*\] Janssen van Steenderen. He
+    had arrived in 1754 and was one of the 38 soldiers based ‘agter de
+    Steenbergen in de bhaaij fals’ (behind the Steenbergen at Baaij
+    Fals), VOC 5203, f. 208. He stayed at the Cape until 1759 when he
+    went to Colombo, where he worked for the VOC until his death in
+    1765, VOC 13071, f. 183.
+
+[^7]:  An interesting word whose origins are disputed. Both *paai* and
+    *maai* appear regularly in eighteenth-century Cape texts, derived
+    from the Portuguese for ‘father’ and ‘mother’, used as a respectful
+    form of address to an older person, but at the Cape specifically
+    older slaves (and sometimes for Khoi). Scholtz, however, argues that
+    at least *paai* is not a loan from Portuguese, claiming it
+    ultimately derived from Dutch (Scholtz 1965: 183-84 and, for further
+    examples from contemporary Cape texts, Scholtz 1972: 153).
+
+[^8]:  A thick, woollen coat, also called a *buffeltje* (Gawronski 1996:
+    202).
+
+[^9]:  Patientie van Manacabo and December van Boegies were charged with
+    running away, theft of guns and ‘publicq geweld’ (public violence).
+    They claimed that they had not meant to cause mischief by their
+    possession of guns but had only shot wildlife from time to time for
+    subsistence. The sentence followed that recommended in the *eijsch*,
+    CJ 37, ff. 104-6. See also Heese 1994: 79-80 for a discussion of
+    this case as an example of the Council of Justice taking mitigating
+    circumstances into account: if these slaves had used their weapons
+    or had not willingly surrendered, they would have received the death
+    penalty.

@@ -1,0 +1,398 @@
+1.  **JURGEN SCHOLTS ET AL.**
+
+*In a reversal of many of the cases that came to the Council of Justice,
+this one deals with four Company woodcutters who were caught stealing
+sheep from the Company’s corral at Groote Schuur by slaves, one of whom
+they killed.*^*[^1]*^* The case shows that low-ranking Company employees
+were as desperate for food as other members of the colony’s underclasses
+and could be equally unruly and opportunistic. *
+
+**CJ 786** Sententiën, 1736-1743, ff. 234-241.
+
+Nademaal uijt de beantwoorde vraagpointen in de boeijen ofte pijn camer
+door den houtkapper Jurgen Scholts van Dantsig, oud 26, mitsgaders uijt
+de vrijwillige confessiën van de meede houtkappers, Willem Brock van
+Bockholt, oud …^[^2]^, Christoffel Coelmeijer van Paterborn, oud 28 en
+Christoffel Hoorneft van Roosdorp bij Darmstad, oud 32 jaaren, welke
+confessiën liber, vrij en buijten pijn ofte dwang van banden, van
+ijsers, dan wel de minste bedreijging van dien, zijn gerecolleert, alle
+vier thans ’s heeren gevangens, en andere stucken ten processe
+gefourneert, evidentelijk is koomen te blijken:
+
+Dat zij gevangens op den 22^e^ der gepasseerde maand Januarij, in de
+voornagt, met heldere maaneschijn, van haare bescheijdene post, het
+Paradijs genaamt, volgens afspraak met den anderen genoomen, sijn gegaan
+naar de schuur der edele Compagnie, in welkers craal den eersten en
+tweeden gevangens Jurgen Scholts en Willem Brock, ieder met een touw
+voorsien, over de muur gesprongen sijn om schaapen te steelen en die
+vervolgens over te geeven aan haar buijten staande mackers, te weeten
+den derden en vierden gevangens Christoffel Coelmeijer en Christoffel
+Hoorneft, dewelke, nietteegenstaande door eevengenoemde Willem Brock en
+Jurgen Scholts overtuijgt worden, en selfs malkanderen over en weer daar
+meede beschuldigen, mitsgaders hetselve ook uijt andere stucken teegens
+haarlieden ingewonnen consteert, egter hartnekkig ontkennen bij die
+craal te sijn blijven staan, ofte daarna gewagt te hebben, voorgeevende
+den derden gevangen Christoffel Coelmeijer, die op haarlieden post nog
+sijnde, desselfs touw aan den tweeden gevangen overgegeeven had, dat soo
+ras als hij bij aannadering van de schuur gedagte Willem Brock hoorde
+spreeken van aldaar schaapen te gaan steelen, hij sijne mackers
+verlaaten en naar sijne bescheijdene plaats is te rug geloopen, en den
+vierden gevangen Christoffel Hoorneft, dog meede teegens de waarheijt,
+dat soo als meergemelte Willem Brock en Jurgen Scholts in de craal van
+de schuur sprongen, hij, die onderweegs van haarlieden gehoort en
+vernoomen had dat zij van meeninge waaren aldaar schaapen te gaan
+steelen, deselve verlaaten en sig daarvandaan, als daar meede niet
+willende te doen hebben, te meer dewijl een seer hand had, begeeven
+heeft, laatende als doen eevengenoemde Christoffel Coelmeijer ter seijde
+van de craal staan.
+
+Dat de gesegde Jurgen Scholts en Willem Brock bij hun aankomst in
+meergemelde craal ieder ten eersten naar een schaap gegreepen hebben om
+hetselve, gebonden hebbende, aan hunne mackers over de muur te gooijen;
+dog beijden, soo als sulx in ’t werk wouden stellen, afsonderlijk
+aengedaan geworden sijnde door twee slaave jongens in die craal
+verborgen, om op degeene die meermaals daar schaapen uijtgestoolen
+hadden te passen, heeft den eersten gevangen Jurgen Scholts den jongen
+Coridon, die hem tragtede vast te houden en hard om hulp riep, met sijn
+mes soodanig eene swaare snee dwars over desselfs buijk gegeeven, dat
+desselfs ingewanden ten eersten buijten de wond schooten en hij
+dienvolgens in onmagt op de grond quam neer te vallen, sijnde ook daags
+daar naar in den voormiddag aan die quetsuur gestorven. Dat terwijl sulx
+voorviel, den tweeden gevangen Willem Brock, om ook ontslaagen te kunnen
+werden, van den anderen slaaf, Paris genaamt, die insgelijx sterk om
+hulp was roepende, dien jongen eenige ligte quetsuuren met een mes in de
+borst heeft toegebragt, op ’t welke hij Paris, tot redding van sijn
+leeven, hem Willem Brock met een houwertje op ’t hooft en op de hand
+gekapt heeft, wanneer sij beijden weederom aan malkander geraakt sijn,
+en wierd door den tweeden gevangen, alstoen voor soo veel in hem was,
+nog getragt den meergemelde slaaf Paris te quetsen, dog, door dien sij
+elkander bij ’t lijf vast hielden en hij Willem Brock reets op de regter
+hand gequest sijnde, daar meede wijnig konde uijtvoeren, waaren de
+steeken die hij dien slaaf in de rugge gaf van geen belang, ende ten
+aansien gedagte slaaf Paris met om hulp roepen aanhield, heeft hij
+tweeden gevangen denselven meede verlaaten, begeevende sig met
+agterlating van desselfs mes en meede genoomen touwen over de muur
+buijten de craal, waaruijt sijn makker, den eersten gevangen Jurgen
+Scholts, reets over ’t hek gevlugt was, alle ’twelke hij Jurgen Scholts,
+schoon door alle de gevangens en de twee boovengenoemde jongens ten
+vollen overtuijgt, nogtans hartneckig blijft ontkennen, hebbende selfs
+bij sijne gegeevene eerste responsiven genegeert in meergemelte craal
+geweest te zijn, en niet als *ad torturam* geconfesseert sig met den
+tweeden gevangen daar inne begeeven te hebben, sijnde voor ’t overige,
+voor soo veel hem aangaat, bij de negative blijven persisteeren, met
+bijvoeging dat den tweede gevangen den jongen Coridon gequest heeft maar
+hij niet, daar egter dien jonge Coridon bij confrontatie hem Jurgen
+Scholts daar meede beschuldigt heeft, en daarop is koomen te sterven.
+
+Dat naar dat den eersten en tweede gevangens uijt de craal gevlugt
+waaren, den eersten, te weeten Jurgen Scholts, naar ’t Nieuwland, soo
+als hij voorgeeft, is gegaan, begeevende sig Willem Brock naar sijne
+bescheijdene post, het Paradijs, terugge, alwaer den derden en vierden
+gevangens Christoffel Coelmeijer en Christoffel Hoorneft, die al een uur
+bevoorens gereverteert waaren, vond, en is hij Willem Brock vervolgens
+in de cagie van den laatstengenoemde door Christoffel Coelmeijer
+verbonden, hebbende sij gevangens daar naar bij de te rugkomst van den
+eersten gevangen, ’tgeen met ’t aanbreeken van den dag is geschied, met
+den anderen beslooten dat, tot bedecking van ’t feijt, den tweeden
+gevangen Willem Brock seggen soude dat, hij houtkappende, de bijl uijt
+de steel was gesprongen en vervolgens needergevallen op sijn hooft en
+hand, ’t welk door hem ook dus aan de baas van ’t Paradijs verteld
+wierd, die hem daarop naar ’t hospitaal sond om geneesen te worden, ter
+welker tijd hem Willem Brock, op sijn afvragingen, door den eersten
+gevangen een bloot mes sonder punt wierd overgegeeven. Koomende wijders
+uijt de depositiën van de knegt en van een slaaf van den burger Jan
+Laurensz Bestbier nog te blijken dat den derden en vierden gevangens
+Christoffel Coelmeijer en Christoffel Hoorneft, eenigen tijd bevoorens
+in ’t openveld uijt de troep schaapen van gemelde Jan Laurensz Bestbier
+agt stux weggedreeven hadden, waarvan ses van selfs bij de troep terugge
+gekoomen sijn, en de twee andere door haar gevangens in de bosjes
+gestooken weesende, hebben zij deselve aldaar geslagt.
+
+Ende ten aansien sulke enorme moord en gruweldaaden, in een land daar
+regt en justitie geoeffent word, sonder oogluijkinge ten afschrik van
+diergelijke boosdoenders exemplairlijk moeten gestraft werden.
+
+Soo is het, dat den edelagtbaare Raad van Justitie des Casteels de Goede
+Hoop, hebbende met rijpheijd van raad geleesen en geresumeert den
+schriftelijken crimineelen eijsch door den ondercoopman, sieur Johannes
+Needer, als pro interim het Fiscaals ampt waarneemende, op ende jeegens
+de gevangens gedaan ende genoomen, ende daar neevens serieuslijk
+overwoogen derselver, soo vrijwilige als in de boeijen gegeevene,
+confessiën, met de overige stucken en documenten in juditio
+geproduceert, voorts geconsidereert sijnde alles wat ter saake dienende
+is en haar Edel Agtbaarheedens kan doen moveeren, doende regt uijt naame
+ende van weegens de hooghmoogende Heeren Staaten Generaal der vrije
+Vereenigde Neederlanden, alle vier de gevangens hebben gecondemneert,
+gelijk haar Edel Agtbaarheedens deselve condemneeren mits deesen: om
+gebragt te werden ter plaatse alwaar men alhier gewoon is crimineele
+sententiën te executeeren, en aldaar den scherprechter overgeleevert
+sijnde, de twee eerste, als Jurgen Scholts en Willem Brock, soodanig met
+de coorde aan de galg gestraft te werden datter de dood naar volgt, en
+haare doode lighaamen vervolgens vervoert sijnde naar ’t buijten geregt,
+aldaar weederom aan de galg te werden opgehangen ten proije van de lugt
+en voogelen des heemels, voorts de twee laatste gevangens Christoffel
+Coelmeijer en Christoffel Hoorneft door den scherpregter met roeden op
+de bloote ruggen strengelijk gegeeselt en daar naar gebrandmerkt sijnde,
+in de ketting geslaagen te werden, om daar inne den tijd van thien
+jaaren voor niet aan ’s edele Compagnies gemeene werken te arbeijden,
+met ontsegging van ’t verdere teegens hun geëijschte, condemneerende den
+Raad wijders alle de gevangens in de costen en mise van justitie.
+
+Aldus gedaan ende gesententieert in ’t Casteel de Goede Hoop, den 5^e^
+Maart 1739, mitsgaders gepronuntieert ende geëxecuteert den 7^e^
+daaraanvolgende.
+
+Fiat Executie, \[get.\] D. v.d. Henghel.
+
+\[get.\] H. Swellengrebel, J.T. Rhenius, Ns. Heijning, Cl. Brand, Js.
+Möller, Mnus. Bergh, Corns. Eelders, P. R. de Savoije.
+
+Mij present, \[get.\] Js. de Grandpreez, secretaris.
+
+**CJ 343** Criminele Process Stukken, 1739, ff. 123r-v.
+
+Relaas gegeven, ter requisitie van den ondercoopman, sieur Johannes
+Needer, als *pro interim *het Fiscaals ampt waarneemende, door den slaaf
+Coridon, toebehoorende den baas van de schuur, Gibbelaar, sijnde van de
+volgende inhoud:
+
+Dat hij relatant, beneevens den slaaff Paris, sijn lijfheer meede
+toebehoorende, belast geworden sijnde dat zij in de voorleedene nagt in
+de craal souden oppassen, door dien al ettelijke rijsen des nagts daar
+uijt schaapen gestoolen waaren geworden, zij beijde daarom die nagt in
+de craal de wagt gehouden hebben, en terwijl aldaar waaren, sijn om
+twaalf uuren daar ingekoomen twee Europeanen, wanneer hij relatant een
+van die Duijtschers, soo als naar een schaap greep, om ’t lijff
+aanvattede, en denselven op de grond willende smijten, snee die
+Europeaen hem relatant met een mes dwars door sijn buijk heen, en daarop
+in onmagt vallende, is dien Europeaen weggeloopen, sijnde toen die twee
+Duijtschers in de craal quaamen nog twee andere voor de craal geweest.
+
+Aldus gerelateerd aan ’s edele Compagnies schuur, den 23^e^ Januarij
+1739, voor d’ edele J.T. Rhenius en P.R. de Savoije, leeden uijt den
+edelagtbare Raad van Justitie des Casteels de Goede Hoop, die de minute
+deeses, beneevens den relatant ende mij, secretaris, meede behoorlijk
+hebben onderteekent.
+
+’Twelk ik getuijge, \[get.\] Js. de Grandpreez, secretaris.
+
+TRANSLATION
+
+Since, from the answered questions in the torture or pain room^[^3]^ by
+the woodcutter Jurgen Scholts of Dantsig, 26 years old, as well as from
+the voluntary confessions of his fellow woodcutters Willem Brock of
+Bockholt, ... years old,^[^4]^ Christoffel Coelmeijer of Paterborn, 28
+years old, and Christoffel Hoorneft of Roosdorp, 32 years old^[^5]^ –
+which confessions were verified voluntarily, willingly and without any
+torture or coercion of bonds, of irons, or even the least threat of
+suchlike – all four currently their honours’ prisoners, and from other
+papers furnished in the case, it has appeared evident:
+
+That in clear moonlight, early on in the night of the 22^nd^ of last
+January, the prisoners, in accordance with an agreement they had reached
+with one another, left their allotted post, by name of Paradijs, to go
+to *De Schuur*^[^6]^ of the honourable Company, where the first and
+second prisoners, Jurgen Scholts and Willem Brock, each armed with a
+rope, jumped into the Company’s corral over the wall in order to steal
+sheep, which they were to hand over to their comrades on the other side,
+namely the third and fourth prisoners, Christoffel Coelmeijer and
+Christoffel Hoorneft. These two, however – in spite of being convinced
+otherwise by the aforementioned Willem Brock and Jurgen Scholts, and
+even mutually accuse each other of doing it, and which has also been
+determined from other evidence collected against them – vigorously deny
+standing by the corral or having waited outside it. The third prisoner,
+Christoffel Coelmeijer, claims that, while still on their post, he had
+given his rope to the second prisoner and that, as soon as they were
+coming close to *De Schuur* and hearing the said Willem Brock speaking
+about stealing sheep there, he left his comrades and walked back to his
+assigned post. The fourth prisoner, Christoffel Hoorneft, also claims,
+equally against the truth, that when the aforementioned Willem Brock and
+Jurgen Scholts jumped into the corral of *De Schuur *he, having heard
+and learned on the way from them that they were intending to steel
+sheep, left them and went from there since he did not want to have
+anything to do with it, even more so as he had a sore hand; leaving at
+that time the said Christoffel Coelmeijer standing at the side of the
+corral.
+
+That on their arrival at the aforementioned corral, the said Jurgen
+Scholts and Willem Brock immediately tried to each get hold of a sheep
+in order to tie them up and throw them over the wall to their comrades;
+but, when they wanted to do this, both were tackled by two slaves, who
+were hiding in the corral to watch out for those who have often stolen
+sheep from there. The first prisoner, Jurgen Scholts, inflicted such a
+deep cut on the abdomen of the slave Coridon, who was trying to pin him
+down and was loudly calling for help, with his knife that his intestines
+immediately gushed from the wound, so that, as result of this, he fell
+to the ground helplessly; dying early in the afternoon of the following
+day from this wound. That while this was happening, the second prisoner,
+Willem Brock, likewise in order to get rid of the other slave, named
+Paris, who was calling vigorously for help, lightly wounded this slave
+in the chest with his knife. Upon which Paris, in order to save his own
+life, stabbed Willem Brock with a small sword on his head and hand,
+whereupon they both wrestled with each other again, \[while\] the second
+prisoner, insofar as he had any power left, tried to wound the slave
+Paris. Yet, since they were holding each other by the body, and since
+Willem Brock was already wounded on the right hand, with which he could
+not do much, the stabs which he was dealing the slave to his back were
+of no consequence and, since the said slave Paris continued calling for
+help, the second prisoner likewise left over the wall, thereby exiting
+the corral, from which his comrade, the first prisoner Jurgen Scholts,
+had already fled over the gate, leaving behind him his knife and the
+ropes they had brought with them. All of which Jurgen Scholts, although
+\[we have been\] fully convinced \[of the contrary\] by all the
+prisoners and the two aforementioned slaves, nonetheless stubbornly
+persists in denying; even denying, during his first interrogation, ever
+having been present in the aforementioned corral, while he did not
+confess to having entered it with the second prisoner until under
+torture; but persists, as far as he is concerned, in denying the rest,
+while adding that the second prisoner, not he, had wounded Coridon – yet
+when this slave Coridon was confronted with Jurgen Scholts, he too
+accused him of it; after which he died.
+
+That after the first and second prisoners had fled from the corral, the
+first, namely Jurgen Scholts, went (as he claims) to Nieuwland, while
+Willem Brock returned to his allotted post at Paradijs, where he found
+the third and fourth prisoners, Christoffel Coelmeijer and Christoffel
+Hoorneft, who had already returned there an hour before, and where he,
+Willem Brock, was then bandaged in his sleeping place by Christoffel
+Coelmeijer. Later, when the first prisoner returned, which happened at
+the break of day, the prisoners decided together that, in order to cover
+up the deed, the second prisoner Willem Brock would say that the hatchet
+came off the helve while he was chopping wood and then fell on his head
+and hand. Which is what he then also told the chief of Paradijs, who
+sent him to the hospital to recuperate, on which occasion the first
+prisoner gave Willem Brock, on his request, an unsheathed knife without
+a tip. It has further come to light, from the depositions of the
+*knecht* and a slave of the burgher Jan Laurensz Bestbier, that the
+third and fourth prisoners Christoffel Coelmeijer and Christoffel
+Hoorneft had, some time before, driven away in the open pasturage eight
+sheep from the flock of the said Jan Laurensz Bestbier, of which six
+returned to the flock of their own accord, while the other two were
+slaughtered in the bushes by the prisoners, after they had first killed
+them there.
+
+And considering that such outrageously murderous and abominable acts
+must, in a country where law and justice are practised, be punished
+exemplarily, without connivance, as a deterrent to similar malefactors.
+
+Thus it is, that the honourable Council of Justice of the Castle of Good
+Hope, having seen and read, with carefully considered counsel, the
+written *crimineelen eijsch ende conclusie* drawn up and delivered for
+and against the prisoners by the *onderkoopman*,* Sieur* Johannes
+Needer, acting as fiscal for the interim, and, in addition, having
+seriously considered the prisoners’ confessions, both those given
+voluntarily and under torture, together with the other documents and
+evidence produced in court, moreover, having considered everything which
+served this case and could have moved their honours, practising justice
+in the name and on behalf of the high and mighty Lords States General of
+the free United Netherlands and, having judged all four prisoners, their
+honours are sentencing them with this: to be taken to the place where
+criminal sentences are usually executed here, and having been handed
+over to the executioner, the first two prisoners, Jurgen Scholts and
+Willem Brock, to be punished with the rope on the gallows in such a way
+that death will follow, afterwards that their dead bodies be transported
+from there to the outer place of execution, where they are to be hanged
+again as prey to the air and birds of heaven; further that the last two
+prisoners, Christoffel Coelmeijer and Christoffel Hoorneft, be severely
+scourged with rods on their bare backs by the executioner, after which
+they are to be branded and riveted in chains, in which to labour for
+nothing on the honourable Company’s public works for a period of ten
+years, while denying the further demands against them; the Council
+sentencing all the prisoners moreover to the costs and expenditure of
+justice.^[^7]^
+
+Thus done and sentenced in the Castle of Good Hope on 5 March 1739, and
+moreover pronounced and executed on the 7^th^ thereupon.
+
+Let the sentences be done, \[signed\] D. v.d. Henghel.
+
+\[signed\] H. Swellengrebel, J.T. Rhenius, Ns. Heijning, Cl. Brand, Js.
+Möller, Mnus. Bergh, Corns. Eelders, P.R. de Savoije.
+
+In my presence, \[signed\] Js. de Grandpreez, secretary.
+
+TRANSLATION
+
+Testimony given, on the requisition of the *onderkoopman*, *Sieur*
+Johannes Needer, acting as fiscal for the interim, by the slave Coridon,
+belonging to the head of *De Schuur*, Gibbelaar, being of the following
+contents:
+
+That the testifier, together with the slave Paris, also belonging to his
+owner, were ordered to look after the corral last night since sheep had
+been stolen from there on several occasions at night, which is why they
+were both on guard that night, and while they were there, two Europeans
+entered at twelve o’clock, which is when the testifier, as one of these
+Dutchmen^[^8]^ was laying hold of a sheep, took him on, wanting to throw
+him onto the ground, whereupon this European cut the testifier with a
+knife across his stomach, at which he fell down helplessly and this
+European ran away. When these two Dutchmen came into the corral, there
+were two other Dutchmen in front of the corral.
+
+Thus related at the honourable Company’s *Schuur* on 23 January 1739,
+before the honourables J.T. Rhenius and P.R. de Savoije, members from
+the honourable Council of Justice of the Castle of Good Hope, who,
+together with the testifier and me, the secretary, have properly signed
+the original of this.
+
+Which I declare, \[signed\] Js. de Grandpreez, secretary.
+
+[^1]: * Testimonies from each of the accused, five witnesses and two
+    *eijschen* are included in the documentation for this case, CJ 343,
+    ff. 104-56. We include here Coridon’s evidence as a rare example of
+    slave testimony against a ‘European’ prisoner. Slave testimony in
+    court was in theory only accepted as the basis for convictions when
+    there was corroborating evidence from other witnesses, but in
+    practice, as these records reveal, it was frequently used.
+    Company-owned slaves were frequently employed on outposts such as
+    this, Shell 1994: 178 and Sleigh 1993: 117-25. *
+
+[^2]:  Blank space in original text. Willem Brock’s *relaas *(statement)
+    does not give his age, CJ 343, ff. 127-29.
+
+[^3]:  Scholts was questioned in a room where the instruments of torture
+    were displayed, a means of intimidating a prisoner (the ‘threats’
+    that are referred to in relation to the others). From a comment in
+    the *sententie* it appears that torture was applied to him, although
+    he only confessed to entering the corral, not to wounding anyone.
+    Torture was used in capital crimes where there was clear evidence of
+    guilt but where the accused refused to admit to it, since full
+    confession was required for the death sentence to be passed (Botha
+    1962, vol. II: 131).
+
+[^4]:  Left blank in the original.
+
+[^5]:  These were four of the 17 Company woodcutters recorded in the
+    Cape muster rolls for 1738, VOC 5186, ff. 224-25 (in the previous
+    year there were 28 listed, so numbers fluctuated, VOC 5185, ff.
+    254-55). They worked at the Company’s woodcutting outpost called
+    Paradijs on the eastern slopes on Table Mountain: the collection of
+    wood for fuel and for building was a major occupation of both
+    Company soldiers and slaves (Sleigh 1993: 257-60; Hall, Malan &
+    Amann 1993; and Cairns 1980a). Jurgen Scholts, who was taken off his
+    ship on the way to Batavia in 1732 because of sickness, had already
+    caused trouble when he tried to desert in 1738, VOC 5962, f. 97.
+    Willem Brock, the other prisoner who was executed, had only landed
+    at the Cape the previous year, VOC 14734, f. 157. Christoffel
+    Coelmeijer, who was consigned to the Cape hospital on his way to
+    Batavia in 1734, drowned in 1742 while serving his sentence of hard
+    labour in chains, VOC 12923, f. 201. Christoffel Hoorneft, who had
+    arrived at the Cape in 1735, returned to Amsterdam in 1749 after his
+    sentence was completed, VOC 5998, f. 231.
+
+[^6]:  Not far from Paradijs, at modern Rondebosch, the Company had a
+    post which in the eighteenth century primarily served as a transport
+    station and was called *De Schuur*, after the large shed which
+    served as wagon-house (Sleigh 1993: 180-81). The name ‘Groote
+    Schuur’ only dates from the nineteenth century.
+
+[^7]:  Jurgen Scholts denied knowledge of wounding Coridon, while the
+    other three begged for ‘genadige straffe’ (merciful punishment).
+    They were unsuccessful, these sentences for ‘moord en schaapdiefte’
+    (murder and sheep theft) being confirmed in the *regtsrollen*, CJ
+    21, f. 18.
+
+[^8]:  This word (which is sometimes written *Duusman*) developed a
+    special meaning at the Cape, eventually coming to mean any white
+    person, whether necessarily of Dutch descent or not (Scholtz 1965:
+    138-39).
