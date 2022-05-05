@@ -1,4 +1,4 @@
-1.  **ISAAK DE VILLIERS JANSZ**
+# ISAAK DE VILLIERS JANSZ
 
 *This case is one of very few which provide insight into the lives of
 slave children.[^1] Lakij, a young slave boy, was whipped and put

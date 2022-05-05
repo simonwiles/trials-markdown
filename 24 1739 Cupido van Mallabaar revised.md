@@ -1,4 +1,4 @@
-1.  CUPIDO VAN MALLABAAR
+# CUPIDO VAN MALLABAAR
 
 *In this tragic case, Cupido van Mallabaar threatened to take his own
 life, as well as that of his owner’s wife and her child.[^1] The

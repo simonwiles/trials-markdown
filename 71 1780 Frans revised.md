@@ -1,4 +1,4 @@
-** 1780 FRANS**
+# FRANS
 
 *This incident on Marten Melk’s farm at Elsenburg[^1] is revealing
 for the authority of the Council of Justice over privately owned slaves

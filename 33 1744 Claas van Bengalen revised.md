@@ -1,4 +1,4 @@
-1744 CLAAS VAN BENGALEN
+# CLAAS VAN BENGALEN
 
 *Claas van Bengalen and Augustus van Malabar[^1] both worked on
 the same farm and regularly fought each other over the female slave

@@ -1,4 +1,4 @@
-1.  JEPHTA VAN BATAVIA
+# JEPHTA VAN BATAVIA
 
 *This case of jealousy by a male slave over a female slave with whom he
 had previously had a relationship, leading to him stabbing her, shows

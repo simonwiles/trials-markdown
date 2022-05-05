@@ -1,4 +1,4 @@
-1.  CAESAR VAN MADAGASCAR
+# CAESAR VAN MADAGASCAR
 
 *Caesar van Madagascar told his owner that he had a ‘right to speak’ his
 own mind on how best to do his farm work and organise his time – a rare

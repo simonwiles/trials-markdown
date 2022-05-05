@@ -1,4 +1,4 @@
-**1779 ONTONG VAN BOEGIES AND ADONIS VAN DE CAAB**
+# ONTONG VAN BOEGIES AND ADONIS VAN DE CAAB
 
 *This case involved an argument between Ontong van Boegies and the
 *knecht* who was in charge of the vine harvesting. The owner supported

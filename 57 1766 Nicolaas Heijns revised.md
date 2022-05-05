@@ -1,4 +1,4 @@
-1766 NICOLAAS HEIJNS
+# NICOLAAS HEIJNS
 
 *This is a case of a slave who was caught in the midst of a matrimonial
 dispute between her owners. Nicolaas Heijns hit Flora several times,

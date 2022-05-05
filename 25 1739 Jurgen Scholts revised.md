@@ -1,4 +1,4 @@
-1.  **JURGEN SCHOLTS ET AL.**
+# JURGEN SCHOLTS ET AL.
 
 *In a reversal of many of the cases that came to the Council of Justice,
 this one deals with four Company woodcutters who were caught stealing

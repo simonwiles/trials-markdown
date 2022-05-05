@@ -1,4 +1,4 @@
-1775 MAART VAN BENCOULE
+# MAART VAN BENCOULE
 
 *This incident of the tracking down, shooting and capturing of a group
 of Cape Town runaway slaves who had raided a farm in the Piketberg, is

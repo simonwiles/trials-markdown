@@ -1,4 +1,4 @@
-1724 ANDRIES VAN CEIJLON
+# ANDRIES VAN CEIJLON
 
 *This case reveals the tensions and divisions that could arise between
 labourers on a farm – in this example between a Khoi and a

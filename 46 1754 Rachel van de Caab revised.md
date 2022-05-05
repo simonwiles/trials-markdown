@@ -1,4 +1,4 @@
-1.  RACHEL VAN DE CAAB
+# RACHEL VAN DE CAAB
 
 *This is a complex and intriguing case of attempted poisoning of an
 owner by her slaves.[^1] Rachel collaborated with her fellow slave

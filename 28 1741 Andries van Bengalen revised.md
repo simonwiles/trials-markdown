@@ -1,4 +1,4 @@
-1741 ANDRIES VAN BENGALEN
+# ANDRIES VAN BENGALEN
 
 *This letter from the Stellenbosch landdrost to the Council of Justice
 concerned the suicide of a male slave who had attacked a female slave on

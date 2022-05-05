@@ -1,4 +1,4 @@
-1.  MOSES VAN DE CAAB
+# MOSES VAN DE CAAB
 
 *As the majority of slaves during the eighteenth century were imported,
 it meant that there were speakers of a wide range of languages at the

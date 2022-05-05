@@ -1,4 +1,4 @@
-1735 VARKEN, TOONTJE AND RUIJTER
+# VARKEN, TOONTJE AND RUIJTER
 
 *This conflict between three Khoi herdsmen, on the one hand, and a
 slave, on the other, shows the tensions and conflicts of status and

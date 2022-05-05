@@ -1,4 +1,4 @@
-1717 AARON VAN BENGALEN
+# AARON VAN BENGALEN
 
 *This is a case of attempted arson of his owner’s wine store by a slave.
 While collective slave rebellion was difficult to organise at the Cape,

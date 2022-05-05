@@ -1,4 +1,4 @@
-1715 ANTHONIJ
+# ANTHONIJ
 
 *These testimonies given to the Stellenbosch authorities concern the
 sale of Anthonij, a slave who had been sick for some time. Although the

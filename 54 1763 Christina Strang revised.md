@@ -1,4 +1,4 @@
-1.  CHRISTINA STRANG
+# CHRISTINA STRANG
 
 *This is an unusual and insightful case for a number of
 reasons.[^1] It concerns complaints by the labourers on a remote

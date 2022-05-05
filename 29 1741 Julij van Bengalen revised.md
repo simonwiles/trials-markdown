@@ -1,4 +1,4 @@
-1.  JULIJ VAN BENGALEN
+# JULIJ VAN BENGALEN
 
 *Julij van Bengalen accidentally set fire to the veld when cooking fish
 out of doors. The case was not considered serious enough to send to the

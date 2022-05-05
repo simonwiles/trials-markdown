@@ -1,4 +1,4 @@
-1.  PETRUS JOUBERT
+# PETRUS JOUBERT
 
 *Slaves could be caught up in disputes between their owners. In this
 case Adam van Bengalen, a cattle herder owned by Johannes Roux, was

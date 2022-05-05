@@ -1,4 +1,4 @@
-1.  FRANS VAN MADAGASCAR
+# FRANS VAN MADAGASCAR
 
 *This dispute took place at Elsenburg, the large wine farm owned by
 Marten Melk, one of the richest burghers in the colony.[^1] Melk

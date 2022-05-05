@@ -1,4 +1,4 @@
-1.  SAMEL
+# SAMEL
 
 *This brief note in the Stellenbosch notarial records provides a rare
 example in the judicial records of slaves who refuse to run away because

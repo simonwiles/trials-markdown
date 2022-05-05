@@ -1,4 +1,4 @@
-1770 THOMAS VAN TUTOCORIJN
+# THOMAS VAN TUTOCORIJN
 
 *In this case, Thomas van Tutocorijn, a 40-year-old slave who had lived
 since his childhood on the same farm,[^1] attacked first one of

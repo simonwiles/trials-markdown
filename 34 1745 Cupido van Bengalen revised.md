@@ -1,4 +1,4 @@
-1.  CUPIDO VAN BENGALEN
+# CUPIDO VAN BENGALEN
 
 *This episode of burglary and murder of a slave is revealing as much for
 the incidental details about slave and Khoi life on a settler farm as it

@@ -1,4 +1,4 @@
-1.  PIETER CORIDON
+# PIETER CORIDON
 
 *A further example of the intensification of social control by the
 authorities in late 1730s Cape Town is shown here. Two free blacks and

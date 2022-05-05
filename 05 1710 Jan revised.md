@@ -1,4 +1,4 @@
-1710 JAN
+# JAN
 
 *Another brief note in the Stellenbosch records which gives a poignant
 insight into the desperation to which some slaves were reduced. Slave

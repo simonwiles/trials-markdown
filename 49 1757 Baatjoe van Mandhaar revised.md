@@ -1,4 +1,4 @@
-1.  BAATJOE VAN MANDHAAR
+# BAATJOE VAN MANDHAAR
 
 *This concerns an attic siege at the Cape Town house of the burgher
 blacksmith Jan Broderik, where the slave Baatjoe van Mandhaar[^1]

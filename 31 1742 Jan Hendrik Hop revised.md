@@ -1,4 +1,4 @@
-1.  JAN HENDRIK HOP
+# JAN HENDRIK HOP
 
 *Given the Company’s fear of slave resistance in the late 1730s, and the
 uncertainties of the frontier districts, it is not surprising that the

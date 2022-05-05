@@ -1,4 +1,4 @@
-1749 SALAOOS VAN SAMBOUWA
+# SALAOOS VAN SAMBOUWA
 
 *Here Cape Town slaves plan to steal flour from one of their owners and
 to sell it to an exiled Chinese person in the town. They are caught

@@ -1,4 +1,4 @@
-1735 COMPANY SLAVES
+# COMPANY SLAVES
 
 *One night in 1735, several runaway Company slaves, who had been hiding
 for several months on Table Mountain, stole sheep from various farms and

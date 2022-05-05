@@ -1,4 +1,4 @@
-1.  SPADILJE VAN SIAM
+# SPADILJE VAN SIAM
 
 *Spadilje was an unusual slave for two reasons: he came from
 Thailand,[^1] and he was owned by a free black.*[^2] *He also

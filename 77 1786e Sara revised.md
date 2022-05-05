@@ -1,4 +1,4 @@
-1786 SARA
+# SARA
 
 *This is a tragic case of a slave woman in the Swellendam district who
 drowned herself with her children, one of whom survived. It is not clear

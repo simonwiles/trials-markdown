@@ -1,4 +1,4 @@
-1774 MICHIEL RADIJN
+# MICHIEL RADIJN
 
 *This dispute between a slave and a *knecht* reveals the ways in which
 slaves could be denied any authority, including that over their own

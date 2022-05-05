@@ -1,4 +1,4 @@
-1.  JANUARIJ VAN TUTOCORIJN
+# JANUARIJ VAN TUTOCORIJN
 
 *Januarij van Tutocorijn[^1] was maltreated by his owner, the
 widow Van der Spuij, for failing to bring home sufficient koeli

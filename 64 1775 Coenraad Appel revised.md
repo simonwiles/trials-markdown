@@ -1,4 +1,4 @@
-1.  COENRAAD APPEL
+# COENRAAD APPEL
 
 *In this case, slaves reported seeing the farmer Coenraad Appel
 repeatedly having sex with his stepdaughter, Elsie Anna: omnipresent

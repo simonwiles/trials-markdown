@@ -1,4 +1,4 @@
-1.  MICHIEL DANIEL LOURICH
+# MICHIEL DANIEL LOURICH
 
 *Slaves were often caught up in the domestic disputes of their owners.
 Michiel Lourich[^1] was clearly a violent man who both beat his wife

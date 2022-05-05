@@ -1,4 +1,4 @@
-1.  JULIJ VAN TIMOR
+# JULIJ VAN TIMOR
 
 *Julij van Timor[^1] stole items from his owner’s bedroom at night
 and then attacked other members of the family, slaves and a *knecht* who

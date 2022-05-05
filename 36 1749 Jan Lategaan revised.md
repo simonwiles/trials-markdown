@@ -1,4 +1,4 @@
-1.  JAN LATEGAAN
+# JAN LATEGAAN
 
 *Jan Lategaan ordered his slave Julij van Bengalen to whip his female
 slave Regina van Ternaten for absenteeism. She later disappeared and her

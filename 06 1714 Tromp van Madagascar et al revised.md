@@ -1,4 +1,4 @@
-1.  **TROMP VAN MADAGASCAR ET AL.**
+# TROMP VAN MADAGASCAR ET AL.
 
 *The authorities were constantly alarmed by the prevalence of slave
 desertions, especially so, as in this case, when a large group of slaves

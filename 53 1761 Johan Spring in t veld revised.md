@@ -1,4 +1,4 @@
-1.  JOHAN CHRISTIAN SPRING IN ’T VELD
+# JOHAN CHRISTIAN SPRING IN ’T VELD
 
 *This is a case of violent conflict between a *knecht*, placed in sole
 charge of the labourers on one of their owner’s isolated frontier farms,

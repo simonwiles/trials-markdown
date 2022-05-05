@@ -1,4 +1,4 @@
-1726 SCIPIO VAN DE CUST
+# SCIPIO VAN DE CUST
 
 *This testimony by Scipio van de Cust[^1] is part of the
 voluminous records of the trial of a group of slaves who had escaped

@@ -1,4 +1,4 @@
-1.  ANTHONIJ VAN GOA
+# ANTHONIJ VAN GOA
 
 *This case reveals the problems that slaves faced in forming permanent
 emotional and sexual relationships when they could be separated by sale

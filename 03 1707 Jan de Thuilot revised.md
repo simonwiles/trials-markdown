@@ -1,4 +1,4 @@
-**1707 JAN DE THUILOT**
+# JAN DE THUILOT
 
 *Jan de Thuilot, a Huguenot immigrant, was found guilty of killing two
 of his labourers, a slave named Andries and a Khoi named Caffer. They

@@ -1,4 +1,4 @@
-1.  JANUARIJ VAN BOEGIES
+# JANUARIJ VAN BOEGIES
 
 *Here a Cape Town slave attacked his partner (also a slave), with whom
 he had had several children, because he saw another slave in the house

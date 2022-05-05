@@ -1,4 +1,4 @@
-1.  LINDOR VAN MALLEBAAR
+# LINDOR VAN MALLEBAAR
 
 *Sexual contacts between slaves and their owners were viewed with
 disfavour by the authorities, and sometimes, as in this case, by other

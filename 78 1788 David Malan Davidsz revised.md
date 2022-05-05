@@ -1,4 +1,4 @@
-1.  DAVID MALAN DAVIDSZ
+# DAVID MALAN DAVIDSZ
 
 *A prominent burgher, David Malan Davidsz, who lived on the renowned
 Vergelegen farmstead in the Hottentots-Holland area, eloped with his

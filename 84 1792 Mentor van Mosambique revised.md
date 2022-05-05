@@ -1,4 +1,4 @@
-1.  MENTOR VAN MOSAMBIQUE
+# MENTOR VAN MOSAMBIQUE
 
 *A fight broke out between Mentor and the burgher Tielman Roos because
 Mentor refused to greet Tielman, saying he was only obliged to greet his

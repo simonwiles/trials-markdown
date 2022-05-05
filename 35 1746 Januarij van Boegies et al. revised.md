@@ -1,4 +1,4 @@
-1.  JANUARIJ VAN BOEGIES ET AL.
+# JANUARIJ VAN BOEGIES ET AL.
 
 *In this case eight slaves aimed to escape from the colony and to head
 for the ‘land of the Caffers’.[^1] The plan was initiated by a

@@ -1,4 +1,4 @@
-1755 PATIENTIE VAN MANACABO AND DECEMBER VAN BOEGIES
+# PATIENTIE VAN MANACABO AND DECEMBER VAN BOEGIES
 
 *This is a case of two Cape Town slaves who stole guns and ammunition
 from their owners and ran away.[^1] They survived in the False Bay

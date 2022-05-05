@@ -1,4 +1,4 @@
-1744 BARKAT VAN TIMOR
+# BARKAT VAN TIMOR
 
 *This drama took place in the house of the prominent burgher Abraham
 Cloppenburg.[^1] When he angrily ordered his slave Barkat van

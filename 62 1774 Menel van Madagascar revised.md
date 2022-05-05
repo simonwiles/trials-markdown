@@ -1,4 +1,4 @@
-1.  MENEL VAN MADAGASCAR
+# MENEL VAN MADAGASCAR
 
 *A mid-winter fight between slaves over who would sleep by the fire
 gives a brief insight into living conditions on this farm at

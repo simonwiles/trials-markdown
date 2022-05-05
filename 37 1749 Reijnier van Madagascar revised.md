@@ -1,4 +1,4 @@
-1.  REIJNIER VAN MADAGASCAR
+# REIJNIER VAN MADAGASCAR
 
 *This is an extraordinary case of an escaped slave who survived on his
 own unnoticed for twenty years in the mountains around the Franschhoek

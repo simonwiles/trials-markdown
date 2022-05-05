@@ -1,4 +1,4 @@
-1.  BAATJOE
+# BAATJOE
 
 *This case of theft of paper money is revealing of the many trading
 transactions undertaken by slaves in and around Cape Town and the

@@ -1,4 +1,4 @@
-1.  ABRAHAM VAN MACASSAR
+# ABRAHAM VAN MACASSAR
 
 *This case of conflict between a slave and his owners, leading to arson,
 was provoked by the demand that Abraham van Macassar[^1] should

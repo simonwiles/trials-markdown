@@ -1,4 +1,4 @@
-1.  **OCTOBER VAN MADAGASCAR ET AL.**
+# OCTOBER VAN MADAGASCAR ET AL.
 
 *This group of runaway slaves (which unusually included a female) joined
 the community of runaways at Hangklip which had been in existence since

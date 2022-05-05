@@ -1,4 +1,4 @@
-1786 JOB VAN MADAGASCAR ET AL.
+# JOB VAN MADAGASCAR ET AL.
 
 *This case provides details of the ways in which a group of runaways
 hiding out on Table Mountain were able to sustain themselves.[^1]

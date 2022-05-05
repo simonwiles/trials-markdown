@@ -1,4 +1,4 @@
-1.  ALEXANDER VAN MACCASSER
+# ALEXANDER VAN MACCASSER
 
 *This incident one evening in the house of Abraham Decker is a good
 example of how circumstantial detail about slave life can be gleaned

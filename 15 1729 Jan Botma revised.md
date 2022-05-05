@@ -1,4 +1,4 @@
-1.  JAN BOTMA
+# JAN BOTMA
 
 *In two separate, but remarkably similar, cases in 1729, Stellenbosch
 burghers were each found guilty of causing the death of one of their

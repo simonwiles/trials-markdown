@@ -1,4 +1,4 @@
-1.  JEPHTA VAN DE CAAB
+# JEPHTA VAN DE CAAB
 
 *In this letter, the landdrost of Stellenbosch reported a fight with a
 tragic ending on a farm in the Wagenmakersvallei and asked the Council

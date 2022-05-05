@@ -1,4 +1,4 @@
-1.  JEPHTA VAN DE CAAB
+# JEPHTA VAN DE CAAB
 
 *The sixteen-year-old slave Jephta caused great affront when he pushed
 his way through the crowd of high-ranking Company officials at the

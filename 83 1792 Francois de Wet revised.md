@@ -1,4 +1,4 @@
-1.  FRANCOIS DE WET
+# FRANCOIS DE WET
 
 *The evidence in this case was collected by the Stellenbosch landdrost
 after he received a complaint by the slave David van de Caab about the

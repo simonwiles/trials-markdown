@@ -1,4 +1,4 @@
-1790 SEPTEMBER VAN BOEGIES
+# SEPTEMBER VAN BOEGIES
 
 *In this unusual example, a burgher requested permission from the
 landdrost *not *to punish one of his slaves who had run away and was

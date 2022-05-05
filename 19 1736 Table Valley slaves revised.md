@@ -1,4 +1,4 @@
-1.  TABLE VALLEY SLAVES
+# TABLE VALLEY SLAVES
 
 *On 12 March 1736 a fire, which broke out in a Cape Town tannery, spread
 to five nearby houses and was only brought under control with

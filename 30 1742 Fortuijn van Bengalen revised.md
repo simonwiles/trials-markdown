@@ -1,4 +1,4 @@
-1742 FORTUIJN VAN BENGALEN
+# FORTUIJN VAN BENGALEN
 
 *This example of slave arson targeted the house of a farmer who was not
 the slave’s owner, but against whom he held a particular grudge. The

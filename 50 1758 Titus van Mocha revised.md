@@ -1,4 +1,4 @@
-1.  TITUS VAN MOCHA
+# TITUS VAN MOCHA
 
 *This episode shows that runaway slaves could not always rely upon other
 slaves to help them.[^1] Titus escaped from his rural owner in

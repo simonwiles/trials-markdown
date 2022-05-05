@@ -1,4 +1,4 @@
-1.  **ALEXANDER VAN COUCHIN**^*[^1]*^
+# ALEXANDER VAN COUCHIN[^1]
 
 *This is an unusual case, since the recommendation of the landdrost that
 the accused slave be sentenced to death was overturned by the Council of

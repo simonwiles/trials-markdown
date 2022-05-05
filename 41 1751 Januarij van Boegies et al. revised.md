@@ -1,4 +1,4 @@
-1.  **JANUARIJ VAN BOEGIES ET AL.**
+# JANUARIJ VAN BOEGIES ET AL.
 
 *These documents relate to two groups of slave runaways. The first deals
 with ten recently arrived Southeast Asian slaves, who separated into two

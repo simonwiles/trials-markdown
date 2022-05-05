@@ -1,4 +1,4 @@
-1705 CINNA
+# CINNA
 
 *This cross-examination of the elderly slave Cinna (his place of origin
 is not recorded) took place in Stellenbosch. It provides a brief glimpse

@@ -1,4 +1,4 @@
-1.  **ARI**^*[^1]*^** **
+# ARI[^1] 
 
 *This account of the experiences of the slave Ari is reported by one of
 his fellow prisoners, the free burgher Jacobus van der

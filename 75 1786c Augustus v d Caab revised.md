@@ -1,4 +1,4 @@
-1.  **AUGUSTUS VAN DE CAAB ET AL.**
+# AUGUSTUS VAN DE CAAB ET AL.
 
 *This case of a group of runaway slaves is particularly interesting for
 the insights it gives into the world of which Cape Town slaves formed a

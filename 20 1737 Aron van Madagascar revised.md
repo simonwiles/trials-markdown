@@ -1,4 +1,4 @@
-1.  ARON VAN MADAGASCAR
+# ARON VAN MADAGASCAR
 
 *In the aftermath of the arson attempts in Cape Town in 1735—6, the
 authorities attempted to clamp down on the number of slave runaways in

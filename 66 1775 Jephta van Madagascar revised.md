@@ -1,4 +1,4 @@
-1775 JEPHTA VAN MADAGASCAR
+# JEPHTA VAN MADAGASCAR
 
 *Jephta tried to poison his mistress’s cooking pot by placing a snake
 head in it.[^1] This was a specific retaliation since he resented

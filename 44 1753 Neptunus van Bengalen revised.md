@@ -1,4 +1,4 @@
-1.  NEPTUNUS VAN BENGALEN
+# NEPTUNUS VAN BENGALEN
 
 *This murder case reveals the conflicts and tensions that could arise
 between slaves working under difficult circumstances. Neptunus was sent

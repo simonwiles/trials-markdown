@@ -1,4 +1,4 @@
-1.  **APRIL VAN DE CAAB**
+# APRIL VAN DE CAAB
 
 *April van de Caab ran away from his master but was obliged after some
 time to take up employment on another farm, passing himself off as a

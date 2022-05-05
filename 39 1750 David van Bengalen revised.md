@@ -1,4 +1,4 @@
-1.  DAVID VAN BENGALEN
+# DAVID VAN BENGALEN
 
 *The landdrost of the newly created eastern pastoral district of
 Swellendam here tells the Council of Justice that a slave had reported

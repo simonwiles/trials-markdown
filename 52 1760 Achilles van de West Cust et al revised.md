@@ -1,4 +1,4 @@
-1.  ACHILLES VAN DE WEST CUST ET AL.
+# ACHILLES VAN DE WEST CUST ET AL.
 
 *This is one of the most complex and revealing cases about slavery in
 the criminal records of the Council of Justice.[^1] It involved

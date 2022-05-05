@@ -1,4 +1,4 @@
-1.   ANTHONIJ VAN MALLABAAR
+# ANTHONIJ VAN MALLABAAR
 
 *In this case the slave Anthonij van Mallabaar brought an accusation to
 the fiscal that his owner had murdered his fellow slave, Januarij van

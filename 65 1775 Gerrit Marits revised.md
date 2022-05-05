@@ -1,4 +1,4 @@
-1.  GERRIT MARITS
+# GERRIT MARITS
 
 *Gerrit Marits, acting veldcorporaal[^1] in the Roggeveld, here
 reports to the Stellenbosch landdrost that he had shot a slave he

@@ -1,4 +1,4 @@
-1.  JAN OLIVIER
+# JAN OLIVIER
 
 *This is a case of a slave who decided to give up on his escape bid and
 asked another farmer to put in a good word for him with his owner to

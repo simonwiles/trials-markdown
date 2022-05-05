@@ -1,4 +1,4 @@
-1.  JAN VAN DE CAAB
+# JAN VAN DE CAAB
 
 *This and the case 1752 Jacob van de Caab both concern Cape-born slaves
 who escaped to Europe on board ships in Table Bay, and who were only

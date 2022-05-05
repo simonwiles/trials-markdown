@@ -1,4 +1,4 @@
-1769 GERRIT HARTOG
+# GERRIT HARTOG
 
 *This is a case of a dispute which broke out on a farm when the owner
 and his wife were away. Gerrit Hartog also lived on the farm[^1]

@@ -1,4 +1,4 @@
-1.  **JONAS VAN MANADO**
+# JONAS VAN MANADO
 
 *Jonas made an appeal to his recently widowed owner to be set free.
 Manumission of slaves at the Cape was rare, but did sometimes take place

@@ -1,4 +1,4 @@
-1.  JACOB VAN DE CAAB
+# JACOB VAN DE CAAB
 
 *As in the case of 1751 Jan van de Caab, Jacob van de Caab escaped to
 Holland but returned as a ship’s boy, the lowest rung of the Company’s

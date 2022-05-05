@@ -1,4 +1,4 @@
-1.  CAREL BOOM
+# CAREL BOOM
 
 *This record of an emergency Sunday meeting of the Council of Justice
 tells the suicide of Carel Boom,[^1] the ‘portier’ at the

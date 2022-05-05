@@ -1,4 +1,4 @@
-1.  SLAMMAT VAN BOUGIS
+# SLAMMAT VAN BOUGIS
 
 *This is a rare example of a slave who answers back when told to get on
 with his work.[^1] When his owner tried to hit him with a spade,
