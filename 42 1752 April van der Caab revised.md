@@ -36,7 +36,7 @@ All of which is an abominable affair, which cannot be, nor should be, tolerated 
 
 Wherefore it is, that the aforementioned honourable Council of Justice, serving today, having read and considered with care the written *crimineelen eijsch ende conclusie* drawn up and delivered for and against the prisoner by the landdrost of Stellenbosch and Drakenstein, *Sieur* Adriaan van Schoor, in his official capacity, as well as having noted the prisoner’s voluntary confession and the other documents added to it, all properly verified in court, and everything further that served the case and could possibly have moved their honours; practising justice in the name and on behalf of the high and mighty Lords States General of the United Netherlands as well as his illustrious highness, the Lord Prince of Orange and Nassau, as hereditary Stadtholder, Captain and Admiral General of the Republic, and having judged the prisoner April van de Caab, is sentencing him with this: to be taken to the place where criminal sentences are usually executed here, there to be handed over to the executioner, and to be punished with the rope on the gallows so that death will follow; further that his dead body be dragged to the outer place of execution and there, yet again, hanged upon the gallows, to remain thus until being consumed by the air and the birds of heaven, with sentencing to the costs and expenditure of justice.[^5]
 
-Thus done and sentenced in the Castle of Good Hope on 8^\ ^June 1752, as well as pronounced and executed on the 10^th^ thereupon.
+Thus done and sentenced in the Castle of Good Hope on 8 June 1752, as well as pronounced and executed on the 10^th^ thereupon.
 
 Let the sentence be done, \[signed\] R. Tulbagh.
 
