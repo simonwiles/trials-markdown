@@ -352,14 +352,14 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 
 [^3]: The *eijsch* recommended that Anthonij be executed by hanging with a knife displayed over his head, CJ 325, ff. 76-7. There is no record of this case in the *regtsrollen*, CJ 7 \[1721\], but it is apparent from the statement at the end of the *sententie* that the milder sentence here proposed was carried out on 29 March 1721.
 
-[^4]:  On Beatrix Verweij, an aged widow who lived alone on a frontier farm with her ten slaves, see Schoeman 2004: 232-35.
+[^4]: On Beatrix Verweij, an aged widow who lived alone on a frontier farm with her ten slaves, see Schoeman 2004: 232-35.
 
-[^5]:  On the meaning and significance of this, see 1786 Augustus van de Caab et al., n. 8.
+[^5]: On the meaning and significance of this, see 1786 Augustus van de Caab et al., n. 8.
 
-[^6]:  The omentum is a double fold of fatty membrane attached to the stomach and hanging over the intestine, just underneath the skin of the abdomen (Solomon 1992: 212-13).
+[^6]: The omentum is a double fold of fatty membrane attached to the stomach and hanging over the intestine, just underneath the skin of the abdomen (Solomon 1992: 212-13).
 
-[^7]:  This medical evidence is taken from the surgeon’s report, CJ 325, document 10.
+[^7]: This medical evidence is taken from the surgeon’s report, CJ 325, document 10.
 
-[^8]:  In addition to their main, residential farm many Cape farmers, especially in the earlier decades of the eighteenth century, also owned one or more cattle posts in the interior. These farms tended to be loan farms, used exclusively for grazing.
+[^8]: In addition to their main, residential farm many Cape farmers, especially in the earlier decades of the eighteenth century, also owned one or more cattle posts in the interior. These farms tended to be loan farms, used exclusively for grazing.
 
-[^9]:  The original is also in this mixture of the first and third person, direct and indirect speech.
+[^9]: The original is also in this mixture of the first and third person, direct and indirect speech.

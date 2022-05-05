@@ -56,26 +56,26 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^2]: It is not clear whether Johan Spring in ’t Veld was taking him to his owner or to the judicial authorities in Stellenbosch for chastisement. Either way, Hermanus realised that he would receive severe punishment for attacking a *knecht*.
 
-[^3]:  Usually spelled *maaijfoedie* in Cape sources, this is derived from Creole Portuguese: *mai*, ‘mother’ and *fodér*, ‘to have sex’, hence modern ‘motherfucker’. A fairly common term of abuse at the Cape from the seventeenth century onwards (Franken 1953: 44-5 and Scholtz 1972: 141).
+[^3]: Usually spelled *maaijfoedie* in Cape sources, this is derived from Creole Portuguese: *mai*, ‘mother’ and *fodér*, ‘to have sex’, hence modern ‘motherfucker’. A fairly common term of abuse at the Cape from the seventeenth century onwards (Franken 1953: 44-5 and Scholtz 1972: 141).
 
-[^4]:  From here onwards, for most of this page, a small part of the side has been torn off, with the effect that one or two words are missing at the end of every line. In some cases it is possible to guess confidently which word it was if the first few letters have remained. These will be suggested in square brackets. In cases where it is impossible to hazard a guess with any safety, ellipses indicate the lacunae.
+[^4]: From here onwards, for most of this page, a small part of the side has been torn off, with the effect that one or two words are missing at the end of every line. In some cases it is possible to guess confidently which word it was if the first few letters have remained. These will be suggested in square brackets. In cases where it is impossible to hazard a guess with any safety, ellipses indicate the lacunae.
 
-[^5]:  Spring in ’t Veld is obviously the ‘Dutchification’ of this, his German surname.
+[^5]: Spring in ’t Veld is obviously the ‘Dutchification’ of this, his German surname.
 
-[^6]:  See 1752 April van de Caab, note 1.
+[^6]: See 1752 April van de Caab, note 1.
 
-[^7]:  It appears from this sentence, and the following exchange of words, that Hermanus was unhappy about working on a Sunday. On the practice of giving slaves a day free on Sundays, see 1705 Cinna, n. 2.
+[^7]: It appears from this sentence, and the following exchange of words, that Hermanus was unhappy about working on a Sunday. On the practice of giving slaves a day free on Sundays, see 1705 Cinna, n. 2.
 
-[^8]:  Groenewald’s main farm produced wine and was in the Stellenbosch district (J 201, Stellenbosch *opgaaf*, 1761) and this is where Hermanus had been working before. This may well have been where Groenewald was during this episode. Johan Spring in ’t Veld appears to have been working as the *knecht* manager of Groenewald’s second farm in the Caledon region, where this episode took place.
+[^8]: Groenewald’s main farm produced wine and was in the Stellenbosch district (J 201, Stellenbosch *opgaaf*, 1761) and this is where Hermanus had been working before. This may well have been where Groenewald was during this episode. Johan Spring in ’t Veld appears to have been working as the *knecht* manager of Groenewald’s second farm in the Caledon region, where this episode took place.
 
-[^9]:  The mineral baths at Caledon. It seems that Johan Spring in ’t Veld was selling the produce of his employer’s farm for his own profit. Since the beginning of the eighteenth century these baths were visited by people for medical purposes (Schoeman 2001: 357-58).
+[^9]: The mineral baths at Caledon. It seems that Johan Spring in ’t Veld was selling the produce of his employer’s farm for his own profit. Since the beginning of the eighteenth century these baths were visited by people for medical purposes (Schoeman 2001: 357-58).
 
-[^10]:  On the meaning of this, see 1759 Slammat van Boegies, n. 3.
+[^10]: On the meaning of this, see 1759 Slammat van Boegies, n. 3.
 
-[^11]:  Johannes Groenewald employed a series of *knechten* on one-year contracts. There is no record in the *knecht* hiring contracts of anyone by the name of Johan Spring in ’t Veld, although he did hire a corporal by the name of Adolph Johan Hendrik van Coller in June 1761, CJ 2897, document 24. From this statement it appears that Johan Spring in ’t Veld was a newcomer and that previous *knechten *had had a difficult time with Hermanus, or at least Johan claimed so.
+[^11]: Johannes Groenewald employed a series of *knechten* on one-year contracts. There is no record in the *knecht* hiring contracts of anyone by the name of Johan Spring in ’t Veld, although he did hire a corporal by the name of Adolph Johan Hendrik van Coller in June 1761, CJ 2897, document 24. From this statement it appears that Johan Spring in ’t Veld was a newcomer and that previous *knechten *had had a difficult time with Hermanus, or at least Johan claimed so.
 
-[^12]:  At the beginning of this document, Johan Spring in ’t Veld is said to hold the rank of soldier, but it could be that Hermanus associated *knechten* with *matrosen*, as the previous *knecht *employed by Johannes Groenewald was the *matroos* Paul Frederick Wolk van Hamburg, CJ 2896, document 41.* *Nonetheless, Hermanus’s insult was compounded by the fact that sailors lacked social status in comparison to soldiers or other ranks (Worden 2002a: 55-6), and it may well have been used as an insult here.
+[^12]: At the beginning of this document, Johan Spring in ’t Veld is said to hold the rank of soldier, but it could be that Hermanus associated *knechten* with *matrosen*, as the previous *knecht *employed by Johannes Groenewald was the *matroos* Paul Frederick Wolk van Hamburg, CJ 2896, document 41.* *Nonetheless, Hermanus’s insult was compounded by the fact that sailors lacked social status in comparison to soldiers or other ranks (Worden 2002a: 55-6), and it may well have been used as an insult here.
 
-[^13]:  On the use of this term to refer to Europeans, see 1792 Mentor van Mosambique.
+[^13]: On the use of this term to refer to Europeans, see 1792 Mentor van Mosambique.
 
-[^14]:  See note 4 above.
+[^14]: See note 4 above.

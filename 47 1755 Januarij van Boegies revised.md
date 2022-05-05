@@ -84,14 +84,14 @@ Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^4]: Schindelaar arrived at the Cape in 1731 as a soldier, but worked himself up through the ranks until he became lieutenant-captain in 1750. He then married Johanna Delitzsch, who was the widow of the previous incumbent of that post (Hoge 1946: 361-2). An inventory of his large and prosperous house on the Heerengracht was taken in August 1755 when Johanna Delitzsch died (MOOC 8/8, document 34½).
 
-[^5]:  *Sic*. Clara van Macassar is not a *confessant*, but a *relatant* in this document.
+[^5]: *Sic*. Clara van Macassar is not a *confessant*, but a *relatant* in this document.
 
-[^6]:  This was probably Roosje van de Caab, who was listed in the inventory of 1755 (MOOC 8/8, document 34½ ). She was born after a previous inventory dating from 1752 (MOOC 8/8, document 34).
+[^6]: This was probably Roosje van de Caab, who was listed in the inventory of 1755 (MOOC 8/8, document 34½ ). She was born after a previous inventory dating from 1752 (MOOC 8/8, document 34).
 
-[^7]:  *Sic*. Clara van Macassar is not the confessant in this case, but a testifier.
+[^7]: *Sic*. Clara van Macassar is not the confessant in this case, but a testifier.
 
-[^8]:  For Table Mountain as a popular hideaway for slave runaways, see 1735 Company slaves, n. 1.
+[^8]: For Table Mountain as a popular hideaway for slave runaways, see 1735 Company slaves, n. 1.
 
-[^9]:  Literally ‘flat house’. The 1755 inventory describes these as ‘drie aparte huur huijsjes’ (three small separate houses for rent), MOOC 8/8, document 34½ . They were clearly hired out, one to a Chinese tenant. This detail provides rare evidence of the mixed nature of property in one of the most properous streets in the town, with a wealthy household on the outside of the block and poorer rented buildings at the rear. We are grateful to Antonia Malan for this information.
+[^9]: Literally ‘flat house’. The 1755 inventory describes these as ‘drie aparte huur huijsjes’ (three small separate houses for rent), MOOC 8/8, document 34½ . They were clearly hired out, one to a Chinese tenant. This detail provides rare evidence of the mixed nature of property in one of the most properous streets in the town, with a wealthy household on the outside of the block and poorer rented buildings at the rear. We are grateful to Antonia Malan for this information.
 
-[^10]:  Januarij van Boegies was found guilty on 4 December of ‘opset gepleegde moordadige quetsing’ (deliberately committed murderous wounding). Clara was examined by surgeons who declared that the wounds inflicted by Januarij on her head were potentially fatal, CJ 365, f. 732. Januarij admitted guilt and asked forgiveness, CJ 37, ff. 106-7. The death sentence by hanging was more lenient than that recommended in the *eijsch* of breaking on the cross with the *coup de grâce*, CJ 365, ff. 725v-26.
+[^10]: Januarij van Boegies was found guilty on 4 December of ‘opset gepleegde moordadige quetsing’ (deliberately committed murderous wounding). Clara was examined by surgeons who declared that the wounds inflicted by Januarij on her head were potentially fatal, CJ 365, f. 732. Januarij admitted guilt and asked forgiveness, CJ 37, ff. 106-7. The death sentence by hanging was more lenient than that recommended in the *eijsch* of breaking on the cross with the *coup de grâce*, CJ 365, ff. 725v-26.

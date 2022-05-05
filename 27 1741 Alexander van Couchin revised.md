@@ -62,13 +62,13 @@ Articul 2: Wiens lijfeijgen hij gevangen, en waar alhier beschijden is geweest?
 
 Antwoord: Lijfeijgen van den oud heemraad Daniel van der Lith, en gewoond te hebben op desselfs plaats, geleegen omtrent de Clapmuts.
 
-Articul 3: Of hij gevangen op Saturdag den 18 der jongst gepasseerde maand Februarij, des middags op zijn meesters plaats, geleegen omtrent de Clapmuts, in de combuijs sittende te eeten, niet door den knegt Christoffel op ordre van zijn voormelde meester is vast gebonden geworden?   Antwoord: Ja.
+Articul 3: Of hij gevangen op Saturdag den 18 der jongst gepasseerde maand Februarij, des middags op zijn meesters plaats, geleegen omtrent de Clapmuts, in de combuijs sittende te eeten, niet door den knegt Christoffel op ordre van zijn voormelde meester is vast gebonden geworden? Antwoord: Ja.
 
 Articul 4: Of hij gevangen onder dat vastbinden een bloot mes, welk hij in de hand hadde, in de sak heeft gestooken, en of hetselve daar niet weederom door den slaaf Marinus is uijtgenoomen?
 
 Antwoord: Ja.
 
-Articul 5: Of de slavin Aurora insgelijx op ordre van zijn gevangens meester vast gebonden sullende worden, desselfs lijfvrouwe om ’t lijf gevloogen en om vergiffenis heeft versogt?   Antwoord: Ja.
+Articul 5: Of de slavin Aurora insgelijx op ordre van zijn gevangens meester vast gebonden sullende worden, desselfs lijfvrouwe om ’t lijf gevloogen en om vergiffenis heeft versogt? Antwoord: Ja.
 
 Articul 6: Of zijn gevangens lijfvrouwe, alsdoen seer ontsteld raakende, zijn meester hem niet weederom heeft laaten los maaken?
 
@@ -78,7 +78,7 @@ Articul 7: Of hij gevangen sig, naar dat los gemaakt was, niet naar het slaavenh
 
 Antwoord: Ja.
 
-Articul 8: Waar hij gevangen dat mes heeft bekoomen, en met wat intentie hij gevangen met hetselve weederom naar de combuijs is gekeert?   Antwoord: Ik hebbe mijn oud mes in het jongenshuijs op de vensterbank gevonden, en ben daarmeede in de hand neevens een stuk tobak gegaan naar de combuijs om hetselve aldaar te kerven.
+Articul 8: Waar hij gevangen dat mes heeft bekoomen, en met wat intentie hij gevangen met hetselve weederom naar de combuijs is gekeert? Antwoord: Ik hebbe mijn oud mes in het jongenshuijs op de vensterbank gevonden, en ben daarmeede in de hand neevens een stuk tobak gegaan naar de combuijs om hetselve aldaar te kerven.
 
 Articul 9: Of het niet is geweest om daer meede zijn meester, dan wel imand \[*sic*\] anders te vermoorden?
 
@@ -120,7 +120,7 @@ Articul 18: Of hij gevangen dien meijd daarop niet ten antwoord heeft gegeeven: 
 
 Antwoord: Het kan wel weesen, maar ik soude het niet vast kunnen seggen.
 
-Articul 19: Of hij gevangen ’t mes weederom in de sak gestooken hebbende, niet naar het slaavenhuijs is gegaan, en kort daar aan weederom terug gekoomen?   Antwoord: Ik hebbe het mes in de combuijs neergelegt en ben vervolgens met den slaaf Isacq van Jacob Cloeten naar zijn meesters huijs gegaan om persiken te haalen.
+Articul 19: Of hij gevangen ’t mes weederom in de sak gestooken hebbende, niet naar het slaavenhuijs is gegaan, en kort daar aan weederom terug gekoomen? Antwoord: Ik hebbe het mes in de combuijs neergelegt en ben vervolgens met den slaaf Isacq van Jacob Cloeten naar zijn meesters huijs gegaan om persiken te haalen.
 
 Articul 20: Wat hij gevangen telkens met dat mes in de combuijs heeft willen doen ofte uijtvoeren?
 
@@ -274,7 +274,7 @@ Article 20: What the prisoner wanted to do or execute on each occasion in the ki
 
 Answer: I wanted to cut a piece of tobacco with that knife.
 
-Article 21: For what reasons the prisoner opposed his master in such a fashion and why he wanted to wound the same?   Answer: I was not angry with my *sinjeur* and I also did not want to wound him.
+Article 21: For what reasons the prisoner opposed his master in such a fashion and why he wanted to wound the same? Answer: I was not angry with my *sinjeur* and I also did not want to wound him.
 
 Article 22: If the prisoner must not admit that he is punishable in the extreme for his maliciousness and atrocious intention?
 
@@ -296,10 +296,10 @@ Which I declare, \[signed\] D.G. Carnspek, secretary.
 
 [^3]: The court decided after perusing the evidence that Alexander be freed and returned to his owner, but gave no reasons, CJ 23, ff. 38-9. The documentation included the material transcribed here, as well as the evidence of three of the other slaves on the farm, Silvia van Madagascar, Pieter van de Cust Coromandel and Isaac van de Cust Coromandel, CJ 346, ff. 117-28. Alexander was still on the farm in 1746 when he gave testimony in another case on Daniel van der Lith’s farm concerning the maltreatment of the Khoi worker Claas by another *knecht*, Christoffel Esterhuijsen Willemsz, 1/STB 3/8, 24 January 1746.
 
-[^4]:  Sic. Should be *relatant*.
+[^4]: Sic. Should be *relatant*.
 
-[^5]:  *Sic*. Should be ‘testifier’.
+[^5]: *Sic*. Should be ‘testifier’.
 
-[^6]:  The reference here is unclear. Perhaps Jansz had been stationed on one of his employer’s other properties, possibly in the Overberg region.
+[^6]: The reference here is unclear. Perhaps Jansz had been stationed on one of his employer’s other properties, possibly in the Overberg region.
 
-[^7]:  On separate sleeping quarters for slaves, see 1745 Cupido van Bengalen, n. 1.
+[^7]: On separate sleeping quarters for slaves, see 1745 Cupido van Bengalen, n. 1.

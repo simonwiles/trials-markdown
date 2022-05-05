@@ -116,24 +116,24 @@ In my presence, \[signed\] C. van Aersen, secretary.
 
 [^2]: The documentation in this case is voluminous, including the *eijsch* and the testimonies of all the accused, CJ 423, ff. 363-501 as well as further charges against Carolus van Madagascar, Damon van Bougies and October van Nias, CJ 423, ff. 503-29.
 
-[^3]:  An island off the northwestern coast of Sumatra.
+[^3]: An island off the northwestern coast of Sumatra.
 
-[^4]:  The word *gon* is the French *gone*, ‘skirt’, while *tabillée* (written in some of the other testimonies as *tabelje*) is an attempt to approximate the pronunciation of the French word *tablier*, ‘apron’. In the eighteenth century the decorative apron, which was fastened to the dress, was an important fashion accessory, often made of expensive material (Strutt 1975: 72). This here is a skirt which is *en tablier*, meaning it was trimmed to look as if it has an apron, without it actually being a separate garment, see Strutt 1975: 202. We are grateful to Vanessa Everson and Karel Schoeman for their help in solving this.
+[^4]: The word *gon* is the French *gone*, ‘skirt’, while *tabillée* (written in some of the other testimonies as *tabelje*) is an attempt to approximate the pronunciation of the French word *tablier*, ‘apron’. In the eighteenth century the decorative apron, which was fastened to the dress, was an important fashion accessory, often made of expensive material (Strutt 1975: 72). This here is a skirt which is *en tablier*, meaning it was trimmed to look as if it has an apron, without it actually being a separate garment, see Strutt 1975: 202. We are grateful to Vanessa Everson and Karel Schoeman for their help in solving this.
 
-[^5]:  Left blank in original.
+[^5]: Left blank in original.
 
-[^6]:  Being buried there was considered dishonourable and therefore a form of punishment, see 1766 Carel Boom, n. 4.
+[^6]: Being buried there was considered dishonourable and therefore a form of punishment, see 1766 Carel Boom, n. 4.
 
-[^7]:  This Job was captured some months later, and tried with some of his accomplices; see below 1786 Job van Madagascar et al. He also features in 1785 Spadilje van Siam.
+[^7]: This Job was captured some months later, and tried with some of his accomplices; see below 1786 Job van Madagascar et al. He also features in 1785 Spadilje van Siam.
 
-[^8]:  On slave gardens, see 1770 Jephta van de Caab, n. 1.
+[^8]: On slave gardens, see 1770 Jephta van de Caab, n. 1.
 
-[^9]:  On the meaning of this, see note 4 above.
+[^9]: On the meaning of this, see note 4 above.
 
-[^10]:  Paper money had been only recently introduced and the slaves may therefore not have recognised it as money. See 1791 Baatjoe, n. 1.
+[^10]: Paper money had been only recently introduced and the slaves may therefore not have recognised it as money. See 1791 Baatjoe, n. 1.
 
-[^11]:  The case is particularly revealing for showing what runaway slaves stole and what they valued (not paper money or letters, or women’s clothes).
+[^11]: The case is particularly revealing for showing what runaway slaves stole and what they valued (not paper money or letters, or women’s clothes).
 
-[^12]:  Left blank in the original.
+[^12]: Left blank in the original.
 
-[^13]:  These sentences were recorded in the *regtsrollen*, CJ 68, ff. 134-36. They were somewhat less severe than the recommendations of the *eijsch* that Cupido and October be displayed under the gallows with a rope around their necks, be branded and sent in chains to Robben Island for life and that Pieter, Felix and Jan be beaten with rods and placed in chains on Robben Island for three years, CJ 423, ff. 386-88.
+[^13]: These sentences were recorded in the *regtsrollen*, CJ 68, ff. 134-36. They were somewhat less severe than the recommendations of the *eijsch* that Cupido and October be displayed under the gallows with a rope around their necks, be branded and sent in chains to Robben Island for life and that Pieter, Felix and Jan be beaten with rods and placed in chains on Robben Island for three years, CJ 423, ff. 386-88.

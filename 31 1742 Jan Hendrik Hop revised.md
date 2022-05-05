@@ -130,8 +130,8 @@ With my cognisance, \[signed\] A. Schephausen, secretary.
 
 [^2]: There is no record of this case in the Council of Justice *regtsrollen* or criminal case documentation, CJ 24 and CJ 347. Hop was part of the burgher elite, being a burgher councillor, captain of the militia, and serving on the board of the Orphan Chamber (Hoge 1946: 173), which might explain the leniency towards him.
 
-[^3]:  This illegible word was probably ‘kogelbak’.
+[^3]: This illegible word was probably ‘kogelbak’.
 
-[^4]:  It seems from this and his other actions as if Alexander served as *mandoor*, or slave overseer, and was in charge of this post. On *mandoors* and their position, see 1768 Frans van Madagascar, n. 2.
+[^4]: It seems from this and his other actions as if Alexander served as *mandoor*, or slave overseer, and was in charge of this post. On *mandoors* and their position, see 1768 Frans van Madagascar, n. 2.
 
-[^5]:  On the use and meaning of this term, see 1739 Jurgen Scholts, n. 8.
+[^5]: On the use and meaning of this term, see 1739 Jurgen Scholts, n. 8.

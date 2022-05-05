@@ -82,4 +82,4 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 
 [^2]: The interrogation of Andries van Ceijlon is preserved in CJ 328, ff. 7-16.
 
-[^3]:  This heavy punishment is an indication of the seriousness with which arson, with the aggravating circumstances of theft and attempted murder, was viewed by the authorities. For commentary on the meaning and significance of this form of punishment, see 1717 Aaron van Bengalen, n. 5. The *eijsch* recommended that he be burnt alive, CJ 328, f. 27. The sentence was recorded in the *regtsrollen*, CJ 8 \[1724\], ff. 1-2.
+[^3]: This heavy punishment is an indication of the seriousness with which arson, with the aggravating circumstances of theft and attempted murder, was viewed by the authorities. For commentary on the meaning and significance of this form of punishment, see 1717 Aaron van Bengalen, n. 5. The *eijsch* recommended that he be burnt alive, CJ 328, f. 27. The sentence was recorded in the *regtsrollen*, CJ 8 \[1724\], ff. 1-2.

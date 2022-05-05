@@ -60,8 +60,8 @@ Exhibit in court, 12 April 1770.
 
 [^3]: The case came before the court on 12 April 1770 and was held over while the documentation (which included the testimonies of Pandek van Maccasser and Anna Maria Bruijning, the interrogations of Dirk and Jephta and a surgeon’s report, CJ 397, ff. 172-99) was circulated among its members. On 10 May 1770 it was agreed that Caesar’s death appeared to have been accidental (‘een casus fortuitus’), but that the slaves Jephta and Pandek should be returned to their owner with the order that they should not be sold without first informing the court, and that the Khoi Dirk be retained in case he could shed any further light on the matter, CJ 52, ff. 32-3 and 45-8.
 
-[^4]:  Legal Latin for ‘the instigator of the dispute’.
+[^4]: Legal Latin for ‘the instigator of the dispute’.
 
-[^5]:  Latin for ‘with a deceitful spirit’, probably here used as the equivalent of ‘with malice aforethought’.
+[^5]: Latin for ‘with a deceitful spirit’, probably here used as the equivalent of ‘with malice aforethought’.
 
-[^6]:  Underneath the skull there are three membranes (*meninges*) which further protect the brain, the outer one of which is called the *dura mater* and the innermost one the *pia mater *(Solomon 1992: 102-3).
+[^6]: Underneath the skull there are three membranes (*meninges*) which further protect the brain, the outer one of which is called the *dura mater* and the innermost one the *pia mater *(Solomon 1992: 102-3).

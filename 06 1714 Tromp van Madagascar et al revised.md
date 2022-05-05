@@ -234,7 +234,7 @@ Article 7: If the aforementioned Anthonij was opposed to this and said that, if 
 
 Answer: Not to know of this.
 
-Article 8: If the prisoner answered to this: “We shall never come back to the Dutch, nor eat their bread again”?   Says that Knap een Deuntie did say this to him, but that he did not speak to Anthonij about this.
+Article 8: If the prisoner answered to this: “We shall never come back to the Dutch, nor eat their bread again”? Says that Knap een Deuntie did say this to him, but that he did not speak to Anthonij about this.
 
 Article 9: If the prisoner, seeing that Anthonij was in no way inclined to flee, tied him up, beat him, dragged him by his hair, and threatened him that, if he did not want to go with them, his throat would be cut?
 
@@ -400,24 +400,24 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 
 [^3]: For this shift in the nature of slave resistance in the Atlantic colonial world, see Genovese 1979, and, for the Cape, Ross 1983. Ross discusses this episode on pp. 41-2. Penn 1999: 73-99 provides the fullest analysis of runaway slaves on the Cape frontier.
 
-[^4]:  In the original a line is left open between this sentence and the one starting with ‘dog’. The first part is probably Thomas’s answer, while the part ‘dog…’ was written by the secretary or whoever did the questioning. This also occurs in question 19 below, but note also the answers to questions 18, 21 and 22 where Thomas’s answers are being compared with the evidence provided by the other slaves. It is not clear whether this was done at the actual interrogation, or was added later when the document was copied out.
+[^4]: In the original a line is left open between this sentence and the one starting with ‘dog’. The first part is probably Thomas’s answer, while the part ‘dog…’ was written by the secretary or whoever did the questioning. This also occurs in question 19 below, but note also the answers to questions 18, 21 and 22 where Thomas’s answers are being compared with the evidence provided by the other slaves. It is not clear whether this was done at the actual interrogation, or was added later when the document was copied out.
 
-[^5]:  The subject of this is unstated in the Dutch. It appears that others were present at the interrogation (compare article 21) who may have spoken up against him. It is equally possible that the fiscal meant: ‘*We* are convinced or persuaded by the testimonies of Jonas...’.
+[^5]: The subject of this is unstated in the Dutch. It appears that others were present at the interrogation (compare article 21) who may have spoken up against him. It is equally possible that the fiscal meant: ‘*We* are convinced or persuaded by the testimonies of Jonas...’.
 
-[^6]:  Schoeman (2002b: 9-10) suggests that it is possible that this Claas Kok was the progenitor of the later Griqua captains. Certainly, Adam Kok, usually considered the founder of the Griquas, first entered the historical record during the 1750s when he was farming in the region of Piketberg, the area where this case was set, and his descendants later claimed that he was born the son of a slave.
+[^6]: Schoeman (2002b: 9-10) suggests that it is possible that this Claas Kok was the progenitor of the later Griqua captains. Certainly, Adam Kok, usually considered the founder of the Griquas, first entered the historical record during the 1750s when he was farming in the region of Piketberg, the area where this case was set, and his descendants later claimed that he was born the son of a slave.
 
-[^7]:  This is probably the *Ricinus communis*, known as the *kasterolieboom*, and in the eighteenth century often simply called *olieboom*, and of which both the oil and leaves were used as medicines (Thunberg 1986: xl-xli, 56 and Scholtz 1972: 148).
+[^7]: This is probably the *Ricinus communis*, known as the *kasterolieboom*, and in the eighteenth century often simply called *olieboom*, and of which both the oil and leaves were used as medicines (Thunberg 1986: xl-xli, 56 and Scholtz 1972: 148).
 
-[^8]:  This is an unusual toponym, which refers broadly to the region not only of modern Malaysia, but also the Malay-speaking regions in Sumatra and Java.
+[^8]: This is an unusual toponym, which refers broadly to the region not only of modern Malaysia, but also the Malay-speaking regions in Sumatra and Java.
 
-[^9]:  Also an unusual provenance for a Cape slave, since the Atlantic colonial slave-trading system was under the control of the Dutch West India Company and not in the remit of the VOC. Pasqual may have been sold in Cape Town by the captain of a visiting ship from the West Indies.
+[^9]: Also an unusual provenance for a Cape slave, since the Atlantic colonial slave-trading system was under the control of the Dutch West India Company and not in the remit of the VOC. Pasqual may have been sold in Cape Town by the captain of a visiting ship from the West Indies.
 
-[^10]:  The *dispencier* was in charge of the management of the VOC’s *dispens*, the warehouse, at the Cape and it was therefore an important and high-ranking job. This Johannes Swellengrebel was the father of the later governor (DSAB II: 726-27).
+[^10]: The *dispencier* was in charge of the management of the VOC’s *dispens*, the warehouse, at the Cape and it was therefore an important and high-ranking job. This Johannes Swellengrebel was the father of the later governor (DSAB II: 726-27).
 
-[^11]:  Presumably Angola, although the Mozambique region was better known to some Cape slaves. None of the captured slaves in this episode came from Africa, however, and so this was not an attempt to return home.
+[^11]: Presumably Angola, although the Mozambique region was better known to some Cape slaves. None of the captured slaves in this episode came from Africa, however, and so this was not an attempt to return home.
 
-[^12]:  Presuming that the scribe meant ‘confereren’ and not ‘confungeeren’ as in the text.
+[^12]: Presuming that the scribe meant ‘confereren’ and not ‘confungeeren’ as in the text.
 
-[^13]:  Jantje was part of the Dutch contingent which had come out to capture the slaves and may have been acting as a guide.
+[^13]: Jantje was part of the Dutch contingent which had come out to capture the slaves and may have been acting as a guide.
 
-[^14]:  These sentences were recorded in the *regtsrollen*, CJ 5, ff. 8-9 \[1714\].
+[^14]: These sentences were recorded in the *regtsrollen*, CJ 5, ff. 8-9 \[1714\].

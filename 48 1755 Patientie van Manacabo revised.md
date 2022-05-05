@@ -54,16 +54,16 @@ In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^2]: Other documentation for the case included the *eijsch* and testimonies of Patientie van Mannacabo \[*sic*\], December van Boegies, Barend Janssen van Steenderen and April van Palembang, CJ 365, ff. 694-719.
 
-[^3]:  An alternative spelling for Menengkabo (now Menangkabu) in Sumatra (Bradlow and Cairns 1978: 128).
+[^3]: An alternative spelling for Menengkabo (now Menangkabu) in Sumatra (Bradlow and Cairns 1978: 128).
 
-[^4]:  A well-known landmark at the Cape, this Company outpost was close to Sandvlei, not far from the farm Zwaanswijk (Koeman 1955: 263; Sleigh 1993: 264-65).
+[^4]: A well-known landmark at the Cape, this Company outpost was close to Sandvlei, not far from the farm Zwaanswijk (Koeman 1955: 263; Sleigh 1993: 264-65).
 
-[^5]:  This seems to refer not to the region of False Bay, but more narrowly to Simon’s Bay, where the VOC had had an outpost since 1743 (Sleigh 1993: 302-3).
+[^5]: This seems to refer not to the region of False Bay, but more narrowly to Simon’s Bay, where the VOC had had an outpost since 1743 (Sleigh 1993: 302-3).
 
-[^6]:  Recorded in the *scheepsoldijboek *of the vessel Nieuwvijvervreugd as Bernhard \[*sic*\] Janssen van Steenderen. He had arrived in 1754 and was one of the 38 soldiers based ‘agter de Steenbergen in de bhaaij fals’ (behind the Steenbergen at Baaij Fals), VOC 5203, f. 208. He stayed at the Cape until 1759 when he went to Colombo, where he worked for the VOC until his death in 1765, VOC 13071, f. 183.
+[^6]: Recorded in the *scheepsoldijboek *of the vessel Nieuwvijvervreugd as Bernhard \[*sic*\] Janssen van Steenderen. He had arrived in 1754 and was one of the 38 soldiers based ‘agter de Steenbergen in de bhaaij fals’ (behind the Steenbergen at Baaij Fals), VOC 5203, f. 208. He stayed at the Cape until 1759 when he went to Colombo, where he worked for the VOC until his death in 1765, VOC 13071, f. 183.
 
-[^7]:  An interesting word whose origins are disputed. Both *paai* and *maai* appear regularly in eighteenth-century Cape texts, derived from the Portuguese for ‘father’ and ‘mother’, used as a respectful form of address to an older person, but at the Cape specifically older slaves (and sometimes for Khoi). Scholtz, however, argues that at least *paai* is not a loan from Portuguese, claiming it ultimately derived from Dutch (Scholtz 1965: 183-84 and, for further examples from contemporary Cape texts, Scholtz 1972: 153).
+[^7]: An interesting word whose origins are disputed. Both *paai* and *maai* appear regularly in eighteenth-century Cape texts, derived from the Portuguese for ‘father’ and ‘mother’, used as a respectful form of address to an older person, but at the Cape specifically older slaves (and sometimes for Khoi). Scholtz, however, argues that at least *paai* is not a loan from Portuguese, claiming it ultimately derived from Dutch (Scholtz 1965: 183-84 and, for further examples from contemporary Cape texts, Scholtz 1972: 153).
 
-[^8]:  A thick, woollen coat, also called a *buffeltje* (Gawronski 1996: 202).
+[^8]: A thick, woollen coat, also called a *buffeltje* (Gawronski 1996: 202).
 
-[^9]:  Patientie van Manacabo and December van Boegies were charged with running away, theft of guns and ‘publicq geweld’ (public violence). They claimed that they had not meant to cause mischief by their possession of guns but had only shot wildlife from time to time for subsistence. The sentence followed that recommended in the *eijsch*, CJ 37, ff. 104-6. See also Heese 1994: 79-80 for a discussion of this case as an example of the Council of Justice taking mitigating circumstances into account: if these slaves had used their weapons or had not willingly surrendered, they would have received the death penalty.
+[^9]: Patientie van Manacabo and December van Boegies were charged with running away, theft of guns and ‘publicq geweld’ (public violence). They claimed that they had not meant to cause mischief by their possession of guns but had only shot wildlife from time to time for subsistence. The sentence followed that recommended in the *eijsch*, CJ 37, ff. 104-6. See also Heese 1994: 79-80 for a discussion of this case as an example of the Council of Justice taking mitigating circumstances into account: if these slaves had used their weapons or had not willingly surrendered, they would have received the death penalty.

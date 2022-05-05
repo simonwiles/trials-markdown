@@ -50,4 +50,4 @@ In my presence, \[signed\] Js. de Grandpreez, secretary.
 
 [^3]: Robert Ross (1993: 166-80) has argued that the gradual incorporation of the Khoisan into the Cape legal system was as much a marker of their loss of independence as was their loss of land and livestock. Whereas in the seventeenth and early eighteenth centuries, conflicts between Khoi were usually not dealt with by the Company and were handed over to Khoi chiefs or ignored, by the middle of the eighteenth century this was no longer possible or desirable. From the late seventeenth century, whenever Khoisan conflicted with settlers or slaves, as in this case, they were subject to the laws and sentences of the Council of Justice.
 
-[^4]:  The death sentence by hanging for Varken and Toontje mitigated that of breaking alive on the cross and impaling, as recommended by the fiscal in the *eijsch*, CJ 339, ff. 154-55, and was also recorded in CJ 17, ff. 39-40.
+[^4]: The death sentence by hanging for Varken and Toontje mitigated that of breaking alive on the cross and impaling, as recommended by the fiscal in the *eijsch*, CJ 339, ff. 154-55, and was also recorded in CJ 17, ff. 39-40.

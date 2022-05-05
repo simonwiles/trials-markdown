@@ -50,10 +50,10 @@ In my presence, \[signed\] Js. de Grandpreez, secretary.
 
 [^4]: For other cases involving such interactions, see 1735 Company slaves; 1760 Achilles van de West Cust et al.; and 1786 October van Madagascar et al.
 
-[^5]:  One *dubbeltje* was the equivalent of two *stuijvers*.
+[^5]: One *dubbeltje* was the equivalent of two *stuijvers*.
 
-[^6]:  This detailed description of guns and their use by slaves is indicative of the authorities’ concern over armed slaves; see 1742 Jan Hendrik Hop.
+[^6]: This detailed description of guns and their use by slaves is indicative of the authorities’ concern over armed slaves; see 1742 Jan Hendrik Hop.
 
-[^7]:  This refers to the region of Southeast Africa, roughly modern Maputo, where the Company had a trading post until 1731 (Shell 2001).
+[^7]: This refers to the region of Southeast Africa, roughly modern Maputo, where the Company had a trading post until 1731 (Shell 2001).
 
-[^8]:  Aron was sentenced ‘in cas van aufugie en gedaane asistentie aan een gewapende troep gaauwdieven’ (on the charge of being fugitive and having given assistance to an armed troop of rogues), CJ 19, ff. 28-30. This sentence was that recommended by the Fiscal in the *eijsch*, CJ 341, ff. 102v-3.
+[^8]: Aron was sentenced ‘in cas van aufugie en gedaane asistentie aan een gewapende troep gaauwdieven’ (on the charge of being fugitive and having given assistance to an armed troop of rogues), CJ 19, ff. 28-30. This sentence was that recommended by the Fiscal in the *eijsch*, CJ 341, ff. 102v-3.

@@ -28,4 +28,4 @@ Thus investigated and done at the aforesaid place and day.
 
 [^1]: About fifteen to twenty slave suicides a year were reported. Slaves who unsuccessfully tried to commit suicide were punished as a warning to others, Worden 1985: 134-7. See also 1786 Sara.
 
-[^2]:  This literally means ‘I cannot give satisfaction with my work’ but in this context the suggested translation seems more likely.
+[^2]: This literally means ‘I cannot give satisfaction with my work’ but in this context the suggested translation seems more likely.

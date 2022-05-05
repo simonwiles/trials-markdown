@@ -90,10 +90,10 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^1]: There is no record of the case in the *regtsrollen* or the volumes of documents in criminal cases of the Council of Justice for 1764, CJ 46 and CJ 381-83.
 
-[^2]:  Note that these testimonies were taken two and half years after the events in question. It may have been that suspicion about Olivier was only then reported to the landdrost, but there is no evidence in the archive of this and the case does not appear to have been taken further.
+[^2]: Note that these testimonies were taken two and half years after the events in question. It may have been that suspicion about Olivier was only then reported to the landdrost, but there is no evidence in the archive of this and the case does not appear to have been taken further.
 
-[^3]:  For the requirement to give reports of unnatural slave deaths, see 1718 Anthonij van Mallabaar, n. 3. This is explicitly stated here by Pretorius to make clear that there was nothing suspicious about this death. For cases where owners omitted to give such reports, see 1750 David van Bengalen and 1763 Christina Strang.
+[^3]: For the requirement to give reports of unnatural slave deaths, see 1718 Anthonij van Mallabaar, n. 3. This is explicitly stated here by Pretorius to make clear that there was nothing suspicious about this death. For cases where owners omitted to give such reports, see 1750 David van Bengalen and 1763 Christina Strang.
 
-[^4]:  The term for a soldier trained to shoot with an arquebus, see 1707 Jan de Thuilot, n. 11.
+[^4]: The term for a soldier trained to shoot with an arquebus, see 1707 Jan de Thuilot, n. 11.
 
-[^5]:  *Knechten* were sometimes used as teachers on farms (Shell 1994: 19-20), although their role was more commonly that of overseer or labourer (see 1761 Johan Spring in ’t Veld, n. 1).
+[^5]: *Knechten* were sometimes used as teachers on farms (Shell 1994: 19-20), although their role was more commonly that of overseer or labourer (see 1761 Johan Spring in ’t Veld, n. 1).

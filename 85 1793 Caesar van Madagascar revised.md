@@ -54,6 +54,6 @@ In my presence, \[signed\] J.A. Truter, secretary.
 
 [^2]: This was somewhat less severe than the life sentence recommended in the *eijsch*, CJ 447, f. 575.
 
-[^3]:  See 1791 Petrus Joubert, n. 4.
+[^3]: See 1791 Petrus Joubert, n. 4.
 
-[^4]:  This sentence was recorded in the *regtsrollen*, CJ 75, ff. 211-12. In response to the charge, Caesar stated that his owner had attacked him with a broomstick and then with a *sjambok*, and that he had only stated that he would inspan oxen early the following morning and had done no wrong, CJ 75, f. 204.
+[^4]: This sentence was recorded in the *regtsrollen*, CJ 75, ff. 211-12. In response to the charge, Caesar stated that his owner had attacked him with a broomstick and then with a *sjambok*, and that he had only stated that he would inspan oxen early the following morning and had done no wrong, CJ 75, f. 204.

@@ -104,10 +104,10 @@ In my presence, \[signed\] C. van Aersen, secretary.
 
 [^3]: The documentation for this case also includes the *eijsch* and the examination of each of the accused, CJ 424, ff. 571-681.
 
-[^4]:  Daniel van de Caab, Saijd van Java and Gree van Sambouwa were all sentenced on 6 May 1785 to be whipped, branded and sent to work in chains on Robben Island for desertion and theft, CJ 67, ff. 49-50.
+[^4]: Daniel van de Caab, Saijd van Java and Gree van Sambouwa were all sentenced on 6 May 1785 to be whipped, branded and sent to work in chains on Robben Island for desertion and theft, CJ 67, ff. 49-50.
 
-[^5]:  Roughly the region of modern-day Woodstock.
+[^5]: Roughly the region of modern-day Woodstock.
 
-[^6]:  As a free man, Brein van Ambon was treated differently from the others. Brein had arrived from Batavia and worked in the Company gardens. He strenuously denied having aided any of the other accused, or knowing that they were runaways or even ever having seen Job, CJ 424, ff. 675-81. In the absence of evidence against him, he could not be convicted, but the court clearly decided that he was more of a nuisance than he was worth and should be returned to Batavia.
+[^6]: As a free man, Brein van Ambon was treated differently from the others. Brein had arrived from Batavia and worked in the Company gardens. He strenuously denied having aided any of the other accused, or knowing that they were runaways or even ever having seen Job, CJ 424, ff. 675-81. In the absence of evidence against him, he could not be convicted, but the court clearly decided that he was more of a nuisance than he was worth and should be returned to Batavia.
 
-[^7]:  This was the sentence recommended in the *eijsch*, CJ 424, ff. 593-95 and it was recorded in the *regtsrollen*, CJ 68, ff. 209-10.
+[^7]: This was the sentence recommended in the *eijsch*, CJ 424, ff. 593-95 and it was recorded in the *regtsrollen*, CJ 68, ff. 209-10.

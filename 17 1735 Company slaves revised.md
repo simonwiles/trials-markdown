@@ -236,8 +236,8 @@ Approved, \[signed\] Js. de Grandpreez.
 
 [^3]: That is, two *stuijvers*.
 
-[^4]:  See 1739 Jurgen Scholts et al., n. 5 on this.
+[^4]: See 1739 Jurgen Scholts et al., n. 5 on this.
 
-[^5]:  In this context, ‘de Caab’ refers to Cape Town.
+[^5]: In this context, ‘de Caab’ refers to Cape Town.
 
-[^6]:  For a discussion of this, see 1738 Pieter Coridon, n. 2.
+[^6]: For a discussion of this, see 1738 Pieter Coridon, n. 2.

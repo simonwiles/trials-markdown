@@ -58,10 +58,10 @@ Kuijlenburgh, 6 September 1741.
 
 [^1]: For this case and other examples, Worden 1985: 135. See also 1710 Jan; 1739 Cupido van Mallabaar; and 1786 Sara. On the way in which the corpses of suicide victims were treated, and the differences in the ‘punishments’ given to those of Khoi and slaves, and those of people of European origin, see Upham 2001a.
 
-[^2]:  Although this is the only instance of the word *puta* (‘whore’) that Franken could find in his study of Portuguese at the Cape during the VOC period (Franken 1953: 41-79, especially 56-7), it is likely that it was well known amongst slaves, especially as the use of Creole Portuguese as contact language was by this stage well entrenched at the Cape. On Portuguese and Malay at the Cape, see the discussion below in 1763 Christina Strang and 1775 Moses van de Caab.
+[^2]: Although this is the only instance of the word *puta* (‘whore’) that Franken could find in his study of Portuguese at the Cape during the VOC period (Franken 1953: 41-79, especially 56-7), it is likely that it was well known amongst slaves, especially as the use of Creole Portuguese as contact language was by this stage well entrenched at the Cape. On Portuguese and Malay at the Cape, see the discussion below in 1763 Christina Strang and 1775 Moses van de Caab.
 
-[^3]:  Literally ‘second person’. This was the title of the deputy governor. Tulbagh assumed this office in 1739.
+[^3]: Literally ‘second person’. This was the title of the deputy governor. Tulbagh assumed this office in 1739.
 
-[^4]:  This case illustrates the gendered nature of slave labour on the farm: while the male slaves were working outside in the garden, the women were inside the house doing sewing. On the use of slave women for needlework, see Shell 1994: 51-2 and 161. Unlike the plantation slave societies of the Americas, female slaves at the Cape did not usually do regular field work, although there were exceptions, especially during the harvesting season (Worden 1985: 21 and 88).
+[^4]: This case illustrates the gendered nature of slave labour on the farm: while the male slaves were working outside in the garden, the women were inside the house doing sewing. On the use of slave women for needlework, see Shell 1994: 51-2 and 161. Unlike the plantation slave societies of the Americas, female slaves at the Cape did not usually do regular field work, although there were exceptions, especially during the harvesting season (Worden 1985: 21 and 88).
 
-[^5]:  This was the usual punishment for slave suicides, though other ones were also known. For mention of this case in this regard, see De Kock 1950: 184.
+[^5]: This was the usual punishment for slave suicides, though other ones were also known. For mention of this case in this regard, see De Kock 1950: 184.

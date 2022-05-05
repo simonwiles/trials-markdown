@@ -46,6 +46,6 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^5]: ‘grammoedige werping met een mes naar desselfs meede slaaf Januarij, mitsgaders daardoor veroorsaakte quetsing en opgevolgde neederslag’ (wrathfully throwing a knife at his fellow slave Januarij, and also the wounding caused by it and the resulting collapse). Moses claimed that it was an accident, CJ 409, f. 247 \[modern pagination\]. The full sentence was a public whipping and 25 years on Robben Island, with costs, CJ 57, ff. 39-40. The *eijsch* had recommended a life sentence on Robben Island, which probably came to much the same thing, CJ 409, f. 225 \[modern pagination\]. In addition to the testimony of October given here, the full documentation for the case includes the *sententie* (CJ 793, ff. 240-48)*,* the *eijsch* and the testimonies of Slammat van Boegies, Solomon van de Caab, Fortuijn van Bengalen, the surgeon’s report on the body of Januarij van Bengalen, as well as the interrogation of Moses, CJ 409, vol. 4, ff. 215-51 \[modern pagination\].
 
-[^6]:  *Sic*. Seemingly a word such as *voorleeden* is omitted here.
+[^6]: *Sic*. Seemingly a word such as *voorleeden* is omitted here.
 
-[^7]:  This was a discreet way of writing *moerneuker* (literally ‘motherfucker’), hence the preceding abbreviation for *salva venia*, ‘by your leave’ or ‘with your permission’.
+[^7]: This was a discreet way of writing *moerneuker* (literally ‘motherfucker’), hence the preceding abbreviation for *salva venia*, ‘by your leave’ or ‘with your permission’.

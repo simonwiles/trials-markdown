@@ -102,10 +102,10 @@ As witness, \[signed\] J. Keijts.
 
 [^5]: See 1775 Moses van de Caab for a discussion of slave use of Creole Portuguese and Malay.
 
-[^6]:  Some slaves, usually those who lived in Cape Town, were obliged to pay their owners a set amount, known as *koeli geld*, which they had earned by selling goods or doing casual work (Thunberg 1986: 123; Ross 1980: 10-11), and slaves who failed to do so were often punished (see, for example, 1737 Januarij van Tutocorijn). In this case Doulat had agreed to pay his owner a regular monthly payment (*maandgeld) *of five rixdollars. It could not have been easy for slaves to earn such amounts regularly, and this might explain why Doulat stole the money. For more references to examples of *koeli geld* from the eighteenth century, and for comments on the origins of the word, see Franken 1953: 105-6.
+[^6]: Some slaves, usually those who lived in Cape Town, were obliged to pay their owners a set amount, known as *koeli geld*, which they had earned by selling goods or doing casual work (Thunberg 1986: 123; Ross 1980: 10-11), and slaves who failed to do so were often punished (see, for example, 1737 Januarij van Tutocorijn). In this case Doulat had agreed to pay his owner a regular monthly payment (*maandgeld) *of five rixdollars. It could not have been easy for slaves to earn such amounts regularly, and this might explain why Doulat stole the money. For more references to examples of *koeli geld* from the eighteenth century, and for comments on the origins of the word, see Franken 1953: 105-6.
 
-[^7]:  These are not onions, but probably refer to the corms of a type of iris, the *Moraea fugax* (Iridaceae), which are edible and known to have been used by both the indigenous population and the settlers for food (Thunberg 1986: 55).
+[^7]: These are not onions, but probably refer to the corms of a type of iris, the *Moraea fugax* (Iridaceae), which are edible and known to have been used by both the indigenous population and the settlers for food (Thunberg 1986: 55).
 
-[^8]:  Not a nickname for somebody fond of wine, but a ‘Dutchification’ of the French surname *Lecrévent* or *Lécrivain. *This Nicholaas Lecrévent was the stepbrother of Christoffel Groenewald’s daughter-in-law, Margaretha Hattingh (Heese & Lombard 1986-2004, vol. 3: 116 and vol. 4: 576).
+[^8]: Not a nickname for somebody fond of wine, but a ‘Dutchification’ of the French surname *Lecrévent* or *Lécrivain. *This Nicholaas Lecrévent was the stepbrother of Christoffel Groenewald’s daughter-in-law, Margaretha Hattingh (Heese & Lombard 1986-2004, vol. 3: 116 and vol. 4: 576).
 
-[^9]:  This sentence was recommended in the *eijsch*, CJ 322, document 60, and also recorded in the *regtsrollen*, CJ 7 \[1718\], f. 50.
+[^9]: This sentence was recommended in the *eijsch*, CJ 322, document 60, and also recorded in the *regtsrollen*, CJ 7 \[1718\], f. 50.

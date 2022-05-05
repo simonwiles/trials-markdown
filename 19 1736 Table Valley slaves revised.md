@@ -78,10 +78,10 @@ Exhibit in court, 26 April 1736.
 
 [^2]: Most notably in the ‘slave code’of 1754, *Kaapse Plakkaatboek *III: 1-7 (1754). For others during this period, see article 51 of the general *plakkaat* of 1727 (*Kaapse Plakkaatboek* II: 119). There was also a specific *plakkaat* in 1708 to control the gathering together of slaves in the town, *Kaapse Plakkaatboek* II: 10-11. See also 1738 Pieter Coridon, n. 1.
 
-[^3]:  The *dictum ter rolle* was a summary and recommendation of sentence by the fiscal, which replaced an *eijsch*, but had less reference to legal authorities.
+[^3]: The *dictum ter rolle* was a summary and recommendation of sentence by the fiscal, which replaced an *eijsch*, but had less reference to legal authorities.
 
-[^4]:  The clause between angled brackets was inserted here above the line, but is obviously at the wrong place in the sentence.
+[^4]: The clause between angled brackets was inserted here above the line, but is obviously at the wrong place in the sentence.
 
-[^5]:  On the function and composition of this body, see 1738 Pieter Coridon, n. 2.
+[^5]: On the function and composition of this body, see 1738 Pieter Coridon, n. 2.
 
-[^6]:  Or linesman. *Vlaggeman* usually means the commander of a squadron but here is meant the house (or even just hut) of the person(s) responsible for giving warning of approaching ships. According to Haafner (1992: 70), the hut was about two-thirds of the way up Lion’s Head. There was another ‘flagman’ at Signal Hill (Worden et al. 1998: 53).
+[^6]: Or linesman. *Vlaggeman* usually means the commander of a squadron but here is meant the house (or even just hut) of the person(s) responsible for giving warning of approaching ships. According to Haafner (1992: 70), the hut was about two-thirds of the way up Lion’s Head. There was another ‘flagman’ at Signal Hill (Worden et al. 1998: 53).

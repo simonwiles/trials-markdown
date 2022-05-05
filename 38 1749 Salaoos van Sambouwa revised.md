@@ -68,6 +68,6 @@ In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^2]: Salaoos was displayed standing under the gallows with a rope around his neck, and was then, with the other three, whipped and branded. The three slaves were sent back to their owners, while Limoeijko was sentenced to labour in chains on the Company’s public works for life, CJ 31, ff. 99-102. This was more lenient than the death sentence for Salaoos, the ten years in chains for December and Baatjoe and the life imprisonment in the Company battery for Limoeijko that were recommended in the *eijsch. *The *eijsch *and the testimonies of the accused and the burgher *ratelwacht* are in CJ 357, ff. 415-33.
 
-[^3]:  Fishing was an important economic activity among the free black community at the Cape and small fishing boats were often collectively owned by several families (Elphick & Shell 1989: 223; Mentzel 1925: 88).
+[^3]: Fishing was an important economic activity among the free black community at the Cape and small fishing boats were often collectively owned by several families (Elphick & Shell 1989: 223; Mentzel 1925: 88).
 
-[^4]:  See note 2 above.
+[^4]: See note 2 above.

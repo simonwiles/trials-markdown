@@ -62,28 +62,28 @@ Their faithful and obedient servant, Jean du Thuile. The superscription \[i.e. a
 
 [^2]: For this procedure, see 1788 David Malan Davidsz, n. 15.
 
-[^3]:  For the process of this case between its first appearance in the Council of Justice on 19 January 1708 and the passing of the death sentence on 5 July 1708, see CJ 4, ff. 4, 6, 7v, 9v, 12, 44 (reporting De Thuilot’s desertion), 45r-v (payment of *amende* fine) and 48 (death sentence). The documentation also includes the *eijsch, *the letter of Jan de Thuilot in French, with the Dutch translation reproduced here, and the examination of Christiaan Uijker, CJ 312, documents 27-31. Additional information about this case, based on the Stellenbosch criminal records, is given in Biewenga 1999: 113-14. The case, and the background to it, is discussed by Franken 1978: 128-34, who also includes a transcription and linguistic analysis of De Thuilot’s original French letter.
+[^3]: For the process of this case between its first appearance in the Council of Justice on 19 January 1708 and the passing of the death sentence on 5 July 1708, see CJ 4, ff. 4, 6, 7v, 9v, 12, 44 (reporting De Thuilot’s desertion), 45r-v (payment of *amende* fine) and 48 (death sentence). The documentation also includes the *eijsch, *the letter of Jan de Thuilot in French, with the Dutch translation reproduced here, and the examination of Christiaan Uijker, CJ 312, documents 27-31. Additional information about this case, based on the Stellenbosch criminal records, is given in Biewenga 1999: 113-14. The case, and the background to it, is discussed by Franken 1978: 128-34, who also includes a transcription and linguistic analysis of De Thuilot’s original French letter.
 
 [^4]: Jan van As was executed (by shooting) in 1688 for stock theft and murder of a slave boy. Upham (1997-9) suggests that the death sentence was passed because of Jan’s mestizo origins and because of the severity with which the authorities regarded stock theft. The three other burghers who killed slaves in the seventeenth century were given sentences ranging from fines to banishment (De Wet 1981: 160-61; Upham 1997: 7-8). For similar examples in the eighteenth century, see 1729 Jan Botma and 1749 Jan Lategaan. The next such case, that of Willem Gebhardt, only took place in 1824 (Cairns 1984).
 
 [^5]: De Thuilot was never found and the following year his estate was sequestrated and his farm sold (Franken 1978: 134). De Kock (1950: 190-91) suggests that he might have fled on one of the Company ships.
 
-[^6]:  *Sic* for *ex superabundantia*. By law people were allowed three chances, but a fourth one was added ‘in superabundance’.
+[^6]: *Sic* for *ex superabundantia*. By law people were allowed three chances, but a fourth one was added ‘in superabundance’.
 
-[^7]:  According to Franken (1978: 131) this is one of two mistakes in the Dutch translation of the French: the Dutch text here says ‘omtrent den avond’ (around evening), but it should be ‘at sunrise’.
+[^7]: According to Franken (1978: 131) this is one of two mistakes in the Dutch translation of the French: the Dutch text here says ‘omtrent den avond’ (around evening), but it should be ‘at sunrise’.
 
-[^8]:  The end of the paper is slightly damaged here. The missing letters have been supplied in square brackets.
+[^8]: The end of the paper is slightly damaged here. The missing letters have been supplied in square brackets.
 
-[^9]:  Translation of *provisie*, meaning that one is allowed to omit certain parts of the legal process, in this case the presence of the accused. This case is similar in this technical sense to 1788 David Malan Davidsz.
+[^9]: Translation of *provisie*, meaning that one is allowed to omit certain parts of the legal process, in this case the presence of the accused. This case is similar in this technical sense to 1788 David Malan Davidsz.
 
-[^10]:  See note 6 above.
+[^10]: See note 6 above.
 
-[^11]:  A type of rifle (which went out of fashion in the course of the eighteenth century) with a long barrel which was put on a stand when shooting. Being killed in this way was considered a more honourable death than by hanging.
+[^11]: A type of rifle (which went out of fashion in the course of the eighteenth century) with a long barrel which was put on a stand when shooting. Being killed in this way was considered a more honourable death than by hanging.
 
-[^12]:  The Orphan Chamber which, apart from administering the inheritance of orphans until they reached their majority, also operated as a poor fund (Visagie 1969: 56-62; De Wet 1981: 172-73). This probably explains why half of De Thuilot’s estate was donated to it.
+[^12]: The Orphan Chamber which, apart from administering the inheritance of orphans until they reached their majority, also operated as a poor fund (Visagie 1969: 56-62; De Wet 1981: 172-73). This probably explains why half of De Thuilot’s estate was donated to it.
 
-[^13]:  The original also has this mixture of singular and plural as regards the slave.
+[^13]: The original also has this mixture of singular and plural as regards the slave.
 
-[^14]:  Throughout his letter, Jan de Thuilot refers to Christiaan Uijker or Uker as ‘Pomerijntje’, literally ‘little Pomeranian’. Uijker was born in Pomerania (the regions of north-eastern Germany and northern Poland bordering on the Baltic) and arrived in 1693 at the Cape, where he eventually came into possession of a farm close to that of De Thuilot (Franken 1978: 129-30).
+[^14]: Throughout his letter, Jan de Thuilot refers to Christiaan Uijker or Uker as ‘Pomerijntje’, literally ‘little Pomeranian’. Uijker was born in Pomerania (the regions of north-eastern Germany and northern Poland bordering on the Baltic) and arrived in 1693 at the Cape, where he eventually came into possession of a farm close to that of De Thuilot (Franken 1978: 129-30).
 
-[^15]:  The Dutch translation is wrong here (Franken 1978: 131). It says: “Barent *pretended* to say good night to me, but I did not understand it”, but after this only Pomerijntje remained to torment the slaves, and Barent disappeared from the scene. It seems as if Barent was leaving and waved or made a sign to Du Thuilot saying goodnight, which he did not understand, which would explain why Barent disappeared and only Pomerijntje was left.
+[^15]: The Dutch translation is wrong here (Franken 1978: 131). It says: “Barent *pretended* to say good night to me, but I did not understand it”, but after this only Pomerijntje remained to torment the slaves, and Barent disappeared from the scene. It seems as if Barent was leaving and waved or made a sign to Du Thuilot saying goodnight, which he did not understand, which would explain why Barent disappeared and only Pomerijntje was left.

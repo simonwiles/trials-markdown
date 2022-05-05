@@ -148,22 +148,22 @@ Honourable Lord.[^13]
 
 [^3]: The *eijsch *and testimonies are in CJ 354, ff. 459-99. The testimonies of the eight accused are mostly very similar and repetitive, but we publish here those of Januarij van Boegies and Baatjoe van Samboua who between them relate the story, as well as that of Ds. le Sueur, who provides some details from the ‘other side’. The accused claimed in their defence that they ‘niet geweeten te hebben dat er in ’t weg neemen van den schuijt soo veel quaad stak’ (did not know that it was so wrong to take away the boat). They were sentenced to be whipped and to be returned to their owners to work in chains for three years, CJ 28, ff. 81-4. This was considerably milder than the death sentence recommended in the *eijsch*.
 
-[^4]:  The document ends here like this, with no signature, which means it must have been a rough copy.
+[^4]: The document ends here like this, with no signature, which means it must have been a rough copy.
 
-[^5]:  Meaning Cape Town.
+[^5]: Meaning Cape Town.
 
-[^6]:  ‘Kloof’ probably refers to what is now known as Kloofnek. This was probably the house of the flagman on Lion’s Head, which was a meeting place of slaves and suspected runaways (see 1736 Table Valley slaves, n. 7.).
+[^6]: ‘Kloof’ probably refers to what is now known as Kloofnek. This was probably the house of the flagman on Lion’s Head, which was a meeting place of slaves and suspected runaways (see 1736 Table Valley slaves, n. 7.).
 
-[^7]:  Frans le Sueur arrived at the Cape in 1729 and worked as a minister until his early retirement because of ill health in 1744. He acquired a farm at Rondebosch but his testimony here shows that he had placed a slave *mandoor* and another slave on a second farm in Hout Bay, VOC 5910, ff. 6 and 13; DSAB IV: 308-9.
+[^7]: Frans le Sueur arrived at the Cape in 1729 and worked as a minister until his early retirement because of ill health in 1744. He acquired a farm at Rondebosch but his testimony here shows that he had placed a slave *mandoor* and another slave on a second farm in Hout Bay, VOC 5910, ff. 6 and 13; DSAB IV: 308-9.
 
-[^8]:  A type of small anchor.
+[^8]: A type of small anchor.
 
-[^9]:  On *koeli geld* and the problems faced by Cape Town slaves who were unable to get it for their owners, see 1718 Doulat van Balij, n. 5 and 1737 Januarij van Tutocorijn.
+[^9]: On *koeli geld* and the problems faced by Cape Town slaves who were unable to get it for their owners, see 1718 Doulat van Balij, n. 5 and 1737 Januarij van Tutocorijn.
 
-[^10]:  Theoretically slaves were not allowed to wear shoes. Although there were exceptions, it seems as if in practice most slaves had to go barefoot (De Kock 1950: 49; Schoeman 2001: 534).
+[^10]: Theoretically slaves were not allowed to wear shoes. Although there were exceptions, it seems as if in practice most slaves had to go barefoot (De Kock 1950: 49; Schoeman 2001: 534).
 
-[^11]:  This term is sometimes used in court documents to refer to the prosecutor (either the fiscal or landdrost) as the *eijsch* they drew up was in effect a petition against the defendants in a case.
+[^11]: This term is sometimes used in court documents to refer to the prosecutor (either the fiscal or landdrost) as the *eijsch* they drew up was in effect a petition against the defendants in a case.
 
-[^12]:  Pieces of wood cut in the form of a bent knee, which support horizontal planks (Gawronski 1996: 133).
+[^12]: Pieces of wood cut in the form of a bent knee, which support horizontal planks (Gawronski 1996: 133).
 
-[^13]:  See note 4 above.
+[^13]: See note 4 above.

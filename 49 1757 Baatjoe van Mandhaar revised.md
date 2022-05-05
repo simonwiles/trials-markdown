@@ -58,14 +58,14 @@ Let the execution be done, \[signed\] R. Tulbagh.
 
 [^4]: The *geweldiger* arrived at the house when called to do so by Broderik, and brought with him eight *caffers*,* *whom he commanded during the operation*, *CJ 369, ff. 511-15. For the *caffers* and their role, see 1719 Jonas van Manado, n. 13.
 
-[^5]:  According to other testimonies in this case, Baatjoe was sick and was waiting for medication from the doctor (CJ 369 f. 507v). Baatjoe stated in his interrogation that he refused to come down because he heard his owner say that he was lazy and that he wanted to beat him to death, CJ 369, ff. 519 and 522v.
+[^5]: According to other testimonies in this case, Baatjoe was sick and was waiting for medication from the doctor (CJ 369 f. 507v). Baatjoe stated in his interrogation that he refused to come down because he heard his owner say that he was lazy and that he wanted to beat him to death, CJ 369, ff. 519 and 522v.
 
-[^6]:  This is a very rare mention of artisan training among Cape Town’s burgher population. It is noteworthy that the apprentices slept in the attic together with the slaves but that one of them, Frederick Huijsheer, is referred to in the *regtsrollen* as a burgher, CJ 39, f. 118. On artisans at the Cape, see De Wet 1981: 62-76 and Worden 2002a.
+[^6]: This is a very rare mention of artisan training among Cape Town’s burgher population. It is noteworthy that the apprentices slept in the attic together with the slaves but that one of them, Frederick Huijsheer, is referred to in the *regtsrollen* as a burgher, CJ 39, f. 118. On artisans at the Cape, see De Wet 1981: 62-76 and Worden 2002a.
 
-[^7]:  While by this stage Creole Portuguese was common as a contact language amongst Cape slaves, knowledge of it was not so widespread amongst settlers; see the discussion of this in 1763 Christina Strang, n. 12.
+[^7]: While by this stage Creole Portuguese was common as a contact language amongst Cape slaves, knowledge of it was not so widespread amongst settlers; see the discussion of this in 1763 Christina Strang, n. 12.
 
-[^8]:  According to the testimony of Jan Christoffel Broderik, these included the surgeon Francois van Nirop, who told Baatjoe to come down in Malay, CJ 369, f. 508v.
+[^8]: According to the testimony of Jan Christoffel Broderik, these included the surgeon Francois van Nirop, who told Baatjoe to come down in Malay, CJ 369, f. 508v.
 
-[^9]:  The fire-gable (*brandgeevel) *was the central gable above the front door which prevented burning thatch from falling on people escaping from the house, or from scorching the front door. It usually also included windows which let light into the attic. We are grateful to Antonia Malan for this information.
+[^9]: The fire-gable (*brandgeevel) *was the central gable above the front door which prevented burning thatch from falling on people escaping from the house, or from scorching the front door. It usually also included windows which let light into the attic. We are grateful to Antonia Malan for this information.
 
-[^10]:  The charge of attack on Baatjoe’s owner, the *burgerwacht*, servants of the court and other persons, as well as the wounding of two servants and the burgher Frederick Huijsheer and the sentence, was recorded in the *rollen*, CJ 39, ff. 117-20. In his cross-examination, Baatjoe stated that he knew he had done wrong but that ‘ik kan het niet helpen, en laat het aan de groote heeren over’ (I cannot help it and I leave it in the hands of the important lords), CJ 369, f. 522v.
+[^10]: The charge of attack on Baatjoe’s owner, the *burgerwacht*, servants of the court and other persons, as well as the wounding of two servants and the burgher Frederick Huijsheer and the sentence, was recorded in the *rollen*, CJ 39, ff. 117-20. In his cross-examination, Baatjoe stated that he knew he had done wrong but that ‘ik kan het niet helpen, en laat het aan de groote heeren over’ (I cannot help it and I leave it in the hands of the important lords), CJ 369, f. 522v.

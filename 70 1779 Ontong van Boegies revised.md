@@ -164,14 +164,14 @@ Stellenbosch, 8 May 1779.
 
 [^2]: Other testimonies included were those of Johannes Nieuwout, Pieter Engelbrecht and Arij Visagie, and the interrogation of Ontong van Boegies, CJ 413, ff. 297-329.
 
-[^3]:  This is probably a variation of the Dutch *moerneuker*, ‘motherfucker’, common at the Cape in both its Dutch and Portuguese forms (see 1761 Johan Spring in ’t Veld, n. 3).
+[^3]: This is probably a variation of the Dutch *moerneuker*, ‘motherfucker’, common at the Cape in both its Dutch and Portuguese forms (see 1761 Johan Spring in ’t Veld, n. 3).
 
-[^4]:  A *boslemmermes* is described as a ‘hunting knife’ but at the Cape this knife – which had a short, usually curved, blade – was used especially for the harvesting of grapes. From the 1790s, with the re-establishment of the Hernhutt mission at Genadendal, it was produced there and became known in Afrikaans as a *Genadendalmes* or *herneutermes* (Scholtz 1965: 158; Boshoff & Nienaber 1967: 283; Balie 1988: 61-2).
+[^4]: A *boslemmermes* is described as a ‘hunting knife’ but at the Cape this knife – which had a short, usually curved, blade – was used especially for the harvesting of grapes. From the 1790s, with the re-establishment of the Hernhutt mission at Genadendal, it was produced there and became known in Afrikaans as a *Genadendalmes* or *herneutermes* (Scholtz 1965: 158; Boshoff & Nienaber 1967: 283; Balie 1988: 61-2).
 
-[^5]:  These are called *pikolan* in both Malay and modern Indonesian and were used to carry baskets or buckets of water over the shoulders. The Afrikaans verb *piekel*, ‘to lug, carry’, originates from this (Boshoff & Nienaber 1967: 497).
+[^5]: These are called *pikolan* in both Malay and modern Indonesian and were used to carry baskets or buckets of water over the shoulders. The Afrikaans verb *piekel*, ‘to lug, carry’, originates from this (Boshoff & Nienaber 1967: 497).
 
-[^6]:  The *eijsch* recommended death by hanging, CJ 413, vol. 1, f. 295.
+[^6]: The *eijsch* recommended death by hanging, CJ 413, vol. 1, f. 295.
 
-[^7]:  The case was first brought to the Council of Justice on 22 April 1779. Ontong said he did not deserve punishment, and the case was held over for further consideration until 6 May when the sentence above was passed, CJ 61, ff. 22-3. However, Adonis’s change of testimony, received on the same day, probably delayed the execution, which only took place on 15 May.
+[^7]: The case was first brought to the Council of Justice on 22 April 1779. Ontong said he did not deserve punishment, and the case was held over for further consideration until 6 May when the sentence above was passed, CJ 61, ff. 22-3. However, Adonis’s change of testimony, received on the same day, probably delayed the execution, which only took place on 15 May.
 
-[^8]:  An intriguing indication of the concept that the spilling of ‘innocent blood’ (including that of slaves) could bring misfortune not only to the perpetrator, but also to his descendants. It echoes Matthew 27:25, and may show how some Biblical injunctions were part of the mental world of Cape burghers.
+[^8]: An intriguing indication of the concept that the spilling of ‘innocent blood’ (including that of slaves) could bring misfortune not only to the perpetrator, but also to his descendants. It echoes Matthew 27:25, and may show how some Biblical injunctions were part of the mental world of Cape burghers.

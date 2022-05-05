@@ -74,14 +74,14 @@ In my presence, \[signed\] C.L. Neethling, secretary.
 
 [^4]: For example, Genovese 1970: 327-65 on the United States and Worden 1985: 90 on the Cape. Examples, in this collection, of house slaves on Cape farmsteads are Hector van de Caab (in 1786 Augustus van de Caab et al.), Adam (in 1786 October van Madagascar et al.) and possibly also Alij (in 1776 Julij van Timor). This case is rather ambiguous. Thomas’s scornful reference to Gedult as ‘een oude huijsjongen’ (an old house *jongen*) shows a perceived distinction, while his expectation that Gedult should prevent fighting between the others slaves suggests that Gedult had a supervisory role over them. This might have been because his age gave him authority (as with September in 1760 Achilles van de West Cust et al.). However, the fact that Gedult is ordered by his owner to clay the threshing floor with Thomas shows that work was not strictly partitioned between them. The separation of sleeping places is a more striking divide.
 
-[^5]:  The lending or hiring of slaves to help out with the harvest on other farms was a common occurrence, especially, as in this case, between kin, Worden 1985: 25-6 and 87-8. See 1745 Cupido van Bengalen for another instance of this.
+[^5]: The lending or hiring of slaves to help out with the harvest on other farms was a common occurrence, especially, as in this case, between kin, Worden 1985: 25-6 and 87-8. See 1745 Cupido van Bengalen for another instance of this.
 
-[^6]:  Thomas stated that there was no water in the slave house although this may have been only an excuse for him to enter the main house. According to his testimony, Gedult was angered by his repeated entering of the house for water during the night, CJ 397, ff. 40v-41, interrogation of Thomas van Tutocorijn, articles 14 and 16. He also stated that Gedult had scornfully addressed him as ‘gij met de ketting’ (you with the chain), which suggests Gedult was taunting Thomas for being in chains, but there is no further evidence about this.
+[^6]: Thomas stated that there was no water in the slave house although this may have been only an excuse for him to enter the main house. According to his testimony, Gedult was angered by his repeated entering of the house for water during the night, CJ 397, ff. 40v-41, interrogation of Thomas van Tutocorijn, articles 14 and 16. He also stated that Gedult had scornfully addressed him as ‘gij met de ketting’ (you with the chain), which suggests Gedult was taunting Thomas for being in chains, but there is no further evidence about this.
 
-[^7]:  Her words were ‘wat wil dat seggen, dat de jongens hier slaapen?’ (what does this mean, that the *jongens* are sleeping here?), CJ 397 f. 15v, testimony of Adriana Debits.
+[^7]: Her words were ‘wat wil dat seggen, dat de jongens hier slaapen?’ (what does this mean, that the *jongens* are sleeping here?), CJ 397 f. 15v, testimony of Adriana Debits.
 
-[^8]:  Thomas claimed that he ran away because he was afraid (presumably of punishment) after he had threatened his owner with a knife, CJ 397, f. 53, interrogation of Thomas van Tutocorijn, article 89.
+[^8]: Thomas claimed that he ran away because he was afraid (presumably of punishment) after he had threatened his owner with a knife, CJ 397, f. 53, interrogation of Thomas van Tutocorijn, article 89.
 
-[^9]:  Thomas denied this, saying that Eva’s claims ‘sijn leugens’ (are lies). Under interrogation he claimed that he had only wanted to frighten his mistress, CJ 397, f. 54, interrogation of Thomas van Tutocorijn, articles 94 and 96.
+[^9]: Thomas denied this, saying that Eva’s claims ‘sijn leugens’ (are lies). Under interrogation he claimed that he had only wanted to frighten his mistress, CJ 397, f. 54, interrogation of Thomas van Tutocorijn, articles 94 and 96.
 
-[^10]:  This sentence was recorded in the *regtsrollen*, CJ 52, ff. 6-8. The court rejected the recommendation of the *eijsch* that Thomas van Tutocorijn be hanged, CJ 397, ff. 13v-14.
+[^10]: This sentence was recorded in the *regtsrollen*, CJ 52, ff. 6-8. The court rejected the recommendation of the *eijsch* that Thomas van Tutocorijn be hanged, CJ 397, ff. 13v-14.

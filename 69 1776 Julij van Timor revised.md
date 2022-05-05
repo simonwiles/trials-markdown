@@ -104,7 +104,7 @@ Let the execution be done, \[signed\] Jm. van Plettenburg.
 
 In my presence, \[signed\] C.L. Neethling, secretary.
 
-[^1]:  Julij gave his name as Julij van Boegies in his interrogation, CJ 410, f. 305, article 1, and was referred to as such in the *regtsrollen* and the *sententie*, but in all of the documentation in the Stellenbosch landdrost archive he is consistently called Julij van Timor. This is an indication of the inconsistency of slave toponyms.
+[^1]: Julij gave his name as Julij van Boegies in his interrogation, CJ 410, f. 305, article 1, and was referred to as such in the *regtsrollen* and the *sententie*, but in all of the documentation in the Stellenbosch landdrost archive he is consistently called Julij van Timor. This is an indication of the inconsistency of slave toponyms.
 
 [^2]: In his interrogation, Julij stated that he worked as a blacksmith on the Ehlers farm, CJ 410, f. 305, article 1 and this explains why he was sold on approval. Presumably his skills as a smith needed to be tested and proved. Artisans at the Cape often had slaves with particular skills (Shell 1994: 164-65, and see 1719 Jonas van Manado and 1757 Baatjoe van Mandhaar for other examples). On the hiring of artisan slaves, see De Kock 1950: 57-8, Schoeman 2001: 585-86; and 1794 Abraham van Maccassar, n. 5.
 
@@ -112,20 +112,20 @@ In my presence, \[signed\] C.L. Neethling, secretary.
 
 [^4]: The case came to court in August, since Julij steadfastly denied guilt. The paragraph at the end of the *sententie *states that he was finally ‘judicially convinced’ of his guilt, which may indicate that he was tortured. Documentation for the case included the *eijsch *(dated 20 June 1776), two testimonies of Johann Ehlers, and testimonies of Christoffel Davel, Jan Wagenmaker of Bergen op den Zoom, Johanna Catharina Nel, Ontong van Boegies and Julij van Timor, CJ 410, ff. 257-316.
 
-[^5]:  In the *sententie* it is spelled *Tafel*: the letters *d* and *t* were often interchanged in the eighteenth century.
+[^5]: In the *sententie* it is spelled *Tafel*: the letters *d* and *t* were often interchanged in the eighteenth century.
 
-[^6]:  At first the scribe wrote *hebbende*, and then wrote *had* over the first part of the word without deleting the rest.
+[^6]: At first the scribe wrote *hebbende*, and then wrote *had* over the first part of the word without deleting the rest.
 
-[^7]:  *Sic*. Clearly *’t slavenhuijs* is meant.
+[^7]: *Sic*. Clearly *’t slavenhuijs* is meant.
 
-[^8]:  See 1775 Moses van de Caab, n. 7.
+[^8]: See 1775 Moses van de Caab, n. 7.
 
-[^9]:  Literally ‘pre/before son’. Children born to a person before his or her marriage were called *voorkinderen*, but so too children brought into a marriage by one or the other of the spouses from a previous one, as in this case. Ehlers was married to Johanna Catharina Nel who had nine children by her previous husband, Johann Christian Davel (Hoge 1946: 68 and 85).
+[^9]: Literally ‘pre/before son’. Children born to a person before his or her marriage were called *voorkinderen*, but so too children brought into a marriage by one or the other of the spouses from a previous one, as in this case. Ehlers was married to Johanna Catharina Nel who had nine children by her previous husband, Johann Christian Davel (Hoge 1946: 68 and 85).
 
-[^10]:  Assuming that *sheur* is *scheur*, and that this was a synonym for *schede* (which interpretation is supported by the *sententie* where the word *schede* is used).
+[^10]: Assuming that *sheur* is *scheur*, and that this was a synonym for *schede* (which interpretation is supported by the *sententie* where the word *schede* is used).
 
-[^11]:  This must have been a literal reference to Julij’s shortness, since he was 26 years old.
+[^11]: This must have been a literal reference to Julij’s shortness, since he was 26 years old.
 
-[^12]:  On the night before he was taken prisoner, Julij went to the house of his previous owner, Coenraad Eb, in Cape Town and told one of the slaves there that he had done *quaad* (literally ‘evil’ or ‘bad’) on his owner’s farm and had stabbed the *knecht* and the son of his owner. He added, however, that he did not mean to harm them, but wanted only to have hurt his *baas*, CJ 410, ff. 296-97, testimony of Johan Ehlers, 13 May 1776.
+[^12]: On the night before he was taken prisoner, Julij went to the house of his previous owner, Coenraad Eb, in Cape Town and told one of the slaves there that he had done *quaad* (literally ‘evil’ or ‘bad’) on his owner’s farm and had stabbed the *knecht* and the son of his owner. He added, however, that he did not mean to harm them, but wanted only to have hurt his *baas*, CJ 410, ff. 296-97, testimony of Johan Ehlers, 13 May 1776.
 
-[^13]:  This was the sentence called for in the *eijsch *and it was recorded in the *regtsrollen *on 1 August, CJ 58, ff. 24-5. It is not clear why it was not executed until 10 August, since punishments were usually administered within two days of sentencing.
+[^13]: This was the sentence called for in the *eijsch *and it was recorded in the *regtsrollen *on 1 August, CJ 58, ff. 24-5. It is not clear why it was not executed until 10 August, since punishments were usually administered within two days of sentencing.

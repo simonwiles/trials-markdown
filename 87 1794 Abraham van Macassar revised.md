@@ -36,10 +36,10 @@ Which I declare, \[signed\] J. Wege, secretary.
 
 [^3]: Abraham was wounded on his recapture and the surgeon reported that he was unlikely to live much longer. He confessed to causing the fire, in order to force his owner out of the house and to kill him. Taking precedent from a case in 1728 (the details of which were forwarded to the Council of Justice), the Stellenbosch landdrost then decided to have Abraham immediately executed outside the Stellenbosch prison, CJ 449, ff. 395-96 and CJ 76, f. 74. For this principle of *periculum in mora*, see 1760 Achilles van de West Cust, n. 12. Other records sent to the Council of Justice included the testimonies of Matthiam Hoffman, Josias Hoffman, a surgeon’s report on Abraham’s wounds and a record of his cross-examination, CJ 449, ff. 397-435.
 
-[^4]:  The original contains no main verb of which ‘the testifier’ could be the subject, but presumably something like that supplied is meant.
+[^4]: The original contains no main verb of which ‘the testifier’ could be the subject, but presumably something like that supplied is meant.
 
-[^5]:  Abraham was a bricklayer or mason, according to the testimony of Matthiam Hoffman, and had presumably been lent or hired out for the day. Hoffman also added the detail that he came back to his owner’s farm, but had failed to report his presence to his owner, CJ 449, f. 405. For slave hiring, see 1776 Julij van Timor, n. 2.
+[^5]: Abraham was a bricklayer or mason, according to the testimony of Matthiam Hoffman, and had presumably been lent or hired out for the day. Hoffman also added the detail that he came back to his owner’s farm, but had failed to report his presence to his owner, CJ 449, f. 405. For slave hiring, see 1776 Julij van Timor, n. 2.
 
-[^6]:  For his tobacco pipe, according to the testimony of Matthiam Hofman, CJ 449, f. 406.
+[^6]: For his tobacco pipe, according to the testimony of Matthiam Hofman, CJ 449, f. 406.
 
-[^7]:  *Sic*. The brother’s name was Josias.
+[^7]: *Sic*. The brother’s name was Josias.

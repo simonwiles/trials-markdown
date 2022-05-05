@@ -84,10 +84,10 @@ As delegates, \[signed\] P.G. Wium, C. Joël Ackerman.
 
 In my presence, \[signed\] J.P. Faure, secretary.
 
-[^1]:  Paper money was new at the Cape, only becoming fully legal in 1782, *Kaapse Plakkaatboek *III: 134-36 (30 April 1782). See 1785 Spadilje van Siam and 1786 October van Madagascar et al. for other references.
+[^1]: Paper money was new at the Cape, only becoming fully legal in 1782, *Kaapse Plakkaatboek *III: 134-36 (30 April 1782). See 1785 Spadilje van Siam and 1786 October van Madagascar et al. for other references.
 
-[^2]:  George Ernest Faustman became the messenger of the Stellenbosch landdrost in 1786 and died there the year after this case (Hoge 1946: 94).
+[^2]: George Ernest Faustman became the messenger of the Stellenbosch landdrost in 1786 and died there the year after this case (Hoge 1946: 94).
 
-[^3]:  This did not have a racial connotation: Rosetta was ‘van de Caab’. By the 1790s, the word ‘African’ was being used to describe both slaves and settlers who were born at the Cape: by the late eighteenth century there was a growing creolised slave population. It is noteworthy that a slave who was not from the Cape noticed and described Rosetta in this way, perhaps an indication of the existence of different ethnic identities amongst slaves (compare 1763 Christina Strang, n. 6).
+[^3]: This did not have a racial connotation: Rosetta was ‘van de Caab’. By the 1790s, the word ‘African’ was being used to describe both slaves and settlers who were born at the Cape: by the late eighteenth century there was a growing creolised slave population. It is noteworthy that a slave who was not from the Cape noticed and described Rosetta in this way, perhaps an indication of the existence of different ethnic identities amongst slaves (compare 1763 Christina Strang, n. 6).
 
-[^4]:  Domus had been chief surgeon at the Cape until his retirement in 1787 (Leibbrandt 1905: 399 and 403-4).
+[^4]: Domus had been chief surgeon at the Cape until his retirement in 1787 (Leibbrandt 1905: 399 and 403-4).

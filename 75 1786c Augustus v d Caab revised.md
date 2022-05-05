@@ -212,32 +212,32 @@ The 28^th^ of September, anno 1786.
 
 [^3]: The documentation in the case includes the *eijsch*, the original pass letters, a letter written in Bugis (f. 703) (described in the inventory of the case documentation as being ‘een Arrabische’ letter and in the sententie as being ‘in Malay letters’) which was the charm Saripa got from Damon and in which the powders were wrapped, as well as correspondence from the Swellendam landdrost, the interrogations of the six accused, testimonies from the ‘Hottentot Capitein’ Adam Prins, his son Piet Prins and also the Khoi Piet Kaalkop and Jan Paerl, the latter of whom was later to become a renowned Khoi prophet (Viljoen 1994), and a list of objects stolen by the accused, CJ 424, ff. 687-878. There is also the examination of Norman (CJ 424, ff. 555-60) and of Johannes Jacobus Fabritius (CJ 424, ff. 563-69), along with a covering report from the fiscal, dated 16 November 1786 (CJ 424, ff. 545-53).
 
-[^4]:  Strictly speaking, a *slagtersbriefje* was a creditor’s note farmers received from butchers in exchange for their stock (Newton-King 1999: 146-47), but here it seems simply to be used as a synonym for the *pad*- or *permissiebriefje* slaves of butchers sent to collect stock would receive from their owners when they set out. See note 7 below.
+[^4]: Strictly speaking, a *slagtersbriefje* was a creditor’s note farmers received from butchers in exchange for their stock (Newton-King 1999: 146-47), but here it seems simply to be used as a synonym for the *pad*- or *permissiebriefje* slaves of butchers sent to collect stock would receive from their owners when they set out. See note 7 below.
 
-[^5]:  This is the abbreviation for the Latin phrase *salva venia*, which means ‘by your leave (for what is to follow)’. Here it is the word *drek* which is considered offensive.
+[^5]: This is the abbreviation for the Latin phrase *salva venia*, which means ‘by your leave (for what is to follow)’. Here it is the word *drek* which is considered offensive.
 
-[^6]:  Because of the special nature of these texts, they have not been edited in any way.
+[^6]: Because of the special nature of these texts, they have not been edited in any way.
 
-[^7]:  This is an unusually precise toponym for a slave from Bengal. It may be that Andries had been obtained from British traders in their Calcutta settlement.
+[^7]: This is an unusually precise toponym for a slave from Bengal. It may be that Andries had been obtained from British traders in their Calcutta settlement.
 
-[^8]:  By law, whenever slaves were transporting goods or travelling on their own, they had to carry a so-called ‘permission letter’ from their owner stating that they were doing this with their permission, *Kaapse Plakkaatboek* II: 10-11 (1709) and III: 30-1 (1760) (the latter was a re-issuing of the former and was the direct result of the Smuts family murders, see 1760 Achilles van de West Cust et al.). These letters always stated that the slave must be allowed to *passeren* and were hence also called *passeerbriefjes* and eventually simply *pas* (Franken 1953: 106-7, which includes a transcript of another such letter). This was, however, not a South African invention, as the same practice was also in place in Dutch Batavia, where the Chinese population even had to pay for their passes and had to carry them at all times (see, for example, Van der Chijs 1886: 251-52).
+[^8]: By law, whenever slaves were transporting goods or travelling on their own, they had to carry a so-called ‘permission letter’ from their owner stating that they were doing this with their permission, *Kaapse Plakkaatboek* II: 10-11 (1709) and III: 30-1 (1760) (the latter was a re-issuing of the former and was the direct result of the Smuts family murders, see 1760 Achilles van de West Cust et al.). These letters always stated that the slave must be allowed to *passeren* and were hence also called *passeerbriefjes* and eventually simply *pas* (Franken 1953: 106-7, which includes a transcript of another such letter). This was, however, not a South African invention, as the same practice was also in place in Dutch Batavia, where the Chinese population even had to pay for their passes and had to carry them at all times (see, for example, Van der Chijs 1886: 251-52).
 
-[^9]:  Usually only the contracted butchers (meat *pachters*) were allowed to trade in meat, in addition to providing the Company and passing ships, but during the 1780s private butchers were also permitted to serve the local market (Wagenaar 1976: 83-4 and 97-8). Van der Poel is known to have been amongst the latter in 1786 (Leibbrandt 1905: 155). These butchers often sent their agents into the interior to trade stock, hence these slaves’ ability to pass themselves off as servants of a butcher (see note 4 above).
+[^9]: Usually only the contracted butchers (meat *pachters*) were allowed to trade in meat, in addition to providing the Company and passing ships, but during the 1780s private butchers were also permitted to serve the local market (Wagenaar 1976: 83-4 and 97-8). Van der Poel is known to have been amongst the latter in 1786 (Leibbrandt 1905: 155). These butchers often sent their agents into the interior to trade stock, hence these slaves’ ability to pass themselves off as servants of a butcher (see note 4 above).
 
-[^10]:  The two letters (with very similar texts) Fabritius wrote have survived, CJ 424, ff. 699-700 and 701-2 and are reproduced here as examples of *padbriefjes*. The 12-year-old Fabritius was born in Semarang (Java) and was living at the Cape with his uncle, Paul Paulsen (CJ 424, ff. 563-64). The letters were written in a very phonetic spelling, riddled with spelling mistakes.
+[^10]: The two letters (with very similar texts) Fabritius wrote have survived, CJ 424, ff. 699-700 and 701-2 and are reproduced here as examples of *padbriefjes*. The 12-year-old Fabritius was born in Semarang (Java) and was living at the Cape with his uncle, Paul Paulsen (CJ 424, ff. 563-64). The letters were written in a very phonetic spelling, riddled with spelling mistakes.
 
-[^11]:  Valentijn van Dapoer was sentenced to be bound to a pole next to the town pump from 7 a.m. to 8 p.m. with a paper on his chest reading ‘Falsaris’ (forger) and then to be sent to Robben Island for five years, CJ 68, ff. 192-93.
+[^11]: Valentijn van Dapoer was sentenced to be bound to a pole next to the town pump from 7 a.m. to 8 p.m. with a paper on his chest reading ‘Falsaris’ (forger) and then to be sent to Robben Island for five years, CJ 68, ff. 192-93.
 
-[^12]:  This person was appointed at the end of the eighteenth century to supervise the improvement of the pass road to the Overberg (Sleigh 1993: 538).
+[^12]: This person was appointed at the end of the eighteenth century to supervise the improvement of the pass road to the Overberg (Sleigh 1993: 538).
 
-[^13]:  Present-day Stormsvlei, halfway between Riviersonderend and Swellendam.
+[^13]: Present-day Stormsvlei, halfway between Riviersonderend and Swellendam.
 
-[^14]:  This is most probably what is now called the Vet River, south of modern-day Riversdal.
+[^14]: This is most probably what is now called the Vet River, south of modern-day Riversdal.
 
-[^15]:  Sebastian Rothmann arrived at the Cape in 1774 and worked as postholder at Rivier Zonder Eijnde until 1779 when he became a burgher. After practising as a tailor, he bought the farm Honingklip in the Swellendam district where this tragedy befell his family. He remarried at the end of 1787 and in 1791-2 held the *pacht* for Cape wines. On him, see Hoge 1946: 347. The moving letter in which he reports his discovery of the carnage on his farm is preserved in CJ 424, ff. 675-77.
+[^15]: Sebastian Rothmann arrived at the Cape in 1774 and worked as postholder at Rivier Zonder Eijnde until 1779 when he became a burgher. After practising as a tailor, he bought the farm Honingklip in the Swellendam district where this tragedy befell his family. He remarried at the end of 1787 and in 1791-2 held the *pacht* for Cape wines. On him, see Hoge 1946: 347. The moving letter in which he reports his discovery of the carnage on his farm is preserved in CJ 424, ff. 675-77.
 
-[^16]:  The Cape-born Maria Elisabeth Rogge.
+[^16]: The Cape-born Maria Elisabeth Rogge.
 
-[^17]:  The Khoi Prins and his men were probably being used as trackers. See 1775 Maart van Bencoule for a similar example.
+[^17]: The Khoi Prins and his men were probably being used as trackers. See 1775 Maart van Bencoule for a similar example.
 
-[^18]:  These sentences, perhaps the most punitive that the Council of Justice could deliver, were recorded in the *regtsrollen* CJ 68, ff. 190-92. August van de Caab and Welkom van Ternate stated that they had not been guilty of murder, but this clearly made no impression on the court.
+[^18]: These sentences, perhaps the most punitive that the Council of Justice could deliver, were recorded in the *regtsrollen* CJ 68, ff. 190-92. August van de Caab and Welkom van Ternate stated that they had not been guilty of murder, but this clearly made no impression on the court.

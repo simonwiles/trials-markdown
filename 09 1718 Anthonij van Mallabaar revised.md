@@ -144,7 +144,7 @@ Article 5: If the said Januarij then fled, and was brought home to his master, a
 
 Answer: That two *jongens* of Jan Steenkamp brought Januarij home, and that Steenkamp also came there shortly thereafter.
 
-Article 6: If it had been at this time that Januarij on the order of his master was chastised by the other *jongens*?   Answer: Yes.
+Article 6: If it had been at this time that Januarij on the order of his master was chastised by the other *jongens*? Answer: Yes.
 
 Article 7: If this *jongen* ran away again afterwards, and was again brought home by the said Steenkamp and Coenraad Boom, and absented himself that very same evening for the third time?
 
@@ -158,7 +158,7 @@ Article 9: If he had given this report to the honourable fiscal of his own volit
 
 Answer: They, the slaves, amongst themselves.
 
-Article 10: Where Januarij was buried and by whom?   Answer: It was not done by the slaves, it must have been done by the *baas*, that they had sought long for the place but could not find it.
+Article 10: Where Januarij was buried and by whom? Answer: It was not done by the slaves, it must have been done by the *baas*, that they had sought long for the place but could not find it.
 
 Article 11: What excuse he could offer for this, his sham?
 
@@ -190,14 +190,14 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 
 [^3]: When slaves had died under unnatural or unusual circumstances, burghers were required by law to inform the authorities, who were then required to inspect the corpses. A *plakkaat* of 1731 specifically mentioned this as a safeguard against owner maltreatment of slaves, *Kaapse Plakkaatboek* II: 149-50. See also 1750 David van Bengalen.
 
-[^4]:  The paragraph between angled brackets is crossed out lightly in the original (but remains perfectly legible).
+[^4]: The paragraph between angled brackets is crossed out lightly in the original (but remains perfectly legible).
 
-[^5]:  This is clearly a mistake by the scribe. The dead slave was Januarij; Anthonij was the accused.
+[^5]: This is clearly a mistake by the scribe. The dead slave was Januarij; Anthonij was the accused.
 
-[^6]:  Underlining in the original.
+[^6]: Underlining in the original.
 
-[^7]:  See note 4 above.
+[^7]: See note 4 above.
 
-[^8]:  See note 5 above.
+[^8]: See note 5 above.
 
-[^9]:  This sentence was also recorded in the *regtsrollen* CJ 7 \[1718\], ff. 59-60.
+[^9]: This sentence was also recorded in the *regtsrollen* CJ 7 \[1718\], ff. 59-60.

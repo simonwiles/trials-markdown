@@ -86,6 +86,6 @@ With my cognisance, \[signed\] J.B. d’Aillij, secretary.
 
 [^1]: CJ 357, f. 462. The evidence given to the Stellenbosh landdrost was sent to the Council of Justice, including that printed here, as well as the testimony of Jacob Pienaar and a post-mortem report on Regina’s body, CJ 357, ff. 460-69. The *regstrollen* recorded the recommendations of the *eijsch *and ordered that Julij van Bengalen be sold under these terms, but there is no record of any further punishment for Jan Lategaan, CJ 31, ff. 106-8. Fines were the usual punishment for owners who severely maltreated their slaves (for example, 1729 Jan Botma).
 
-[^2]:  *Sic*. Should read: ‘van competenten ouderdom’.
+[^2]: *Sic*. Should read: ‘van competenten ouderdom’.
 
-[^3]:  When Khoikhoi were employed on farms, they tended to work as stock herders (although they were also used as field workers), but it is unusual to find a woman in this position. Usually Khoi women were used for domestic service or as child minders, especially in the interior (Elphick & Malherbe 1989: 28-9; Biewenga 1999: 105-8).
+[^3]: When Khoikhoi were employed on farms, they tended to work as stock herders (although they were also used as field workers), but it is unusual to find a woman in this position. Usually Khoi women were used for domestic service or as child minders, especially in the interior (Elphick & Malherbe 1989: 28-9; Biewenga 1999: 105-8).

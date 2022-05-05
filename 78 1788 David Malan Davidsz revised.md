@@ -178,34 +178,34 @@ In my presence, \[signed\] W.S. v. Rijneveld, sworn clerk.
 
 [^1]: He was reported on 3 March 1791 as living ‘op de limiten deezer colonie, omtrent het Kafferland’ (on the borders of this Colony, near Kafferland), CJ 73, ff. 76-7. See also Schutte 1982: 280 for a contemporary report that David and Sara were living with another burgher who had eloped with a Khoi woman. He seems to have returned by 1806 when he applied for permission to obtain freehold land in the Koeberg district (Leibbrandt 1906: 828).
 
-[^2]:  This phrase is written in the margin with no indication where it belongs in the sentence. It is placed where it seems to make most sense.
+[^2]: This phrase is written in the margin with no indication where it belongs in the sentence. It is placed where it seems to make most sense.
 
-[^3]:  *Sic*. It seems as if a verbal phrase such as ‘heeft gestuurt’ has been omitted here.
+[^3]: *Sic*. It seems as if a verbal phrase such as ‘heeft gestuurt’ has been omitted here.
 
-[^4]:  This original text was crossed out and replaced by something on top, which in turn was also crossed out. Since the replacement is illegibly crossed out, the original is preserved – a phrase like this is needed to make sense of the sentence.
+[^4]: This original text was crossed out and replaced by something on top, which in turn was also crossed out. Since the replacement is illegibly crossed out, the original is preserved – a phrase like this is needed to make sense of the sentence.
 
-[^5]:  A mistake by the scribe, as Dorothea Otto is not the *comparant* here, but De Vos.
+[^5]: A mistake by the scribe, as Dorothea Otto is not the *comparant* here, but De Vos.
 
-[^6]:  The text here is corrupt: the phrase ‘voor zijn \[*onleesbaar*\]’ should probably have been crossed out, i.e. it was replaced by ‘voor zijn vendutie’, or vice versa.
+[^6]: The text here is corrupt: the phrase ‘voor zijn \[*onleesbaar*\]’ should probably have been crossed out, i.e. it was replaced by ‘voor zijn vendutie’, or vice versa.
 
-[^7]:  Another mistake, as Malan’s wife is not the *comparant* here, but De Vlaming.
+[^7]: Another mistake, as Malan’s wife is not the *comparant* here, but De Vlaming.
 
-[^8]:  This is written on top of the phrase ‘kennisse te geeven’ with no indication where it should go. It serves to qualify landdrost Bletterman, hence is placed here.
+[^8]: This is written on top of the phrase ‘kennisse te geeven’ with no indication where it should go. It serves to qualify landdrost Bletterman, hence is placed here.
 
-[^9]:  It seems as if the scribe forgot to cross out something here: the part in angled brackets is inserted above the line, but then ‘door de comparant’ should have been deleted.
+[^9]: It seems as if the scribe forgot to cross out something here: the part in angled brackets is inserted above the line, but then ‘door de comparant’ should have been deleted.
 
-[^10]:  On his function, see 1786 Augustus van de Caab et al., n. 12.
+[^10]: On his function, see 1786 Augustus van de Caab et al., n. 12.
 
-[^11]:  Lactating slave women were often used as wet nurses, either to their owner’s children or hired out to other families, as in this case (Shell 1994: 304-12). Sara had given birth to Malan’s child, although whether this was the cause of her present lactation is not clear. See also, on this issue, 1792 Francois de Wet.
+[^11]: Lactating slave women were often used as wet nurses, either to their owner’s children or hired out to other families, as in this case (Shell 1994: 304-12). Sara had given birth to Malan’s child, although whether this was the cause of her present lactation is not clear. See also, on this issue, 1792 Francois de Wet.
 
-[^12]:  See note 6 above.
+[^12]: See note 6 above.
 
-[^13]:  Malan’s marriage was clearly on the rocks by this stage, and the forthcoming auctioning of their goods may have been because of their impending separation – and have given Malan an incentive to elope with Sara.
+[^13]: Malan’s marriage was clearly on the rocks by this stage, and the forthcoming auctioning of their goods may have been because of their impending separation – and have given Malan an incentive to elope with Sara.
 
-[^14]:  The text is corrupt here, with the result that the meaning of this whole sentence is rather opaque.
+[^14]: The text is corrupt here, with the result that the meaning of this whole sentence is rather opaque.
 
-[^15]:  There was clearly no difficulty about Sara being passed off as Malan’s wife, which suggests that colour was not a reliable indicator of free status.
+[^15]: There was clearly no difficulty about Sara being passed off as Malan’s wife, which suggests that colour was not a reliable indicator of free status.
 
-[^16]:  Under Cape criminal procedure, an accused person who could not be found was summonsed to appear before the court up to four times ‘by means of placards and the ringing of a bell’. Failure to do so, as in this case, resulted in permanent banishment (Botha 1962, vol. II: 130). See also 1707 Jan de Thuilot, n. 6.
+[^16]: Under Cape criminal procedure, an accused person who could not be found was summonsed to appear before the court up to four times ‘by means of placards and the ringing of a bell’. Failure to do so, as in this case, resulted in permanent banishment (Botha 1962, vol. II: 130). See also 1707 Jan de Thuilot, n. 6.
 
-[^17]:  The sentence was recorded in CJ 71, ff. 81-2. Control of the estate (which was in considerable disorder) was taken over by the Council of Policy (CJ 71, ff. 82-90), although Elizabeth Malan requested that the sentence be overturned and she be given administration of the estate (Leibbrandt 1906: 814-15, 19 October 1789). A fine of 1000 rixdollars was extracted from the estate on 18 November, CJ 71, ff. 392-96.
+[^17]: The sentence was recorded in CJ 71, ff. 81-2. Control of the estate (which was in considerable disorder) was taken over by the Council of Policy (CJ 71, ff. 82-90), although Elizabeth Malan requested that the sentence be overturned and she be given administration of the estate (Leibbrandt 1906: 814-15, 19 October 1789). A fine of 1000 rixdollars was extracted from the estate on 18 November, CJ 71, ff. 392-96.

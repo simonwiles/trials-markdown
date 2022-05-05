@@ -114,6 +114,6 @@ Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^3]: Van Reenen claimed that the danger to his wife had ‘hem genoegsaam raasende hadde gemaakt’ (made him almost raving with fury). The court was unsympathetic and Van Reenen was found guilty of punishing and tormenting Rachel van de Caab and Joseph van Bengalen without permission; while the court also ordered Rachel to be sold (for Van Reenen’s profit) and never to come into his or his family’s possession, CJ 36, ff. 6-8 and CJ 363, ff. 21-4.
 
-[^4]:  The word *basta* was commonly used, especially but not exclusively, by slaves at the Cape in their Dutch, presumably because of the prevalence of Creole Portuguese as a lingua franca in their speech community. It usually means ‘stop it’, but here seems to be used in the sense of ‘leave it, let it be’. On the use of this word amongst slaves in the eighteenth century, see Franken 1953: 112-13.
+[^4]: The word *basta* was commonly used, especially but not exclusively, by slaves at the Cape in their Dutch, presumably because of the prevalence of Creole Portuguese as a lingua franca in their speech community. It usually means ‘stop it’, but here seems to be used in the sense of ‘leave it, let it be’. On the use of this word amongst slaves in the eighteenth century, see Franken 1953: 112-13.
 
-[^5]:  For the meaning of this, see 1749 Reijnier van Madagasacar, n. 4.
+[^5]: For the meaning of this, see 1749 Reijnier van Madagasacar, n. 4.

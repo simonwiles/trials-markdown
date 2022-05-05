@@ -74,6 +74,6 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^2]: The case was not sent to the Council of Justice. It is possible that since only Carolina could provide somewhat ambiguous evidence against Jephta, it was dismissed by the Stellenbosch landdrost.
 
-[^3]:  The word *moer* is a contraction of Dutch *moeder* and literally means ‘mother’, but was used as a fairly common swearing word at the Cape (Scholtz 1972: 143) and still is today. There seems to be no English equivalent to express the force of this curse.
+[^3]: The word *moer* is a contraction of Dutch *moeder* and literally means ‘mother’, but was used as a fairly common swearing word at the Cape (Scholtz 1972: 143) and still is today. There seems to be no English equivalent to express the force of this curse.
 
-[^4]:  Jephta may have meant by this that he wanted to plant onions in his own garden. See 1770 Jephta van de Caab, n. 1 for slave gardens. It may also be significant that this took place on a Sunday, when he might have expected to be given free time: for this, see 1705 Cinna, n. 2.
+[^4]: Jephta may have meant by this that he wanted to plant onions in his own garden. See 1770 Jephta van de Caab, n. 1 for slave gardens. It may also be significant that this took place on a Sunday, when he might have expected to be given free time: for this, see 1705 Cinna, n. 2.

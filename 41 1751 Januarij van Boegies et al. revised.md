@@ -90,16 +90,16 @@ In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
 [^3]: The documentation in this case also includes the *eijsch* and the testimonies of each of the accused, as well as that of *veldcorporaal* Burgert Van Dijk junior and the burgher Willem Pool, CJ 359, ff. 118-62. For a similar example of ethnic links among slave runaways, see 1760 Achilles van de West Cust et al.
 
-[^4]:  *Sic*. It seems as if the word *met* before ‘het complot’ was omitted.
+[^4]: *Sic*. It seems as if the word *met* before ‘het complot’ was omitted.
 
-[^5]:  In the eighteenth century the verb *rampocken *meant ‘to go plundering and stealing in an armed gang’, derived from the Javanese *rampog*, which is translated as ‘to attack somebody or something with spears’ (Boshoff & Nienaber 1967: 531). It is obviously in this last sense that the word is here used. The use of the verb is not known in modern Dutch or Afrikaans, although the noun *rampokker* (gangster) is still common.
+[^5]: In the eighteenth century the verb *rampocken *meant ‘to go plundering and stealing in an armed gang’, derived from the Javanese *rampog*, which is translated as ‘to attack somebody or something with spears’ (Boshoff & Nienaber 1967: 531). It is obviously in this last sense that the word is here used. The use of the verb is not known in modern Dutch or Afrikaans, although the noun *rampokker* (gangster) is still common.
 
-[^6]:  *Bandieten* were convicts, many of whom were sentenced to hard labour at the Cape from VOC settlements in Asia. They were either imprisoned in the Slave Lodge, as in this case, or on Robben Island (Shell 1994: 195-97; Ward 2002: 224-74).
+[^6]: *Bandieten* were convicts, many of whom were sentenced to hard labour at the Cape from VOC settlements in Asia. They were either imprisoned in the Slave Lodge, as in this case, or on Robben Island (Shell 1994: 195-97; Ward 2002: 224-74).
 
-[^7]:  Padang is a town on the west coast of the island of Sumatra.
+[^7]: Padang is a town on the west coast of the island of Sumatra.
 
-[^8]:  A well-known landmark at the Cape, this Company grazing farm was about eight kilometres north-east of the Castle, approximately where modern-day Milnerton now is (Thunberg 1986: 54).
+[^8]: A well-known landmark at the Cape, this Company grazing farm was about eight kilometres north-east of the Castle, approximately where modern-day Milnerton now is (Thunberg 1986: 54).
 
-[^9]:  Since all of these slaves came from the Indonesian archipelago it is not surprising that they used Malay amongst themselves. On the use of contact languages at the Cape, see 1763 Christina Strang and 1775 Moses van de Caab.
+[^9]: Since all of these slaves came from the Indonesian archipelago it is not surprising that they used Malay amongst themselves. On the use of contact languages at the Cape, see 1763 Christina Strang and 1775 Moses van de Caab.
 
-[^10]:  These sentences were those recommended in the *eijsch* (CJ 359, ff. 124v-25v) and were recorded in the* regtsrollen* after a week’s delay while the documentation was read by the Council, CJ 33, ff. 43-5 and 48-52.
+[^10]: These sentences were those recommended in the *eijsch* (CJ 359, ff. 124v-25v) and were recorded in the* regtsrollen* after a week’s delay while the documentation was read by the Council, CJ 33, ff. 43-5 and 48-52.

@@ -42,4 +42,4 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^2]: *Veldcorporaals*, *veldwagtmeesters* and commandos did not have to obtain permission to act and could institute search parties and execute justice as they saw fit, as long as they gave a report of it later (Newton-King 1999: 66). Athough this is a *relaas*, called for by the landdrost, rather than a letter or report initiated by Marits, there is no record that the matter was taken further.
 
-[^3]:  It is not clear whether this refers to the veld in general, or if it is an abbreviated way of referring to the Roggeveld.
+[^3]: It is not clear whether this refers to the veld in general, or if it is an abbreviated way of referring to the Roggeveld.

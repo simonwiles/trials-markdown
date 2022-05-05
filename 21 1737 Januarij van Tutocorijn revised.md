@@ -82,4 +82,4 @@ Exhibit in court, 12 September 1737.
 
 [^3]: See 1736 Table Valley slaves, for his insistence on stricter controls over slaves in the town. There appears to have been a general scare in and around the town about illicit slave activities in the mid-1730s (see also 1735 Company slaves and 1737 Aron van Madagascar). Certainly the fiscal, Daniel van den Henghel, was particularly earnest about the need to assert tighter control over them.
 
-[^4]:  In fact Januarij was sentenced to be whipped by the *caffers* but then to be returned to his owner with costs, without having to work for the Company, CJ 19, ff. 119-20.
+[^4]: In fact Januarij was sentenced to be whipped by the *caffers* but then to be returned to his owner with costs, without having to work for the Company, CJ 19, ff. 119-20.

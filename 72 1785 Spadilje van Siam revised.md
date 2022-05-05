@@ -60,18 +60,18 @@ In my presence, \[signed\] C.L. Neethling, secretary.
 
 [^3]: For the Hangklip runaway slave community, see 1737 Aron van Madagascar.
 
-[^4]:  The last part of this sentence (from ‘den 1^e\ ^...’ onwards) was added later in a different handwriting, hence the repitition of information.
+[^4]: The last part of this sentence (from ‘den 1^e\ ^...’ onwards) was added later in a different handwriting, hence the repitition of information.
 
-[^5]:  This was Job van Madagascar, who was a deserter for about two years before he was eventually captured in December 1786 and sentenced; see 1786 Job van Madagascar et al. He also features in 1786 October van Madagascar et al.
+[^5]: This was Job van Madagascar, who was a deserter for about two years before he was eventually captured in December 1786 and sentenced; see 1786 Job van Madagascar et al. He also features in 1786 October van Madagascar et al.
 
-[^6]:  In this case ‘False Bay’ refer to the region, while the name ‘Baaij Fals’ denotes the settlement around the outpost at Simon’s Bay (see 1755 Patientie van Manacabo).
+[^6]: In this case ‘False Bay’ refer to the region, while the name ‘Baaij Fals’ denotes the settlement around the outpost at Simon’s Bay (see 1755 Patientie van Manacabo).
 
-[^7]:  In order to provide fresh meat for ships anchoring at Simon’s Bay, the Company was provided with live sheep on a monthly basis by the meat *pachter*. These were kept, and slaughtered as needed, at a purpose-built building, close to the shore (Sleigh 1993: 310, 315).
+[^7]: In order to provide fresh meat for ships anchoring at Simon’s Bay, the Company was provided with live sheep on a monthly basis by the meat *pachter*. These were kept, and slaughtered as needed, at a purpose-built building, close to the shore (Sleigh 1993: 310, 315).
 
-[^8]:  On the recent introduction of paper money into the colony, see 1791 Baatjoe, n. 1.
+[^8]: On the recent introduction of paper money into the colony, see 1791 Baatjoe, n. 1.
 
-[^9]:  According to a description of Baaij Fals three years later, there was a ‘wine house’ there which also served as a brothel (Dawe 2003: 110; see also Sleigh 1993: 306-7).
+[^9]: According to a description of Baaij Fals three years later, there was a ‘wine house’ there which also served as a brothel (Dawe 2003: 110; see also Sleigh 1993: 306-7).
 
-[^10]:  Spadilje was charged on 22 August and confessed his guilt. The case was held over while the documentation was circulated among the members of the Council of Justice until 22 September, when this sentence was passed, CJ 67, ff. 82 and 88. The sentence was that recommended in the *eijsch*, CJ 421, ff. 168-69. Documentation for this case also includes the interrogation of Spadilje and the testimony of Willem Bergh, who was in charge of the Company *slagthuijs*, CJ 421, ff. 171-83.
+[^10]: Spadilje was charged on 22 August and confessed his guilt. The case was held over while the documentation was circulated among the members of the Council of Justice until 22 September, when this sentence was passed, CJ 67, ff. 82 and 88. The sentence was that recommended in the *eijsch*, CJ 421, ff. 168-69. Documentation for this case also includes the interrogation of Spadilje and the testimony of Willem Bergh, who was in charge of the Company *slagthuijs*, CJ 421, ff. 171-83.
 
-[^11]:  See note 4 above.
+[^11]: See note 4 above.

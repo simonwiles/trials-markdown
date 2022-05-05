@@ -110,18 +110,18 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^5]: In addition to those transcribed here, the testimonies collected by the Stellenbsoch landdrost included those of Kuijper van Macassar, Gideon van Zijl and the *Bastaard-Hottentot* Gerrit Obie, 1/STB 3/11, unpaginated.
 
-[^6]:  There is no record of the case in the *regtsrollen*, CJ 57.
+[^6]: There is no record of the case in the *regtsrollen*, CJ 57.
 
-[^7]:  On the meaning of this, see the discussion below, n. 10.
+[^7]: On the meaning of this, see the discussion below, n. 10.
 
-[^8]:  The phrase between angled brackets was crossed out. As it is, the last part of this sentence needs a linking word like *en* or *of*, so the erased phrase would make sense in the sentence.
+[^8]: The phrase between angled brackets was crossed out. As it is, the last part of this sentence needs a linking word like *en* or *of*, so the erased phrase would make sense in the sentence.
 
-[^9]:  On the significance of this, see 1746 Januarij van Boegies, n. 9.
+[^9]: On the significance of this, see 1746 Januarij van Boegies, n. 9.
 
-[^10]:  This utterance, and the one which follows, not only illustrate how these slaves could communicate in both Malay and Portuguese, but also, as pointed out by den Besten, how often dialectical or substandard forms of an unknown language were misunderstood at the Cape: *Amok* is Malay for ‘attack’, *matta* is Creole Portuguese for ‘kill’, but *gara* poses a problem, as the form which Smit, who knew no Malay, heard and reported to the judicial authorities (who left us the only trace of it) is not known in either language. Den Besten suggests it is the Eastern Malay form of *gorok* (in which dialect the final consonant gets deleted), meaning ‘to slash somebody’s throat, to butcher’. This utterance can therefore be translated as: “Attack! Attack! Kill! Slash!” (Den Besten 2004: 89-90).
+[^10]: This utterance, and the one which follows, not only illustrate how these slaves could communicate in both Malay and Portuguese, but also, as pointed out by den Besten, how often dialectical or substandard forms of an unknown language were misunderstood at the Cape: *Amok* is Malay for ‘attack’, *matta* is Creole Portuguese for ‘kill’, but *gara* poses a problem, as the form which Smit, who knew no Malay, heard and reported to the judicial authorities (who left us the only trace of it) is not known in either language. Den Besten suggests it is the Eastern Malay form of *gorok* (in which dialect the final consonant gets deleted), meaning ‘to slash somebody’s throat, to butcher’. This utterance can therefore be translated as: “Attack! Attack! Kill! Slash!” (Den Besten 2004: 89-90).
 
-[^11]:  Creole Portuguese for “Come, come” (Den Besten 2004: 90).
+[^11]: Creole Portuguese for “Come, come” (Den Besten 2004: 90).
 
-[^12]:  It was common in the eighteenth century to refer to somebody by a shortened version of their job title. *Fabriek* probably refers in this way to the *fabriekmeester, *the head of the Company public works. Martinus van Oorden had arrived at the Cape in 1773 and was appointed supervisor for the building of the new Company hospital, in charge of 89 builders (VOC 5222, f. 65 and VOC 6576, f. 197). The slaves appear to have been his personal property, not the Company slaves who worked in the warehouses.
+[^12]: It was common in the eighteenth century to refer to somebody by a shortened version of their job title. *Fabriek* probably refers in this way to the *fabriekmeester, *the head of the Company public works. Martinus van Oorden had arrived at the Cape in 1773 and was appointed supervisor for the building of the new Company hospital, in charge of 89 builders (VOC 5222, f. 65 and VOC 6576, f. 197). The slaves appear to have been his personal property, not the Company slaves who worked in the warehouses.
 
-[^13]:  On the special meaning of this term, see 1739 Jurgen Scholts, n. 8.
+[^13]: On the special meaning of this term, see 1739 Jurgen Scholts, n. 8.

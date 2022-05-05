@@ -48,4 +48,4 @@ In my presence, \[signed\] Jan Mahieu, secretary.
 
 [^4]: The *regtsrollen* and documents in criminal cases for 1709 make no mention of a slave named Samel (CJ 5 and CJ 313).
 
-[^5]:  For an explanation of this, see the Introduction above, p. XX.
+[^5]: For an explanation of this, see the Introduction above, p. XX.

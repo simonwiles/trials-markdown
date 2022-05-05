@@ -310,12 +310,12 @@ In my presence, \[signed\] Dl. Thibault, secretary.
 
 [^3]: See 1744 Barkat van Timor, n. 2 for discussion of this phenomenon.
 
-[^4]:  It appears as if the scribe changed what he was going to write halfway through the sentence: the phrase ‘door zijns meester stiefzoon Gerrit Mos’ is essentially the same as ‘van hem Mos’ – perhaps he meant to have written that Aaron was beaten *by* Mos, but instead wrote that Aaron received blows *from* Mos.
+[^4]: It appears as if the scribe changed what he was going to write halfway through the sentence: the phrase ‘door zijns meester stiefzoon Gerrit Mos’ is essentially the same as ‘van hem Mos’ – perhaps he meant to have written that Aaron was beaten *by* Mos, but instead wrote that Aaron received blows *from* Mos.
 
-[^5]:  Usually the abbreviation for *u edele*, ‘your honourable’, but see 1719 Jonas van Manado, n. 14 for another possibility.
+[^5]: Usually the abbreviation for *u edele*, ‘your honourable’, but see 1719 Jonas van Manado, n. 14 for another possibility.
 
-[^6]:  This refers to the surgeon Daniel Pfeil, who served as *heemraad* of Stellenbosch (Biewenga 1999: 89, 94). He also features prominently above in 1715 Anthonij.
+[^6]: This refers to the surgeon Daniel Pfeil, who served as *heemraad* of Stellenbosch (Biewenga 1999: 89, 94). He also features prominently above in 1715 Anthonij.
 
-[^7]:  The *eijsch* recommended that Aaron be burnt alive ‘tot spectakel en afschrik van anderen’ (as a spectacle and deterrent to others), CJ 321, document 6, but in the event the sentence was changed to that recorded here, CJ 6 \[1717\], ff. 114-15. Such a fate is described by Mentzel: ‘A more painful death is by a process of slow strangulation, while a “kaffir” holds a bundle of burning reeds close to the face’ (1925: 133). The punishment was grimly appropriate for arsonists, those who had played with fire. For a similar case, see 1724 Andries van Ceijlon.
+[^7]: The *eijsch* recommended that Aaron be burnt alive ‘tot spectakel en afschrik van anderen’ (as a spectacle and deterrent to others), CJ 321, document 6, but in the event the sentence was changed to that recorded here, CJ 6 \[1717\], ff. 114-15. Such a fate is described by Mentzel: ‘A more painful death is by a process of slow strangulation, while a “kaffir” holds a bundle of burning reeds close to the face’ (1925: 133). The punishment was grimly appropriate for arsonists, those who had played with fire. For a similar case, see 1724 Andries van Ceijlon.
 
-[^8]:  Cotton was not produced at the Cape, but Aaron’s blanket was most likely a so-called *palempoer*, a thin blanket padded with cotton (like a quilt), commonly used in the East Indies and imported to the Cape for use by both slaves and colonists (see Schoeman 2001: 43 and 416) .
+[^8]: Cotton was not produced at the Cape, but Aaron’s blanket was most likely a so-called *palempoer*, a thin blanket padded with cotton (like a quilt), commonly used in the East Indies and imported to the Cape for use by both slaves and colonists (see Schoeman 2001: 43 and 416) .

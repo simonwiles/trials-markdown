@@ -44,7 +44,7 @@ Interrogatoriën, gedaan maaken en aan d’ edele gecommitteerde leeden uijt den
 
 Compareerde voor ons, ondergetekende gecommitteerdens uijt den edelagtbaare Raad van Justitie deeses gouvernements, September van Boegies, denwelken op de onderstaande vraagpoincten soodanig geantwoord heeft, als beseijden deselve staat aangeteekent.
 
-Articul 1: Hoe sijn gevangens naam, ouderdom en geboorteplaats is?   Antwoord: September van Boegies, oud naar gissing vijftig jaaren.
+Articul 1: Hoe sijn gevangens naam, ouderdom en geboorteplaats is? Antwoord: September van Boegies, oud naar gissing vijftig jaaren.
 
 Articul 2: Wiens lijfeijgen hij gevangen is?
 
@@ -86,7 +86,7 @@ Articul 11: Of die slaven, terwijl in de Blaauwebergs duijnen hun ophielden, nie
 
 Antwoord: Ja.
 
-Articul 12: Hoe dikwils die drossers bij hem gevangen in ’t slavenhuijs geweest sijn?   Antwoord: Twee maal.
+Articul 12: Hoe dikwils die drossers bij hem gevangen in ’t slavenhuijs geweest sijn? Antwoord: Twee maal.
 
 Articul 13: Of niet eens ses, en dan nog eens derthien stux van die drossers bij hem in ’t slavenhuijs geweest sijn?
 
@@ -112,7 +112,7 @@ Articul 18: Of hij gevangen teegens voornd. Julij niet heeft gesegt gehad wat da
 
 Antwoord: Fortuijn heeft het mij voorgesegt.
 
-Articul 19: Of hij gevangen aan Adonis ook geen briefje gegeeven heeft?   Antwoord: Aan Adonis niet, maar Julij heeft een briefje aan Januarij gegeeven.
+Articul 19: Of hij gevangen aan Adonis ook geen briefje gegeeven heeft? Antwoord: Aan Adonis niet, maar Julij heeft een briefje aan Januarij gegeeven.
 
 Articul 20: Wat in dat briefje geschreeven was?
 
@@ -154,7 +154,7 @@ Articul 29: Wat voor onderlinge afspraak zij alstoen onder elkander genoomen heb
 
 Antwoord: Sij hebben teegens mij gesegt: Gaat mee.
 
-Articul 30: Of zulx principaal niet gerouleert heeft om met elkander naar ’t Caffers land te gaan?   Antwoord: Ja.
+Articul 30: Of zulx principaal niet gerouleert heeft om met elkander naar ’t Caffers land te gaan? Antwoord: Ja.
 
 Articul 31: Teegens wat tijd hun voorneemen wel geweest is, die reijse aan te neemen?
 
@@ -164,7 +164,7 @@ Articul 32: Of zulx door hunlieden niet is bestemt geworden teegens dat de garst
 
 Antwoord: Ja.
 
-Articul 33: Wie van hun geselschap soude sijn geweest, die te noemen.   Antwoord: Jacob, Manus, Isaac, Adam, Februarij en November, bijde van Jan le Roux; dog ik gevraagde, heb niet willen mee gaan, en van Matthijs en Gedult weet ik niet af.
+Articul 33: Wie van hun geselschap soude sijn geweest, die te noemen. Antwoord: Jacob, Manus, Isaac, Adam, Februarij en November, bijde van Jan le Roux; dog ik gevraagde, heb niet willen mee gaan, en van Matthijs en Gedult weet ik niet af.
 
 Articul 34: Of hiertoe niet hunne toestemming gegeeven hebben, de voormelde drossende slaven, hij gevraagde, neevens sijne meede slaven: Januarij, Jacob, Isaac, Manus, Matthijs en Gedult, en nog twee slaven van den burger Jan le Roux, Februarij en November genaamt?
 
@@ -178,17 +178,17 @@ Articul 36: Of den slave jongen in naame Cupido, toebehoorende sieur Cruijwagen,
 
 Antwoord: Dien jongen heeft mij gevangen aangesprooken, en gesegt dat, soo ik meede ging, hij Cupido ook gaan soude, dat hij Cupido Hottentots spreeken konde en de weg naar ’t Caffers land wist.
 
-Articul 37: Of hij gevangen, omme nog meer van sijn Boegineese natie aan te zoeken, op den 27 der gepasseerde maand Julij niet aan de Caab zoude gegaan zijn?   Antwoord: Neen.
+Articul 37: Of hij gevangen, omme nog meer van sijn Boegineese natie aan te zoeken, op den 27 der gepasseerde maand Julij niet aan de Caab zoude gegaan zijn? Antwoord: Neen.
 
-Articul 38: Of niet door hem gevangen, en een van de capitains van het complot drossers, afspraak genoomen is omme geweijr te verkrijgen, de plaats van Smuts, de Windmoolen, en Claas Jonas af te loopen?   Antwoord: Neen.
+Articul 38: Of niet door hem gevangen, en een van de capitains van het complot drossers, afspraak genoomen is omme geweijr te verkrijgen, de plaats van Smuts, de Windmoolen, en Claas Jonas af te loopen? Antwoord: Neen.
 
-Articul 39: Of hij gevangen aan den kok Slamat \[*sic*\] niet om kruijt gevraagt heeft?   Antwoord: Neen.
+Articul 39: Of hij gevangen aan den kok Slamat \[*sic*\] niet om kruijt gevraagt heeft? Antwoord: Neen.
 
-Articul 40: Wat die kok hem gevangen daarop voor antwoord gegeven heeft?   Antwoord: Als vooren.
+Articul 40: Wat die kok hem gevangen daarop voor antwoord gegeven heeft? Antwoord: Als vooren.
 
-Articul 41: Of hij gevangen niet voorneemens geweest is, met behulp sijner complicen, omme het daar berustende kruijt magtig te worden, desselfs lijfvrouw de weduwe Heuning den knegt te vermoorden, vervolgens de plaats af te loopen en het zig daar bevindende geweer meede te neemen?   Antwoord: Neen.
+Articul 41: Of hij gevangen niet voorneemens geweest is, met behulp sijner complicen, omme het daar berustende kruijt magtig te worden, desselfs lijfvrouw de weduwe Heuning den knegt te vermoorden, vervolgens de plaats af te loopen en het zig daar bevindende geweer meede te neemen? Antwoord: Neen.
 
-Articul 42: Met wie hij gevangen alhier aan de Caab ten principale conversatie gehouden heeft?   Antwoord: Met eene Maaij Sila, een Chineese vrouw, woonende over de wooning van den slagter Bergman, aan dewelke ik altijd uijen brenge.
+Articul 42: Met wie hij gevangen alhier aan de Caab ten principale conversatie gehouden heeft? Antwoord: Met eene Maaij Sila, een Chineese vrouw, woonende over de wooning van den slagter Bergman, aan dewelke ik altijd uijen brenge.
 
 Articul 43: Of het niet geweest is met een Chineese vrouw, maaij Siele \[*sic*\] genaamt, die hem door Isaac ontbooden heeft?
 
@@ -230,7 +230,7 @@ Articul 52: Of die opschrift niet behelst: Van ’t volk aan September, aan de P
 
 Antwoord: Ik kan niet leesen.
 
-Articul 53: Of hij gevangen niet Bouginees leesen of schrijven kan?   Antwoord: Neen, dog als mij een voorbeeld voorgelegt word, kan ik het naschrijven.
+Articul 53: Of hij gevangen niet Bouginees leesen of schrijven kan? Antwoord: Neen, dog als mij een voorbeeld voorgelegt word, kan ik het naschrijven.
 
 Articul 54: Van wie hem dat briefje is toegesonden?
 
@@ -252,7 +252,7 @@ Articul 58: Of hij gevangen niet als hoofd van sijn complot soude g’ageert heb
 
 Antwoord: Ja, ik ben daartoe door mijn huijs volk versogt geworden, sijnde die slaven genoemt als op articul 33.
 
-Articul 59: Wat reedenen hij gevangen gehad heeft zulke pernicieuse desseinen in ’t werk te stellen?   Antwoord: Ik heb niet willen drossen.
+Articul 59: Wat reedenen hij gevangen gehad heeft zulke pernicieuse desseinen in ’t werk te stellen? Antwoord: Ik heb niet willen drossen.
 
 Articul 60: Of hij gevangen thans niet bekennen moet over het t’ samen spannen en kost geeven aan een complot van 13 à 14 moordenaaren, ’t oprocken sijner meede slaven, mitsgaders ook hun onderlingen voorgenoomene pernicieuse desseinen om na ’t Caffers land op te drossen, eenige plaatsten af te loopen, ’t geweer en kruijt weg te neemen, en al wie haar op weg mog te koomen teegenstaan, te vermoorden, ten hoogsten strafbaar te weesen?
 
@@ -494,7 +494,7 @@ Article 45: If the prisoner, since being a doctor, bandaged the said Baatjoe and
 
 Answer: I spat on the wounds in the Bugis fashion, but I took off the cloth and thereafter bandaged it again with the piece of cloth of Baatjoe.
 
-Article 46: If his fellow slave Januarij is an adopted son of the prisoner?   Answer: Yes.
+Article 46: If his fellow slave Januarij is an adopted son of the prisoner? Answer: Yes.
 
 Article 47: If the prisoner gave Januarij a silver soup spoon, of which the handle was broken off, to take care of?
 
@@ -580,28 +580,28 @@ In my presence, \[signed\] C.L. Neethling, secretary.
 
 [^5]: It was a request for medical assistance. It was not even clear to the court whether September could read and write, and he himself claimed he could not. Koolhof & Ross (2002) point out that the meaning and interpretation of the letter were misinterpreted both by the court and by later historians. The possession of a Bougies letter was also viewed with suspicion and alarm in 1786 Augustus van de Caab et al.
 
-[^6]:  *Sic*. This should read something like: ‘op haar voorseijde plaats, aan de Plattecloof geleegen, bescheijden’.
+[^6]: *Sic*. This should read something like: ‘op haar voorseijde plaats, aan de Plattecloof geleegen, bescheijden’.
 
-[^7]:  *Sic*. A verb such as *waren* is omitted here.
+[^7]: *Sic*. A verb such as *waren* is omitted here.
 
-[^8]:  An alternative name for Devil’s Peak, much used in the eighteenth century.
+[^8]: An alternative name for Devil’s Peak, much used in the eighteenth century.
 
-[^9]:  In his interrogation, Achilles revealed that he had run away from Smuts after being beaten for failing to sell his owner’s vegetables, CJ 373, f. 75, article 7.
+[^9]: In his interrogation, Achilles revealed that he had run away from Smuts after being beaten for failing to sell his owner’s vegetables, CJ 373, f. 75, article 7.
 
-[^10]:  See 1751 Januarij van Boegies, n. 7.
+[^10]: See 1751 Januarij van Boegies, n. 7.
 
-[^11]:  i.e. chopping or working it into lengths of a *roede*.
+[^11]: i.e. chopping or working it into lengths of a *roede*.
 
-[^12]:  In present-day Mitchell’s Plain.
+[^12]: In present-day Mitchell’s Plain.
 
-[^13]:  This is a technical legal phrase meaning ‘there is danger in delay’ or, more succinctly, ‘delaying is dangerous’. The summary execution of some of the wounded slaves by the commando was doubtless in revenge for the Smuts family murders.
+[^13]: This is a technical legal phrase meaning ‘there is danger in delay’ or, more succinctly, ‘delaying is dangerous’. The summary execution of some of the wounded slaves by the commando was doubtless in revenge for the Smuts family murders.
 
-[^14]:  The *sententie* for this case is preserved in CJ 786, document 30.
+[^14]: The *sententie* for this case is preserved in CJ 786, document 30.
 
-[^15]:  These sentences were recorded in the *regtsrollen,* CJ 42, ff. 81-7. After the *eijsch* was read out to them, some of the accused stated that they did not deserve the death sentence. Januarij van Boegies stated that he had escaped and had been with the ‘complot moordernaaren’ (gang of murderers) but that he had committed no murder himself, while Gedult van de Caab stated that he had been forced to commit murder by Januarij van Maccasser and that he had wanted to warn his mistress, but out of fear had not dared to say anything, a claim which Januarij earnestly denied, CJ 42, ff. 81-2.
+[^15]: These sentences were recorded in the *regtsrollen,* CJ 42, ff. 81-7. After the *eijsch* was read out to them, some of the accused stated that they did not deserve the death sentence. Januarij van Boegies stated that he had escaped and had been with the ‘complot moordernaaren’ (gang of murderers) but that he had committed no murder himself, while Gedult van de Caab stated that he had been forced to commit murder by Januarij van Maccasser and that he had wanted to warn his mistress, but out of fear had not dared to say anything, a claim which Januarij earnestly denied, CJ 42, ff. 81-2.
 
-[^16]:  On the use of the respectful term *maaij*, see 1755 Patientie van Manacabo, n. 7.
+[^16]: On the use of the respectful term *maaij*, see 1755 Patientie van Manacabo, n. 7.
 
-[^17]:  Meaning the other slaves attached to that house or farm, an interesting insight into the ways in which a slave identified with the other slaves of his owner’s household.
+[^17]: Meaning the other slaves attached to that house or farm, an interesting insight into the ways in which a slave identified with the other slaves of his owner’s household.
 
-[^18]:  It is not clear why September van Boegies here retracted everything that he so vigorously denied during the interrogation. It may have been because of the other slaves’ testimonies, or possibly the threat of torture, although the records are not usually silent on the latter.
+[^18]: It is not clear why September van Boegies here retracted everything that he so vigorously denied during the interrogation. It may have been because of the other slaves’ testimonies, or possibly the threat of torture, although the records are not usually silent on the latter.

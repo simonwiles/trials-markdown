@@ -70,8 +70,8 @@ Stellenbosch, 12 February 1780.
 
 [^2]: This is an unusual case in that slave children (or teenagers, at least) were central to it. For discussion of slave children, see 1790 Isaak de Villiers Jansz., n.1.
 
-[^3]:  Ex officio.
+[^3]: Ex officio.
 
-[^4]:  Probably ensuring that birds did not eat the grapes.
+[^4]: Probably ensuring that birds did not eat the grapes.
 
-[^5]:  This paragraph has nothing to do with the case in question, but forms part of the letter in which De Wet reports about its outcome.
+[^5]: This paragraph has nothing to do with the case in question, but forms part of the letter in which De Wet reports about its outcome.

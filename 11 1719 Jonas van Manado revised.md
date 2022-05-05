@@ -150,22 +150,22 @@ Which I do, etc.
 
 [^5]: For another case concerning Cape Town artisans, see 1757 Baatjoe van Mandhaar.
 
-[^6]:  See Ross 1999 on issues of status and respectability in the Cape.
+[^6]: See Ross 1999 on issues of status and respectability in the Cape.
 
-[^7]:  Because of the special nature of this document, the text has not been edited, except for standardising the capitalisation.
+[^7]: Because of the special nature of this document, the text has not been edited, except for standardising the capitalisation.
 
-[^8]:  Johann Basilius Kretschmar, who died shortly before this incident, operated as a cobbler, which explains why there were so many *knechten* in the household. His widow, Hermina Herwigh, married one of them, Anton Martens, the year after this case (Hoge 1944: 220 and 259).
+[^8]: Johann Basilius Kretschmar, who died shortly before this incident, operated as a cobbler, which explains why there were so many *knechten* in the household. His widow, Hermina Herwigh, married one of them, Anton Martens, the year after this case (Hoge 1944: 220 and 259).
 
-[^9]:  A gruesomely appropriate punishment for a slave who had threatened his owner with a knife.
+[^9]: A gruesomely appropriate punishment for a slave who had threatened his owner with a knife.
 
-[^10]:  This sentence (which was recorded in the *regtsrollen*, CJ 7, ff. 69-70) was somewhat reduced from the recommendation of the *eijsch*, that Jonas be broken alive on the cross, CJ 323, f. 515-16.
+[^10]: This sentence (which was recorded in the *regtsrollen*, CJ 7, ff. 69-70) was somewhat reduced from the recommendation of the *eijsch*, that Jonas be broken alive on the cross, CJ 323, f. 515-16.
 
-[^11]:  Jonas is here described as ‘van Balij’ but in the *sententie* he is ‘van Manado’ (on the north-east coast of Sulawesi). Inconsistency in the use of slave toponyms in these records was not uncommon.
+[^11]: Jonas is here described as ‘van Balij’ but in the *sententie* he is ‘van Manado’ (on the north-east coast of Sulawesi). Inconsistency in the use of slave toponyms in these records was not uncommon.
 
-[^12]:  At this time most cobblers at the Cape also acted as their own tanners (De Wet 1981: 69), and it is presumably for this reason that there was a small building on Kretschmar’s property where bark was kept. To prepare leather, raw hides were soaked over a long period in a solution of lime and so-called *run *(tan), which was made from the bark of oak trees (Buys 1769-1778, vol. 6: 510-12 and vol. 9: 250).
+[^12]: At this time most cobblers at the Cape also acted as their own tanners (De Wet 1981: 69), and it is presumably for this reason that there was a small building on Kretschmar’s property where bark was kept. To prepare leather, raw hides were soaked over a long period in a solution of lime and so-called *run *(tan), which was made from the bark of oak trees (Buys 1769-1778, vol. 6: 510-12 and vol. 9: 250).
 
-[^13]:  The *caffers* were Company-owned slaves or convicts from the East who acted as the fiscal’s and executioner’s assistants and as policemen in the town. They enforced the curfew, both on slaves and on Company employees, Shell 1994: 189-94. They were much despised, not least because of their association with public executions, a role which in early modern Northern Europe conferred considerable dishonour, Stuart 1999. The *geweldiger* was the head of the *caffers* and was usually a European. For other cases with the *caffers* in action, see 1744 Barkat van Timor and 1757 Baatjoe van Mandhaar.
+[^13]: The *caffers* were Company-owned slaves or convicts from the East who acted as the fiscal’s and executioner’s assistants and as policemen in the town. They enforced the curfew, both on slaves and on Company employees, Shell 1994: 189-94. They were much despised, not least because of their association with public executions, a role which in early modern Northern Europe conferred considerable dishonour, Stuart 1999. The *geweldiger* was the head of the *caffers* and was usually a European. For other cases with the *caffers* in action, see 1744 Barkat van Timor and 1757 Baatjoe van Mandhaar.
 
-[^14]:  This is a very literal translation. Scholtz (1963: 64-7 and 74-7) has shown that the eighteenth-century *UE.* (the abbreviation of ‘u Edele’, your honourable) developed into the formal Afrikaans second person pronoun *u*, and therefore the usage here might simply be an attempt to say: ‘you, *juffrouw*’, in the same way that Jonas refers to himself as ‘he, the suppliant’.
+[^14]: This is a very literal translation. Scholtz (1963: 64-7 and 74-7) has shown that the eighteenth-century *UE.* (the abbreviation of ‘u Edele’, your honourable) developed into the formal Afrikaans second person pronoun *u*, and therefore the usage here might simply be an attempt to say: ‘you, *juffrouw*’, in the same way that Jonas refers to himself as ‘he, the suppliant’.
 
-[^15]:  The original has the male form of the pronoun, but it clearly has to refer to Jonas’s mistress. It is likely that this may reflect a feature of the sort of Dutch many slaves spoke, as the use of male pronouns for all genders is quite common in certain second-language varieties. For another example, see the sentence uttered by Claas in 1744 Claas van Bengalen and Augustus van Mallebaar.
+[^15]: The original has the male form of the pronoun, but it clearly has to refer to Jonas’s mistress. It is likely that this may reflect a feature of the sort of Dutch many slaves spoke, as the use of male pronouns for all genders is quite common in certain second-language varieties. For another example, see the sentence uttered by Claas in 1744 Claas van Bengalen and Augustus van Mallebaar.

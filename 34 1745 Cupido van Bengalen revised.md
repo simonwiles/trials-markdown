@@ -58,10 +58,10 @@ Which I do, etc.[^8]
 
 [^4]: A charge was brought against Louis by the Council of Justice, but the fiscal stated in his *eijsch* that he was ‘zinneloos’ (senseless) and therefore could not be held responsible for his actions and so he was subsequently released, CJ 27, f. 75 and CJ 352, f. 671. Testimonies in this case include those of Andries Brink, Jan Nieuwenhuijsen, the Khoi Louis and Piet, and the slaves Dramma van Timor and Pieter van Mallebaar, CJ 352, ff. 679-94, with the originals in 1/STB 3/9.
 
-[^5]:  The 15^th^ is written over the 17^th^, hence this paraphrase.
+[^5]: The 15^th^ is written over the 17^th^, hence this paraphrase.
 
-[^6]:  The original ends here like this, which means that it was probably a rough copy which was later written out neatly and properly signed. This also explains why this document is in the Stellenbosch district archive and not in the Council of Justice volumes. Since Cupido died, his case was not sent to the Council of Justice, although it was used in Louis’s case.
+[^6]: The original ends here like this, which means that it was probably a rough copy which was later written out neatly and properly signed. This also explains why this document is in the Stellenbosch district archive and not in the Council of Justice volumes. Since Cupido died, his case was not sent to the Council of Justice, although it was used in Louis’s case.
 
-[^7]:  Cupido van Bengalen, like Pieter van Malabar, was working on the farm of his owner’s son-in-law, presumably to help with the ploughing that was taking place. Hiring of slaves, or their loan by kin, during peak labour periods was a common practice, Worden 1985: 25 and 87-8.
+[^7]: Cupido van Bengalen, like Pieter van Malabar, was working on the farm of his owner’s son-in-law, presumably to help with the ploughing that was taking place. Hiring of slaves, or their loan by kin, during peak labour periods was a common practice, Worden 1985: 25 and 87-8.
 
-[^8]:  See note 6 above.
+[^8]: See note 6 above.

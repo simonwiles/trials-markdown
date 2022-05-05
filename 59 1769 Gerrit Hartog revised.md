@@ -46,6 +46,6 @@ With my cognisance, \[signed\] A. Faure, secretary.
 
 [^2]: The case does not appear in the records of the Council of Justice for 1769 (CJ 51 and CJ 396) and so was evidently not considered important enough to be sent to Cape Town.
 
-[^3]:  The phrase between angled brackets is crossed out; however, the rest of the sentence only makes sense if the preceding *niet* is also crossed out, which the scribe probably forgot to do.
+[^3]: The phrase between angled brackets is crossed out; however, the rest of the sentence only makes sense if the preceding *niet* is also crossed out, which the scribe probably forgot to do.
 
-[^4]:  This testimony was taken three days after the event, and on the farm, which suggests that Malan may have acted on this complaint.
+[^4]: This testimony was taken three days after the event, and on the farm, which suggests that Malan may have acted on this complaint.
