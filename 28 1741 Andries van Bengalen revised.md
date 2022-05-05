@@ -1,6 +1,6 @@
 # ANDRIES VAN BENGALEN
 
-*This letter from the Stellenbosch landdrost to the Council of Justice concerned the suicide of a male slave who had attacked a female slave on the same farm because he suspected her of infidelity. It is revealing not only for the emotional bonds between slaves and the use of what today would be described as domestic violence, but also for the ways in which a suicide case was dealt with by the local authorities. They were primarily concerned with the fact that they could not find a tree or beam from which to hang Andries’s corpse. The bodies of slaves who had committed suicide were supposed to be publicly displayed in this way as a warning to others.[^1] *
+*This letter from the Stellenbosch landdrost to the Council of Justice concerned the suicide of a male slave who had attacked a female slave on the same farm because he suspected her of infidelity. It is revealing not only for the emotional bonds between slaves and the use of what today would be described as domestic violence, but also for the ways in which a suicide case was dealt with by the local authorities. They were primarily concerned with the fact that they could not find a tree or beam from which to hang Andries’s corpse. The bodies of slaves who had committed suicide were supposed to be publicly displayed in this way as a warning to others.[^1]*
 
 **CJ 2485** Inkoomende Brieven, 1729-1759, Deel 1, ff. 52-4.
 
@@ -34,7 +34,7 @@ TRANSLATION
 
 The Cape of Good Hope.
 
-To the honourable lord Rijk Tulbagh, *opperkoopman* and *secunde*[^3] of this government, and also the president of the honourable Council of Justice.
+To the honourable lord Rijk Tulbagh, *opperkoopman* and *secunde[^3] * of this government, and also the president of the honourable Council of Justice.
 
 Honourable Lord!
 
@@ -56,7 +56,7 @@ Your honour’s obedient and faithful servants,
 
 Kuijlenburgh, 6 September 1741.
 
-[^1]: * For this case and other examples, Worden 1985: 135. See also 1710 Jan; 1739 Cupido van Mallabaar; and 1786 Sara. On the way in which the corpses of suicide victims were treated, and the differences in the ‘punishments’ given to those of Khoi and slaves, and those of people of European origin, see Upham 2001a.*
+[^1]: For this case and other examples, Worden 1985: 135. See also 1710 Jan; 1739 Cupido van Mallabaar; and 1786 Sara. On the way in which the corpses of suicide victims were treated, and the differences in the ‘punishments’ given to those of Khoi and slaves, and those of people of European origin, see Upham 2001a.
 
 [^2]:  Although this is the only instance of the word *puta* (‘whore’) that Franken could find in his study of Portuguese at the Cape during the VOC period (Franken 1953: 41-79, especially 56-7), it is likely that it was well known amongst slaves, especially as the use of Creole Portuguese as contact language was by this stage well entrenched at the Cape. On Portuguese and Malay at the Cape, see the discussion below in 1763 Christina Strang and 1775 Moses van de Caab.
 

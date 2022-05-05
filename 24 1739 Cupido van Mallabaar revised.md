@@ -1,8 +1,8 @@
 # CUPIDO VAN MALLABAAR
 
-*In this tragic case, Cupido van Mallabaar threatened to take his own life, as well as that of his owner’s wife and her child.[^1] The episode reveals an intense emotional crisis. Cupido’s complaints that he was made to wear clothing that he was not used to, and that his owners had bought neither other slaves to assist him, nor a female slave to be his companion, reveal the frustrations and alienation of a slave on a Drakenstein farm whose owners merely laughed at his grievances. His ambivalent feelings towards his owners are shown by his vacillation between pity for his mistress and her child and his threats to them.*[^2]
+*In this tragic case, Cupido van Mallabaar threatened to take his own life, as well as that of his owner’s wife and her child.[^1] The episode reveals an intense emotional crisis. Cupido’s complaints that he was made to wear clothing that he was not used to, and that his owners had bought neither other slaves to assist him, nor a female slave to be his companion, reveal the frustrations and alienation of a slave on a Drakenstein farm whose owners merely laughed at his grievances. His ambivalent feelings towards his owners are shown by his vacillation between pity for his mistress and her child and his threats to them.[^2]*
 
-*The case shows how hard it must have been for an imported slave to adapt culturally to alien circumstances and gives a glimpse into the ways in which he felt and responded to what he experienced at the Cape. *
+*The case shows how hard it must have been for an imported slave to adapt culturally to alien circumstances and gives a glimpse into the ways in which he felt and responded to what he experienced at the Cape.*
 
 **CJ 786** Sententiën, 1736-1743, ff. 263-70.
 
@@ -52,9 +52,9 @@ Let the execution be done, \[signed\] H. Swellengrebel.
 
 In my presence, \[signed\] D.G. Carnspek, secretary.
 
-[^1]: * The circumstances are somewhat similar to *amok* cases (see 1744 Barkat van Timor for notes on this), although, unlike *amok* perpetrators, Cupido hesitated over his actions because of his conflicting emotions towards his owners. *
+[^1]: The circumstances are somewhat similar to *amok* cases (see 1744 Barkat van Timor for notes on this), although, unlike *amok* perpetrators, Cupido hesitated over his actions because of his conflicting emotions towards his owners. 
 
-[^2]: * Other documentation in the case includes the *eijsch*, the *interrogatoriën* of Cupido van Mallabaar, and the testimony of Maria Klaasz, Jan van der Straten’s wife, CJ 344, ff. 302-20. Cupido admitted everything in his answers to the questions in his *interrogatoriën*, including his intention to murder his owner, stating that he had acted ‘het eene uijt dronkenschap en het andere uijt bangigheijt’ (partly because of drunkenness and partly through fear), CJ 344, f. 315v. *
+[^2]: Other documentation in the case includes the *eijsch*, the *interrogatoriën* of Cupido van Mallabaar, and the testimony of Maria Klaasz, Jan van der Straten’s wife, CJ 344, ff. 302-20. Cupido admitted everything in his answers to the questions in his *interrogatoriën*, including his intention to murder his owner, stating that he had acted ‘het eene uijt dronkenschap en het andere uijt bangigheijt’ (partly because of drunkenness and partly through fear), CJ 344, f. 315v. 
 
 [^3]:  According to Haafner, who lived at the Cape between 1767 and 1770, it was very common in the Dutch colonies ‘dat men aan de huisslaven, ten einde hun het bezoeken van vreemde slavinnen te beletten en meer aan het huis van hunnen meester te verbinden, eene slavin uit het huis toevoegt, die met elkander zamenwonen en ook wederzijds vrij getrouw zijn, hetgene men dan zijne slaven uittrouwen noemt’ (that, in order to prevent other female slaves from visiting, and to attach their own slaves more to the house of their masters, one would give a female slave from the household to house slaves, who would live together, and who would also be fairly faithful to each other; which system is called marrying out one’s slaves) (Haafner 1992: 74). Not buying a female slave for Cupido obviously did not ‘attach’ him to the house of his owner.
 

@@ -1,6 +1,6 @@
 # SPADILJE VAN SIAM
 
-*Spadilje was an unusual slave for two reasons: he came from Thailand,[^1] and he was owned by a free black.*[^2] *He also was a deserter, and met up with other runaways in the Hangklip area[^3] with whom he carried out a robbery on the Company *slagthuijs* in Simon’s Town. He attracted suspicion of being a runaway when he tried to use some of the stolen money at a nearby tavern.*
+*Spadilje was an unusual slave for two reasons: he came from Thailand,[^1] and he was owned by a free black.[^2] * *He also was a deserter, and met up with other runaways in the Hangklip area[^3] with whom he carried out a robbery on the Company *slagthuijs* in Simon’s Town. He attracted suspicion of being a runaway when he tried to use some of the stolen money at a nearby tavern.*
 
 **CJ 795** Sententiën, 1782-1789, ff. 239-49.
 
@@ -34,7 +34,7 @@ Since Spadiltje, slave of the free black Albert Isaaksz, twenty five years old a
 
 That the prisoner became a fugitive now fully three months ago and maintained himself both here and elsewhere in the rural areas, as well as in the region of Hanglip, where a certain runaway slave by the name of Job, belonging to the widow of the late burgher lieutenant Jan Hendrik Ekkert,[^5] and yet another runaway slave, whose name the prisoner says he does not know, came to join him.
 
-That the prisoner and his aforementioned comrades set out to the mountains of False Bay[^6] and stayed in the region of Kalk Bay, which is where the aforesaid Job forged the plan to break into the *slagthuijs*[^7] of the honourable Company in Baaij Fals and to commit theft. So that, after the said Job had made that plan known to the prisoner and the other *jongen*, they all went together during the night of the 22^nd\ ^of the past month August, to the aforesaid Baaij Fals, when Job climbed onto the roof, which is rather low, of the said *slagthuijs* and made an opening in the thatch of the roof by breaking or cutting to pieces the cabled yarn, through which he went into the *slagthuijs*, while the prisoner and his comrade remained outside, keeping watch.
+That the prisoner and his aforementioned comrades set out to the mountains of False Bay[^6] and stayed in the region of Kalk Bay, which is where the aforesaid Job forged the plan to break into the *slagthuijs[^7] * of the honourable Company in Baaij Fals and to commit theft. So that, after the said Job had made that plan known to the prisoner and the other *jongen*, they all went together during the night of the 22^nd\ ^of the past month August, to the aforesaid Baaij Fals, when Job climbed onto the roof, which is rather low, of the said *slagthuijs* and made an opening in the thatch of the roof by breaking or cutting to pieces the cabled yarn, through which he went into the *slagthuijs*, while the prisoner and his comrade remained outside, keeping watch.
 
 That the aforesaid Job, after having broken open a chest in the said *slagthuijs*, stole from it a sum of three hundred and fifty rixdollars and four *schellingen*, consisting both of paper money[^8] and a variety of silver coins, and among which there was also a guinea, as well as a black velvet jacket, a brown silk frock and a white shirt.
 
@@ -54,11 +54,11 @@ Let the execution be done, \[signed\] C.J. van de Graaff.
 
 In my presence, \[signed\] C.L. Neethling, secretary.
 
-[^1]: * Only a very few slaves at the Cape came from Siam (modern Thailand). The VOC had a trading post at Ayutthaya, which flourished in the seventeenth century, was closed down in 1740 but had a brief revival in 1748-65 (Gaastra 2003: 124-25; Raben & Pombejra 1997: 74-5).*
+[^1]: Only a very few slaves at the Cape came from Siam (modern Thailand). The VOC had a trading post at Ayutthaya, which flourished in the seventeenth century, was closed down in 1740 but had a brief revival in 1748-65 (Gaastra 2003: 124-25; Raben & Pombejra 1997: 74-5).
 
-[^2]: * Spadilje’s owner, Albert Isaaksz, was a free black, a term which usually referred to freed slaves, but also to the ex-*bandieten* from Asia, such as the Chinese. He was probably a former slave, since he was offered to the Council of Policy as surety by the burgher Gerrit Reijnders against the manumission of another slave in 1766 (Leibbrandt 1989: 970). Although many free blacks were too poor to own slaves, a number did so, sometimes acquiring their own relatives in order to manumit them (Elphick & Shell 1989: 221; Shell 1994: 121). Albert Isaaksz manumitted his slave Rosie and her three children in 1792, although it is not known if they were related to him (Leibbrandt 1989: 1525). For another example of slave ownership by a free black, see 1738 Pieter Coridon. *
+[^2]: Spadilje’s owner, Albert Isaaksz, was a free black, a term which usually referred to freed slaves, but also to the ex-*bandieten* from Asia, such as the Chinese. He was probably a former slave, since he was offered to the Council of Policy as surety by the burgher Gerrit Reijnders against the manumission of another slave in 1766 (Leibbrandt 1989: 970). Although many free blacks were too poor to own slaves, a number did so, sometimes acquiring their own relatives in order to manumit them (Elphick & Shell 1989: 221; Shell 1994: 121). Albert Isaaksz manumitted his slave Rosie and her three children in 1792, although it is not known if they were related to him (Leibbrandt 1989: 1525). For another example of slave ownership by a free black, see 1738 Pieter Coridon. 
 
-[^3]: * For the Hangklip runaway slave community, see 1737 Aron van Madagascar. *
+[^3]: For the Hangklip runaway slave community, see 1737 Aron van Madagascar. 
 
 [^4]:  The last part of this sentence (from ‘den 1^e\ ^...’ onwards) was added later in a different handwriting, hence the repitition of information.
 

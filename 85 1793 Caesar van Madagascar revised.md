@@ -1,6 +1,6 @@
 # CAESAR VAN MADAGASCAR
 
-*Caesar van Madagascar told his owner that he had a ‘right to speak’ his own mind on how best to do his farm work and organise his time – a rare indication in the Cape records of the overt assertion of psychological independence by a slave.[^1] Caesar’s owner retaliated with blows, which Caesar finally resisted, not by attacking his master, but by breaking the sjambok. This was sufficient to ensure his sentence of 25 years’ hard labour in chains. Caesar’s refusal to be totally subservient was a threat to the hierarchy of control in a slave society.*[^2]
+*Caesar van Madagascar told his owner that he had a ‘right to speak’ his own mind on how best to do his farm work and organise his time – a rare indication in the Cape records of the overt assertion of psychological independence by a slave.[^1] Caesar’s owner retaliated with blows, which Caesar finally resisted, not by attacking his master, but by breaking the sjambok. This was sufficient to ensure his sentence of 25 years’ hard labour in chains. Caesar’s refusal to be totally subservient was a threat to the hierarchy of control in a slave society.[^2]*
 
 **CJ 796** Sententiën, 1790-1794, ff. 279-284.
 
@@ -36,7 +36,7 @@ That the prisoner, who according to the testimony of his owner has already on se
 
 That the prisoner’s owner got angry over this answer and gave the prisoner a blow with, as the prisoner expresses himself, a broomstick, and again ordered him to be silent; to which the prisoner said that he did not want to be silent and would preserve his right to speak. The prisoner’s owner then gave him two more blows, which did not have any better result, since the prisoner, on receiving these blows, expressed himself, in no uncertain terms, in this manner: “I do not want to be silent, and I must retain my right to speak”, while adding: “*Baas* must stop beating me like this”.
 
-That hereupon the prisoner’s owner fetched a so-called hind oxen *sjambok*[^3] and gave the prisoner a lash with it. That finally the prisoner did not scruple to give such free rein to his disobedient behaviour as to hold the *sjambok* tight with his left hand and then to cut it with a knife, which he claimed to have taken off his bed, yet, according to the evidence of his owner, to have taken from his pocket. This made the prisoner’s owner decide to leave the kitchen and to have the prisoner tied up the following morning and to hand him over to the *veldwagtmeester* of the district, through which the prisoner came into the hands of justice.
+That hereupon the prisoner’s owner fetched a so-called hind oxen *sjambok[^3] * and gave the prisoner a lash with it. That finally the prisoner did not scruple to give such free rein to his disobedient behaviour as to hold the *sjambok* tight with his left hand and then to cut it with a knife, which he claimed to have taken off his bed, yet, according to the evidence of his owner, to have taken from his pocket. This made the prisoner’s owner decide to leave the kitchen and to have the prisoner tied up the following morning and to hand him over to the *veldwagtmeester* of the district, through which the prisoner came into the hands of justice.
 
 And since offences like these cannot be allowed to pass unpunished in a country where justice is administered as it should be, but, on the contrary, ought to be punished most severely as an example and deterrent to other malefactors.
 
@@ -50,9 +50,9 @@ Let the sentence be done, \[signed\] A.J. Sluijsken.
 
 In my presence, \[signed\] J.A. Truter, secretary.
 
-[^1]: * The documentation for this case also includes the *eijsch*, the testimony of Daniel Malan Davidsz and the interrogation of Caesar van Madgascar, CJ 447, ff. 569-90. What is unusual about this case is Caesar’s repeated statement that he had a ‘right’ to dispute his owner’s orders. The North American historian Genovese has argued that this kind of resistance was more revolutionary in its nature than that of escaping from the slave system by desertion, and that it became more evident in the later eighteenth and early nineteenth centuries. It is striking that this case takes place in the 1790s, when news of revolutionary developments in the Americas (including the successful Haitian slave uprising) was circulating in the Cape. These few years saw several other cases of slaves verbally challenging their owners, compare 1792 Mentor van Mosambique and 1794 Abraham van Macassar, but there is also an earlier example, 1759 Slammat van Bougies. *
+[^1]: The documentation for this case also includes the *eijsch*, the testimony of Daniel Malan Davidsz and the interrogation of Caesar van Madgascar, CJ 447, ff. 569-90. What is unusual about this case is Caesar’s repeated statement that he had a ‘right’ to dispute his owner’s orders. The North American historian Genovese has argued that this kind of resistance was more revolutionary in its nature than that of escaping from the slave system by desertion, and that it became more evident in the later eighteenth and early nineteenth centuries. It is striking that this case takes place in the 1790s, when news of revolutionary developments in the Americas (including the successful Haitian slave uprising) was circulating in the Cape. These few years saw several other cases of slaves verbally challenging their owners, compare 1792 Mentor van Mosambique and 1794 Abraham van Macassar, but there is also an earlier example, 1759 Slammat van Bougies. 
 
-[^2]: * This was somewhat less severe than the life sentence recommended in the *eijsch*, CJ 447, f. 575. *
+[^2]: This was somewhat less severe than the life sentence recommended in the *eijsch*, CJ 447, f. 575. 
 
 [^3]:  See 1791 Petrus Joubert, n. 4.
 

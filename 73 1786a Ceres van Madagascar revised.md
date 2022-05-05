@@ -1,6 +1,6 @@
 # CERES VAN MADAGASCAR & APRIL VAN CEIJLON
 
-*In this case, Ceres van Madagascar attacked Louisa, his female partner, because April van Ceijlon had told him that she had been unfaithful with other slaves.[^1] The case reveals the network of relationships and tensions that could develop amongst the slaves on a farm which largely prescribed and confined their world: Louisa’s mother also lived and worked there. Both the attacker and the accuser tried to flee, but were caught and sentenced by the Council of Justice, Ceres for murder and April for ‘malicious accusations’ and incitement to murder. *
+*In this case, Ceres van Madagascar attacked Louisa, his female partner, because April van Ceijlon had told him that she had been unfaithful with other slaves.[^1] The case reveals the network of relationships and tensions that could develop amongst the slaves on a farm which largely prescribed and confined their world: Louisa’s mother also lived and worked there. Both the attacker and the accuser tried to flee, but were caught and sentenced by the Council of Justice, Ceres for murder and April for ‘malicious accusations’ and incitement to murder.*
 
 **CJ 795** Sententiën, 1782-1789, ff. 286-96.
 
@@ -58,6 +58,6 @@ Let the sentence be done, \[signed\] C.J. van de Graaff.
 
 In my presence, \[signed\] C. van Aersen, secretary.
 
-[^1]: * Slaves could not legally form permanent relationships and this often had a highly deleterious impact on their emotional and personal lives. See 1749 Reijnier van Madagascar, n. 1 for discussion of slave families. For other examples of cases involving rejection or jealousy among slaves, see 1729 Jeptha van Batavia and 1742 Fortuijn van Bengalen. *
+[^1]: Slaves could not legally form permanent relationships and this often had a highly deleterious impact on their emotional and personal lives. See 1749 Reijnier van Madagascar, n. 1 for discussion of slave families. For other examples of cases involving rejection or jealousy among slaves, see 1729 Jeptha van Batavia and 1742 Fortuijn van Bengalen. 
 
 [^2]:  This sentence was recorded in the *regtsrollen*, CJ 68, ff. 18-19. It differed somewhat from that recommended in the *eijsch*, which did not propose the *coup de grâce *for Ceres van Madagascar and proposed that April van Ceijlon be kept in chains for two years but returned to his master, CJ 424, ff. 7-8. Further documentation for this case consists of the interrogations of Ceres van Madagasacar and April van Ceijlon, the testimonies of Stoffel van de Caab and Sanna van Mallebaar (Louisa’s mother) and the surgeon’s report on the body of Louisa, CJ 424, ff. 9-31. 

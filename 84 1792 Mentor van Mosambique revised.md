@@ -1,6 +1,6 @@
 # MENTOR VAN MOSAMBIQUE
 
-*A fight broke out between Mentor and the burgher Tielman Roos because Mentor refused to greet Tielman, saying he was only obliged to greet his owner and wife. This episode is a rare example of verbal resistance by slaves, although it also led to physical conflict.[^1] It also illustrates the importance attached to symbolic acts in the maintenance of social distinctions between masters and servants.[^2] It appears as if no further action was taken.*[^3]
+*A fight broke out between Mentor and the burgher Tielman Roos because Mentor refused to greet Tielman, saying he was only obliged to greet his owner and wife. This episode is a rare example of verbal resistance by slaves, although it also led to physical conflict.[^1] It also illustrates the importance attached to symbolic acts in the maintenance of social distinctions between masters and servants.[^2] It appears as if no further action was taken.[^3]*
 
 **1/STB 3/12** Criminele Verklaringen, 1786-1793, unpaginated.
 
@@ -46,11 +46,11 @@ As delegates, \[signed\] J.B. Hoffman, P.G. Wium.
 
 In my presence, \[signed\] J.P. Faure, secretary.
 
-[^1]: * For a similar example of the refusal of a slave to greet a burgher, see 1794 Abraham van Macassar.*
+[^1]: For a similar example of the refusal of a slave to greet a burgher, see 1794 Abraham van Macassar.
 
-[^2]: * This was equally the case in early modern Europe where status was clearly displayed through symbolic and ritual acts (Muir 1997), but was particularly marked in a colonial slave society (Ross 1999). *
+[^2]: This was equally the case in early modern Europe where status was clearly displayed through symbolic and ritual acts (Muir 1997), but was particularly marked in a colonial slave society (Ross 1999). 
 
-[^3]: * The case was not sent to the Council of Justice, and there is no record of further action by the Stellenbosch authorities.*
+[^3]: The case was not sent to the Council of Justice, and there is no record of further action by the Stellenbosch authorities.
 
 [^4]:  This toponym, used to refer to slaves imported from the south-east African coast and its hinterland, began to replace the earlier form ‘Rio de la Goa’ in the later eighteenth century. The former VOC station at Rio de la Goa (Delagoa Bay, or modern Maputo) was closed down in 1732, but in the later eighteenth century increasing numbers of slaves were brought to the Cape by French, American and Dutch traders from the region and its hinterland, and were called ‘van Mozambique’; Shell 2001; Reidy 1997: 18-22; and Worden 2002b: 132-33 for figures.
 

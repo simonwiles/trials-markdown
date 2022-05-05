@@ -1,6 +1,6 @@
 # ANTHONIJ VAN MALLABAAR
 
-*In this case the slave Anthonij van Mallabaar brought an accusation to the fiscal that his owner had murdered his fellow slave, Januarij van Mallabaar.[^1] Murder of a slave by an owner was a punishable offence and Anthonij clearly knew this.[^2] The court dismissed Anthonij’s claim and he was beaten, branded and sent back to his owner for making a false accusation. Usually a surgeon’s report was made on the body of a slave who had died in unknown or suspicious circumstances, but there is no reference to such a report in this case.[^3] *
+*In this case the slave Anthonij van Mallabaar brought an accusation to the fiscal that his owner had murdered his fellow slave, Januarij van Mallabaar.[^1] Murder of a slave by an owner was a punishable offence and Anthonij clearly knew this.[^2] The court dismissed Anthonij’s claim and he was beaten, branded and sent back to his owner for making a false accusation. Usually a surgeon’s report was made on the body of a slave who had died in unknown or suspicious circumstances, but there is no reference to such a report in this case.[^3]*
 
 *A paragraph in the *sententie* is crossed out. It indicates that Anthonij confessed that he had brought the accusation to avenge himself on his owner, who had maltreated him. It is unclear why this was deleted, possibly because it played no role in the deliberation of the case, which was about Anthonij’s false complaint against his owner, not about what his owner did or did not do.*
 
@@ -62,7 +62,7 @@ Antwoort: Dat die jonge, naar de ontfangene straffe niet wel kunnende gaan, in d
 
 Articul 8: Waer hij gevangen hem Januarij zedert doot gevonden heeft, en wie daer meer bij geweest zijn en sulx gesien hebben?
 
-Antwoort: Dat dien selven dagh wanneer de jonge door Steenkamp en Boom was thuijs gebragt, de baas hem aan ’t werk heeft gestelt, en onder ’t werken deselve jonge nogmaals heeft geslagen met een sjambok en getrapt totdat de jonge op de grond neder viel, als wanneer hij op ordre van zijn meester die jonge heeft opgenomen en in een hutje gebragt. Dat na zij ’s avonds gemelkt hadden, de schaapwagter Januari \[*sic*\] van Bengalen deese geslagene Januarij heeft dood gevonden, en teegen al de slaven gezegt dat de jonge dood gevonden en dat *niemand*[^6] hem dood gesien heeft als de voorzeijde Januarij dewelke het haar toegeroepen heeft.
+Antwoort: Dat dien selven dagh wanneer de jonge door Steenkamp en Boom was thuijs gebragt, de baas hem aan ’t werk heeft gestelt, en onder ’t werken deselve jonge nogmaals heeft geslagen met een sjambok en getrapt totdat de jonge op de grond neder viel, als wanneer hij op ordre van zijn meester die jonge heeft opgenomen en in een hutje gebragt. Dat na zij ’s avonds gemelkt hadden, de schaapwagter Januari \[*sic*\] van Bengalen deese geslagene Januarij heeft dood gevonden, en teegen al de slaven gezegt dat de jonge dood gevonden en dat *niemand[^6] * hem dood gesien heeft als de voorzeijde Januarij dewelke het haar toegeroepen heeft.
 
 Articul 9: Ofte hij door zijn eijge beweging dien aengeving aen de heer Fiscael heeft gedaen, ofte door imand \[*sic*\] daertoe aengeset, en wie dat geweest is?
 
@@ -184,11 +184,11 @@ As delegates, \[signed\] Jn. Alders; Hk. Donker.
 
 In my presence, \[signed\] Dl. Thibault, secretary.
 
-[^1]: * Further documentation for this case consists of the *eijsch en conclusie* and the testimonies of Hendrik Rodenburg, Januarij van Bengalen and Abraham van Ceijlon (CJ 322, documents 77 and 79-81).*
+[^1]: Further documentation for this case consists of the *eijsch en conclusie* and the testimonies of Hendrik Rodenburg, Januarij van Bengalen and Abraham van Ceijlon (CJ 322, documents 77 and 79-81).
 
-[^2]: * For another case in which slaves informed on their masters to the fiscal, see 1763 Christina Strang.*
+[^2]: For another case in which slaves informed on their masters to the fiscal, see 1763 Christina Strang.
 
-[^3]:  *When slaves had died under unnatural or unusual circumstances, burghers were required by law to inform the authorities, who were then required to inspect the corpses. A *plakkaat* of 1731 specifically mentioned this as a safeguard against owner maltreatment of slaves, *Kaapse Plakkaatboek* II: 149-50. See also 1750 David van Bengalen.*
+[^3]: When slaves had died under unnatural or unusual circumstances, burghers were required by law to inform the authorities, who were then required to inspect the corpses. A *plakkaat* of 1731 specifically mentioned this as a safeguard against owner maltreatment of slaves, *Kaapse Plakkaatboek* II: 149-50. See also 1750 David van Bengalen.
 
 [^4]:  The paragraph between angled brackets is crossed out lightly in the original (but remains perfectly legible).
 

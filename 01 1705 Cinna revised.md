@@ -1,8 +1,8 @@
 # CINNA
 
-*This cross-examination of the elderly slave Cinna (his place of origin is not recorded) took place in Stellenbosch. It provides a brief glimpse into the way in which owners treated one of their slaves who had lived beyond his most productive labouring years. Cinna ran away to his sister in Cape Town (we do not know if she was a free woman or not), a telling insight into slave family lives and the connections between slaves separated by circumstances and location. He then briefly worked for another burgher, Hans Hendrik Hatting, who seems to have treated him better and wanted to buy him. Hendrik’s need for Cinna, despite his age, suggests a shortage of readily available labourers in this period. *
+*This cross-examination of the elderly slave Cinna (his place of origin is not recorded) took place in Stellenbosch. It provides a brief glimpse into the way in which owners treated one of their slaves who had lived beyond his most productive labouring years. Cinna ran away to his sister in Cape Town (we do not know if she was a free woman or not), a telling insight into slave family lives and the connections between slaves separated by circumstances and location. He then briefly worked for another burgher, Hans Hendrik Hatting, who seems to have treated him better and wanted to buy him. Hendrik’s need for Cinna, despite his age, suggests a shortage of readily available labourers in this period.*
 
-*As so often in the judicial records, this is a fragmentary glimpse of a telling episode. The case was not sent to the Council of Justice and we do not know whether Hendrik got his wish or what happened to Cinna. No other records of this case survive, so we do not know if Cinna was punished for his actions.[^1] *
+*As so often in the judicial records, this is a fragmentary glimpse of a telling episode. The case was not sent to the Council of Justice and we do not know whether Hendrik got his wish or what happened to Cinna. No other records of this case survive, so we do not know if Cinna was punished for his actions.[^1]*
 
 **1/STB 3/8** Criminele Verklaringen, 1702-1749, unpaginated.
 
@@ -140,6 +140,6 @@ Thus examined, in the presence of the aforesaid *heemraden* at the Stellenbosch 
 
 In my presence, \[signed\] Jan Mahieu, secretary.
 
-[^1]:  *The case was not considered serious enough to send to the Council of Justice (there is no mention of it in the *regtsrollen*, CJ 4, or Documents in Criminal Cases, CJ 308), and so was presumably dealt with by the landdrost in Stellenbosch. This testimony is a single fragment which survived by chance in the Stellenbosch archive, bound in the front of a volume of other testimonies from the 1740s. *
+[^1]: The case was not considered serious enough to send to the Council of Justice (there is no mention of it in the *regtsrollen*, CJ 4, or Documents in Criminal Cases, CJ 308), and so was presumably dealt with by the landdrost in Stellenbosch. This testimony is a single fragment which survived by chance in the Stellenbosch archive, bound in the front of a volume of other testimonies from the 1740s. 
 
 [^2]:  It might be significant that Cinna ran away on a Sunday, when slaves were at least theoretically supposed to have a free day, although most farmers ignored the fact (Kolb 1777, vol. II: 306 and 309; Mentzel 1925: 124; Biewenga 1999: 203-4, 206; De Kock 1950: 61). For other examples in this volume, see 1719 Jonas van Manado; 1761 Johan Spring in ’t Veld; and 1775 Jephta van Madagascar. 

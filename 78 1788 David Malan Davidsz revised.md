@@ -1,6 +1,6 @@
 # DAVID MALAN DAVIDSZ
 
-*A prominent burgher, David Malan Davidsz, who lived on the renowned Vergelegen farmstead in the Hottentots-Holland area, eloped with his long-standing lover Sara, the slave of another burgher, by whom he had fathered a child. The details of the elopement, as well as the crisis it caused within the community, are revealed in these records. Disapproval of Malan’s behaviour was evident, both in warnings given to him about his affair with Sara, and in the subsequent sentence of the Council of Justice which outlawed and banished him.[^1] Malan’s marriage was not a happy one, although whether this was a cause or a consequence of his relationship with Sara is not clear. *
+*A prominent burgher, David Malan Davidsz, who lived on the renowned Vergelegen farmstead in the Hottentots-Holland area, eloped with his long-standing lover Sara, the slave of another burgher, by whom he had fathered a child. The details of the elopement, as well as the crisis it caused within the community, are revealed in these records. Disapproval of Malan’s behaviour was evident, both in warnings given to him about his affair with Sara, and in the subsequent sentence of the Council of Justice which outlawed and banished him.[^1] Malan’s marriage was not a happy one, although whether this was a cause or a consequence of his relationship with Sara is not clear.*
 
 **1/STB** **3/12** Criminele Verklaringen, 1786-1793, unpaginated.
 
@@ -176,7 +176,7 @@ Thus done and sentenced at the Cape of Good Hope on 5 March 1789, as also pronou
 
 In my presence, \[signed\] W.S. v. Rijneveld, sworn clerk.
 
-[^1]: * He was reported on 3 March 1791 as living ‘op de limiten deezer colonie, omtrent het Kafferland’ (on the borders of this Colony, near Kafferland), CJ 73, ff. 76-7. See also Schutte 1982: 280 for a contemporary report that David and Sara were living with another burgher who had eloped with a Khoi woman. He seems to have returned by 1806 when he applied for permission to obtain freehold land in the Koeberg district (Leibbrandt 1906: 828).*
+[^1]: He was reported on 3 March 1791 as living ‘op de limiten deezer colonie, omtrent het Kafferland’ (on the borders of this Colony, near Kafferland), CJ 73, ff. 76-7. See also Schutte 1982: 280 for a contemporary report that David and Sara were living with another burgher who had eloped with a Khoi woman. He seems to have returned by 1806 when he applied for permission to obtain freehold land in the Koeberg district (Leibbrandt 1906: 828).
 
 [^2]:  This phrase is written in the margin with no indication where it belongs in the sentence. It is placed where it seems to make most sense.
 

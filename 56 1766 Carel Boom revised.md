@@ -26,11 +26,11 @@ Cape of Good Hope, the date as above.
 
 In my presence, \[signed\] C.L. Neethling, secretary.
 
-[^1]: * Carel Boom van Koningsburg arrived at the Cape in 1749 as a soldier and was employed as *portier* of the Slave Lodge (the gatekeeper, whose job it was to remove the key each night as a precaution against arson attempts by the inmates, Shell 1994: 177-78). He left behind 158 guilders, but no will, VOC 13988, f. 163.*
+[^1]: Carel Boom van Koningsburg arrived at the Cape in 1749 as a soldier and was employed as *portier* of the Slave Lodge (the gatekeeper, whose job it was to remove the key each night as a precaution against arson attempts by the inmates, Shell 1994: 177-78). He left behind 158 guilders, but no will, VOC 13988, f. 163.
 
-[^2]: * On the Slave Lodge, see* *Geyser 1958: 6-41; Shell 1994: 172-205; Vollgraaff 1997; and Schoeman 2001: 542-72.*
+[^2]: On the Slave Lodge, see* *Geyser 1958: 6-41; Shell 1994: 172-205; Vollgraaff 1997; and Schoeman 2001: 542-72.
 
-[^3]: * There is no record of Cornelia van Piloane in the death registers of Company slaves, as recorded in the *Attestatiën *of the Council of Policy (Duvenage et al. 2000). *
+[^3]: There is no record of Cornelia van Piloane in the death registers of Company slaves, as recorded in the *Attestatiën *of the Council of Policy (Duvenage et al. 2000). 
 
 [^4]:  This was a particularly dishonourable end for Boom since association with the executioner was considered highly polluting, and burial below the gallows a fate for criminals (see 1719 Jonas van Manado, n. 13). It is not clear whether this was because he had committed suicide or because of his attack on one of the Company’s slaves. The description of Boom as a ‘wreed en boosaardig schepsel’ (cruel and malicious creature) suggests both. Upham 2001b argues that suicides by Europeans were not punished judicially, yet this particular case was considered important enough for an emergency meeting of the Council to be held on a Sunday.
 

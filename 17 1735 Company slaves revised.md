@@ -1,10 +1,10 @@
 # COMPANY SLAVES
 
-*One night in 1735, several runaway Company slaves, who had been hiding for several months on Table Mountain, stole sheep from various farms and corrals in and around Cape Town. It is not clear whether they all belonged to the same group, but some were spotted by a slave shepherd and a *knecht* at one of the corrals and they were all captured by the *ratelwacht*, the night watch that guarded the town. *
+*One night in 1735, several runaway Company slaves, who had been hiding for several months on Table Mountain, stole sheep from various farms and corrals in and around Cape Town. It is not clear whether they all belonged to the same group, but some were spotted by a slave shepherd and a *knecht* at one of the corrals and they were all captured by the *ratelwacht*, the night watch that guarded the town.*
 
-*Table Mountain was a well-known refuge for runaway slaves throughout the eighteenth century.[^1] This case shows some of the ways in which they tried to obtain food in the town, and also the dangers they faced from the town militia, as well as slaves and *knechten* stationed on the properties they raided. *
+*Table Mountain was a well-known refuge for runaway slaves throughout the eighteenth century.[^1] This case shows some of the ways in which they tried to obtain food in the town, and also the dangers they faced from the town militia, as well as slaves and *knechten* stationed on the properties they raided.*
 
-*The court records for this case contain eight testimonies by all of those involved. Since they are all rather repetitive, we print four here: those of two of the accused, the Company-owned slaves Claas van de Caab and Kinsa van Madagascar, and those of the *knecht*, Jan Plat, and Januarij van Madagascar, a slave shepherd.[^2] *
+*The court records for this case contain eight testimonies by all of those involved. Since they are all rather repetitive, we print four here: those of two of the accused, the Company-owned slaves Claas van de Caab and Kinsa van Madagascar, and those of the *knecht*, Jan Plat, and Januarij van Madagascar, a slave shepherd.[^2]*
 
 **CJ 339** Criminele Process Stukken, 1735, ff. 177-78.
 
@@ -120,7 +120,7 @@ TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, Claas van de Caab, slave of the honourable Company, 24 years old at a guess, who, on the requisition of the honourable independent fiscal, *Meester* Daniel van den Henghel, confesses it to be true:
 
-That the confessant, having been a runaway for about two months, came to the Cape during the night of last Saturday, the 7^th^ of this current month May, together with a fellow slave of the honourable Company, named Cupido, who had run away long before him. And, after having bought bread and salted herring for a *dubbeltje*[^3], the aforesaid Cupido, with whom he had decided to go and steal a sheep from the corral of the former burgher councillor, Jan de With, went ahead to that place, while he followed him shortly thereafter and met up with this *jongen*, Cupido, behind the garden of the burgher Jan Heijns. They then went together to the garden and stood in front of the corral of the aforementioned Jan de With, which corral the said Cupido entered by jumping over the wall and, having grabbed and tied up a sheep there, Cupido threw that sheep over the wall to him, after which Cupido, at the opposite side of the corral, jumped over the wall to the outside. While the confessant was picking up that sheep in order to carry it away, he heard a noise and saw some *jongens* appearing, on account of which he yet again lay down that sheep onto the ground, after which he ran away; however, he was immediately thereafter taken prisoner by the slaves of the aforesaid Jan de With.
+That the confessant, having been a runaway for about two months, came to the Cape during the night of last Saturday, the 7^th^ of this current month May, together with a fellow slave of the honourable Company, named Cupido, who had run away long before him. And, after having bought bread and salted herring for a *dubbeltje[^3] *, the aforesaid Cupido, with whom he had decided to go and steal a sheep from the corral of the former burgher councillor, Jan de With, went ahead to that place, while he followed him shortly thereafter and met up with this *jongen*, Cupido, behind the garden of the burgher Jan Heijns. They then went together to the garden and stood in front of the corral of the aforementioned Jan de With, which corral the said Cupido entered by jumping over the wall and, having grabbed and tied up a sheep there, Cupido threw that sheep over the wall to him, after which Cupido, at the opposite side of the corral, jumped over the wall to the outside. While the confessant was picking up that sheep in order to carry it away, he heard a noise and saw some *jongens* appearing, on account of which he yet again lay down that sheep onto the ground, after which he ran away; however, he was immediately thereafter taken prisoner by the slaves of the aforesaid Jan de With.
 
 Thus confessed at the Cape of Good Hope on 16 May 1735.
 
@@ -204,7 +204,7 @@ Copy:
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, Kinsa van Madagascar, slave of the honourable Company, 33 years old at a guess, who, on the requisition of the honourable independent fiscal, *Meester* Daniel van den Henghel, confesses it to be true:
 
-That the confessant, now about three months ago, had run away and then stayed on the mountain above the honourable Company’s *schuur*[^4] in the company of 11 other slaves of the honourable Company and a *meijd*, named Lea van Madagascar, which is where they maintained themselves and obtained food by chopping wood and afterwards going to sell it.
+That the confessant, now about three months ago, had run away and then stayed on the mountain above the honourable Company’s *schuur[^4] * in the company of 11 other slaves of the honourable Company and a *meijd*, named Lea van Madagascar, which is where they maintained themselves and obtained food by chopping wood and afterwards going to sell it.
 
 That last Wednesday night at 11 o’clock the confessant, together with a fellow slave of the honourable Company, named Valentijn, who was previously assigned to the stables, came here to the Cape, when the aforesaid Valentijn jumped into the corral of the widow of Servaas de Kok, from which he took two sheep and gave them to him; with which they, each carrying one, went through the Cape[^5] in order to take these two sheep to their hiding place, being met between the house of the burgher Tielman and the houses of the honourable Company by the *ratelwacht[^6] *who took the confessant prisoner; while the slave Valentijn took flight, though leaving the sheep that he was carrying behind.
 
@@ -230,11 +230,11 @@ There appears before us, the undersigned delegates from the honourable Council o
 
 Approved, \[signed\] Js. de Grandpreez.
 
-[^1]: * See Ross 1983: 57-8 and Worden 1998/9: 86-7. For other examples in this volume, see 1737 Aron van Madagascar; 1755 Januarij van Bougies; 1760 Achilles van de West Cust et al.; 1786 Job van Madagascar et al.*
+[^1]: See Ross 1983: 57-8 and Worden 1998/9: 86-7. For other examples in this volume, see 1737 Aron van Madagascar; 1755 Januarij van Bougies; 1760 Achilles van de West Cust et al.; 1786 Job van Madagascar et al.
 
-[^2]: * Kinsa van Madagascar was caught earlier and was sentenced on 4 November 1734 to be publicly whipped and branded and to work in chains on the Company works for twenty years, CJ 16, ff. 60-1 (his testimony was copied for the court in the later case, CJ 339, ff. 187-88). Claas was convicted together with his fellow slaves, Valentijn van de Caab, Marre de klijne van Madagasacar and David van de Caab, all of them Company-owned slaves. The first three were sentenced to be publicly whipped, branded and to work in chains for ten years, while David received a whipping and five years’ work in chains, CJ 17, ff. 44-5. The *eijsch *and testimonies from all of them are given in CJ 339, ff. 166-80 and testimonies were also collected from the soldiers Jan Plat and Hendrik Mels and from Januarij van Madagascar, ff. 181-86. *
+[^2]: Kinsa van Madagascar was caught earlier and was sentenced on 4 November 1734 to be publicly whipped and branded and to work in chains on the Company works for twenty years, CJ 16, ff. 60-1 (his testimony was copied for the court in the later case, CJ 339, ff. 187-88). Claas was convicted together with his fellow slaves, Valentijn van de Caab, Marre de klijne van Madagasacar and David van de Caab, all of them Company-owned slaves. The first three were sentenced to be publicly whipped, branded and to work in chains for ten years, while David received a whipping and five years’ work in chains, CJ 17, ff. 44-5. The *eijsch *and testimonies from all of them are given in CJ 339, ff. 166-80 and testimonies were also collected from the soldiers Jan Plat and Hendrik Mels and from Januarij van Madagascar, ff. 181-86. 
 
-[^3]: * That is, two *stuijvers*. *
+[^3]: That is, two *stuijvers*. 
 
 [^4]:  See 1739 Jurgen Scholts et al., n. 5 on this.
 

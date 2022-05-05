@@ -2,7 +2,7 @@
 
 *Jonas made an appeal to his recently widowed owner to be set free. Manumission of slaves at the Cape was rare, but did sometimes take place by the wishes of an owner at the time of his or her death.[^1] Jonas presented his mistress with a letter requesting his freedom, which is reproduced here.[^2] He clearly believed that some form of written documentation would aid his request for manumission and probably requested his Sunday afternoon off[^3] in order to have it prepared for him by a letter-writer.[^4] However, his mistress refused him, a refusal which ultimately led to Jonas’s attempt to stab her in her bed several months later.*
 
-*The case is also intriguing for the details of domestic life in an artisan household in the Cape.[^5] The presence of the many *knechten* doubtless led Jonas to make the intriguing assertion that he would be a faithful *knecht* to his owner if freed. Clearly he aspired to the status of the hired labourers in his owner’s home. Status, and the ways in which it was expressed, was crucially important in the VOC Cape.*[^6]
+*The case is also intriguing for the details of domestic life in an artisan household in the Cape.[^5] The presence of the many *knechten* doubtless led Jonas to make the intriguing assertion that he would be a faithful *knecht* to his owner if freed. Clearly he aspired to the status of the hired labourers in his owner’s home. Status, and the ways in which it was expressed, was crucially important in the VOC Cape.[^6]*
 
 **CJ 784** Sententiën, 1717-1725, ff. 131-38.
 
@@ -120,7 +120,7 @@ That during the night, at about one o’clock, while a candle was burning in the
 
 That, on as many as two different occasions, the deponent tried to draw back the bolt of her bedroom door (with which it usually gets locked and also was, as per usual, locked at this time) but that this Jonas, during the struggle, shut it again every time until she finally managed to open the door while struggling and got to the *voorhuijs* with him where they fell over a planing bench, which was standing there; whereupon she roused her *knechten* with the calls: “Murder, murder” and: “*Knechten*, come and help me”, during which this slave pulled open the door, jumped over the lower \[half of the\] door and escaped in this way, without anybody yet having got to her at that moment.
 
-That on Saturday evening, the fourteenth of this month, the deponent was warned by one of her slaves, named Claas, that the aforementioned Jonas was on the farm and that he had a knife in his hand, upon which she ordered her *knechten* to go and have a look, but when they arrived at the farm to look for him, they saw that he had jumped over the wall, whereupon the deponent had the *geweldiger* and the *caffers*[^13] called to see that this Jonas was apprehended, who did come, and that same evening, at about half past eight o’clock, they caught this slave Jonas – who had hid himself amongst the peas in the little garden behind her house – in the presence of her *knechten*, the *caffers* and slaves, and who then came into the hands of justice thus.
+That on Saturday evening, the fourteenth of this month, the deponent was warned by one of her slaves, named Claas, that the aforementioned Jonas was on the farm and that he had a knife in his hand, upon which she ordered her *knechten* to go and have a look, but when they arrived at the farm to look for him, they saw that he had jumped over the wall, whereupon the deponent had the *geweldiger* and the *caffers[^13] * called to see that this Jonas was apprehended, who did come, and that same evening, at about half past eight o’clock, they caught this slave Jonas – who had hid himself amongst the peas in the little garden behind her house – in the presence of her *knechten*, the *caffers* and slaves, and who then came into the hands of justice thus.
 
 All of the aforesaid the deponent declares to be the whole and full truth, asserting to be convinced of the accuracy of her statement as in the text, while offering to subsequently confirm her deposition with solemn oaths, if so required.
 
@@ -140,15 +140,15 @@ Your honourable *juffrouw*’s[^14] obedient slave gives notice, with all humili
 
 Which I do, etc.
 
-[^1]: * This was particularly the case when widows freed slaves after their husbands’ death, Elphick & Shell 1989: 208-9. On slave manumission during the eighteenth century in general, see Worden 1985: 143-45; Elphick & Shell 1989; and Shell 1994: 371-94. *
+[^1]: This was particularly the case when widows freed slaves after their husbands’ death, Elphick & Shell 1989: 208-9. On slave manumission during the eighteenth century in general, see Worden 1985: 143-45; Elphick & Shell 1989; and Shell 1994: 371-94. 
 
-[^2]: * The documentation also includes the *eijsch* and the interrogation of Jonas, the substance of which was incorporated into the *sententie*, CJ 323, ff. 507-43. *
+[^2]: The documentation also includes the *eijsch* and the interrogation of Jonas, the substance of which was incorporated into the *sententie*, CJ 323, ff. 507-43. 
 
-[^3]: * Slaves were supposed to have a rest day on Sundays, but it seems as if in practice only Company slaves could be sure of this, while privately owned slaves were dependent on the whims of their owners. See 1705 Cinna, n. 2. *
+[^3]: Slaves were supposed to have a rest day on Sundays, but it seems as if in practice only Company slaves could be sure of this, while privately owned slaves were dependent on the whims of their owners. See 1705 Cinna, n. 2. 
 
-[^4]: * There is no evidence of who this might have been, but the style suggests that it was not somebody used to writing formal documents. For another case of slaves getting letters written for them by a burgher schoolchild, see 1786 Augustus van de Caab et al. *
+[^4]: There is no evidence of who this might have been, but the style suggests that it was not somebody used to writing formal documents. For another case of slaves getting letters written for them by a burgher schoolchild, see 1786 Augustus van de Caab et al. 
 
-[^5]: * For another case concerning Cape Town artisans, see 1757 Baatjoe van Mandhaar.*
+[^5]: For another case concerning Cape Town artisans, see 1757 Baatjoe van Mandhaar.
 
 [^6]:  See Ross 1999 on issues of status and respectability in the Cape.
 

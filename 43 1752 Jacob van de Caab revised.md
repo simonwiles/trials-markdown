@@ -1,6 +1,6 @@
 # JACOB VAN DE CAAB
 
-*As in the case of 1751 Jan van de Caab, Jacob van de Caab escaped to Holland but returned as a ship’s boy, the lowest rung of the Company’s employment ladder, and was arrested when he incautiously went on shore in Cape Town.*[^1]
+*As in the case of 1751 Jan van de Caab, Jacob van de Caab escaped to Holland but returned as a ship’s boy, the lowest rung of the Company’s employment ladder, and was arrested when he incautiously went on shore in Cape Town.[^1]*
 
 **CJ 34** Crimineele Regtsrolle des Casteels de Goede Hoop, 1752, ff. 28-30.
 
@@ -54,7 +54,7 @@ In the Castle of Good Hope, the date as above.
 
 In my presence, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-[^1]: * There is no further documentation on this case in the Documents in Criminal Cases series of the CJ series. *
+[^1]: There is no further documentation on this case in the Documents in Criminal Cases series of the CJ series. 
 
 [^2]:  See 1707 Jan de Thuilot, n. 10.
 
