@@ -26,7 +26,7 @@ U weledele achtbaare onderdanige dienaar,
 
 Swellendam, den 28^e^ December 1786.
 
-TRANSLATION
+## TRANSLATION
 
 Honourable Lord,
 

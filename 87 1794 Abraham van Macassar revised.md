@@ -16,7 +16,7 @@ Aldus gerelateerd op de hofsteede Welgevalle, geleegen over de Eerste Rivier bij
 
 ’Twelk ik getuijge, \[get.\] J. Wege, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement, given in the presence of the undersigned deputised *heemraden*, the honourables Pieter Gerard Wium and Christman Joël Ackerman, on the requisition of the landdrost here, the honourable Hendrik Lodewijk Bletterman, by the burgher Dirk Hoffman, of competent age, which goes as follows:
 

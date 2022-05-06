@@ -34,7 +34,7 @@ U weledelgestrenges ootmoedigen en gehoorzamen dienaar, \[get.\] O.G. de Wet.
 
 Stellenbosch, d’ 12^e^ Februarij 1780.
 
-TRANSLATION
+## TRANSLATION
 
 Right honourable Lord!
 
@@ -50,7 +50,7 @@ Your right honourable’s humble and obedient servant, \[signed\] O.G. de Wet.
 
 Stellenbosch, 1 February 1780.
 
-TRANSLATION
+## TRANSLATION
 
 Right honourable Lord!
 

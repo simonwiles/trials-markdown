@@ -28,7 +28,7 @@ Als getuijgen, \[get.\] C. Berkman, J.M. Smalbergen .
 
 In kennisse van mij, \[get.\] A. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Adriaan van Schoor, by the soldier Johan Christian Spring in ’t Veld, of competent age, being of the following contents, namely:
 

@@ -176,7 +176,7 @@ Als gecommitteerdens, \[get.\] Ns. Heijning, M. Bergstedt.
 
 Mij praesent, \[get.\] Dl. Thibault, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since Anthonij van Goa, 30 years old at a guess, bondsman of the burgher Beatrix Verweij, currently their honours’ prisoner, has voluntarily confessed, without torture or force of bonds, of irons, or even the least threat of suchlike, and since it has appeared evident and clear to the honourable Council of Justice of this government:
 
@@ -200,7 +200,7 @@ Pronounced and executed on the 29^th^ thereupon.
 
 In my presence, \[signed\] Dl. Thibault, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Questions, on the requisition of the landdrost Jacob Voet, on which is to be heard and examined the slave Anthonij van Goa, belonging to the burgher Beatrix Verweij.
 

@@ -40,7 +40,7 @@ Gepronuntieerd en g’executeert den 12^e^ daaraanvolgende.
 
 Mij present, \[get.\] Dl. Thibault, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 As Andries van Ceilon, 53 years old, bondsman of the farmer Barend Buijs, currently their honours’ prisoner, voluntarily confessed, without any torture of bonds, of irons, or even the least threat of suchlike, and since it has appeared evident to the honourable Council of Justice of this government:
 

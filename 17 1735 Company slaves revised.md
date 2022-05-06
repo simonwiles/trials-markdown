@@ -116,7 +116,7 @@ Compareerde voor ons, ondergetekende gecommitteerdens uijt den edelagtbare Raad 
 
 Accodeert, \[get.\] Js. de Grandpreez.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, Claas van de Caab, slave of the honourable Company, 24 years old at a guess, who, on the requisition of the honourable independent fiscal, *Meester* Daniel van den Henghel, confesses it to be true:
 
@@ -142,7 +142,7 @@ As delegates, \[signed\] H. Swellengrebel, R. Tulbagh.
 
 In my presence, \[signed\] J. de Grandpreez, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 13 May 1735, there appears before me, Josephus de Grandpreez, secretary of the honourable Council of Justice of the Castle of Good Hope, in the presence of the witnesses named below, the soldier Jan Plat, of competent age, assigned as *knecht* to the former burgher councillor, *Sieur* Jan de Wit, and who lives in the same’s garden, who, on the requisition of the honourable independent fiscal, *Meester* Daniel van den Henghel, declares it to be the genuine truth:
 
@@ -170,7 +170,7 @@ As delegates, \[signed\] H. Swellengrebel, R. Tulbagh.
 
 In my presence, \[signed\] Js. de Grandpreez, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 13 May 1735, there appears before me, Josephus de Grandpreez, secretary of the honourable Council of Justice of the Castle of Good Hope, in the presence of the witnesses named below, Januarij van Madagascar, of competent age, slave of the former burgher councillor, *Sieur* Jan de Wit, and assigned as shepherd in the garden of his owner, who, on the requisition of the honourable independent fiscal, *Meester* Daniel van den Henghel, declares it to be the genuine truth:
 
@@ -198,7 +198,7 @@ As delegates, \[signed\] H. Swellengrebel, R. Tulbagh.
 
 In my presence, \[signed\] Js. de Grandpreez, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Copy:
 

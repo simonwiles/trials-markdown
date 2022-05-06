@@ -22,7 +22,7 @@ Als getuijgen, \[get.\] J.B. Hoffman, \[get.\] G.C.L. Geering.
 
 In kennisse van mij, \[get.\] A. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Lucas Sigimundus Faber, by the slave Juliana van de Caab, of competent age, belonging to the *heemraad*, *Monsieur* Hercules Adriaan Malan, of the following content, namely:
 

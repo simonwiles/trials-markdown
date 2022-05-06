@@ -54,7 +54,7 @@ Als gecommitteerdens, \[get.\] T.C. Rönnekamp, Johs. van Sittert.
 
 Mij praesent, \[get.\] C.L. Neethling, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since, from the willing confession of Frans van Madagascar, slave of the *heemraad* Marten Melk, 23 years old at a guess, currently their honours’ prisoner, and from the other documents produced in the case, it has appeared evident to the Council of Justice:
 
@@ -76,7 +76,7 @@ Let the sentence be done, \[signed\] R. Tulbagh.
 
 In my presence, \[signed\] C.L. Neethling, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, the slave Frans van Madagascar, belonging to the former *heemraad*, *Monsieur* Marten Melk, 23 years old at a guess, who, on the requisition of the landdrost of Stellenbosch and Drakenstein, *Meester* Jacobus Johannes le Suëur, confesses it to be true:
 

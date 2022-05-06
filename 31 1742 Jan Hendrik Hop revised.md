@@ -66,7 +66,7 @@ Als getuijgen, \[get.\] Jan Hendrik Narb, J. van Ellewe.
 
 In kennisse van mij, \[get.\] A. Schephausen, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 26 November 1742, there appears before me, Arnold Schephausen, secretary of Stellenbosch and Drakenstein, in the presence of the witnesses named below, the burgher Daniël Bokkelenberg, who, on the requisition of the landdrost, *Sieur* Pieter Lourensz, declares it to be true:
 
@@ -86,7 +86,7 @@ As witnesses, \[signed\] Jan Hendrik Narb, J. van Ellewe.
 
 With my cognisance, \[signed\] A. Schephausen, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 26 November 1742, there appears before me, Arnold Schephausen, secretary of Stellenbosch and Drakenstein, in the presence of the witnesses named below, the burgher Nicolaas Pilletje, who, on the requisition of the landdrost, *Sieur* Pieter Lourensz, declares it to be true:
 
@@ -108,7 +108,7 @@ As witnesses, \[signed\] Jan Hendrik Narb, J. van Ellewe.
 
 With my cognisance, \[signed\] A. Schephausen, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 24 December 1742, there appears before me, Arnold Schephausen, secretary of Stellenbosch and Drakenstein, in the presence of the witnesses named below, the farmer Erasmus Smit, who, on the requisition of the landdrost, *Sieur* Pieter Lourensz, declares it to be the whole truth:
 

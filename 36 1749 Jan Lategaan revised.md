@@ -42,7 +42,7 @@ Als getuijgen, \[get.\] A. Faure, Gerrit Kemp.
 
 In kennisse van mij, \[get.\] J.B. d’Aillij, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 29 November 1749, there appears before me, Jean Benjamin d’Aillij, secretary of Stellenbosch and Drakenstein, in the presence of the witnesses named below, the slave Julij van Bengalen, being of competent age, bondsman of the farmer Jan Lategaan, living on the same’s farm situated in the Wagenmakersvallei, who, on the requisition of the honourable landdrost, Adriaan van Schoor, declares it to be true:
 
@@ -64,7 +64,7 @@ As witnesses, \[signed\] Gerrit Kemp, Johan Gorge \[*sic*\] Zorn.
 
 With my cognisance, \[signed\] J.B. d’Aillij, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Adriaan van Schoor, by the farmer Jan Lategaan, of competent age, being of the following content:
 

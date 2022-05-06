@@ -24,7 +24,7 @@ Fiat Executie, \[get.\] Jan de la Fontaine.
 
 Mij present, \[get.\] Js. de Grandpreez, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 As the honourable Council of Justice of this government, from the voluntary, verified confessions of the Hottentots Varken, 17 years old at a guess, Toontje, about 22 years old and Ruijter, 20 years old at a guess, made without any torture or coercion of bonds, of irons, or even the least threat of suchlike, and from the other papers produced in court; has determined it to be evident:
 

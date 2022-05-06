@@ -50,7 +50,7 @@ Fiat Executie, \[get.\] C.J. van de Graaff.
 
 Mij present, \[get.\] C. van Aersen, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since Job van Madagascar, bondsman of the widow of the late *manhafte* Jan Hendrik Ekker, 30 years old at a guess, Moses van Bougies, slave of the burgher Jacobus Tesselaar, 40 years old at a guess, Francies van Mosambique, belonging to the burgher Simon van Blerck, 20 years old at a guess, Jek van Madagascar, bondsman of the burgher adjutant, *manhafte* Francois de Necker, 22 years old at a guess, Fortuijn van Madagascar, slave of the burgher Petrus Johannes Hiebner, 25 years old at a guess, Caesar van Madagascar, belonging to the former *koopman*, the honourable Johannes van Echten, 40 years old at a guess, and Brein van Ambon, a manumitted bondsman, 50 years old at a guess, currently their honours’ prisoners, have voluntarily confessed and since, from the other documents furnished in the case, it has appeared evident to the honourable Council of Justice of this government:
 

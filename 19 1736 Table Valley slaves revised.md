@@ -40,7 +40,7 @@ Concludeert dat alle vijf de gevangens, en \<door diffinitive vonnisse van UEd. 
 
 \[get.\] D. van den Henghel.
 
-TRANSLATION
+## TRANSLATION
 
 # Dictum ter rolle
 
@@ -58,7 +58,7 @@ Exhibit in court, 22 March 1736.
 
 \[signed\] D. van den Henghel.
 
-TRANSLATION
+## TRANSLATION
 
 # Dictum ter rolle
 

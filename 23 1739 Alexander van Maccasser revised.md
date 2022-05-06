@@ -26,7 +26,7 @@ Fiat Executie, \[get.\] H. Swellengrebel.
 
 Mij praesent, \[get.\] D.G. Carnspek, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since Alexander van Maccasser, 30 years old at a guess, bondsman of the *onderkoopman* and *negotie overdrager*,[^4] the honourable Abraham Decker, currently their honours’ prisoner, has voluntarily confessed without torture or force of bonds, of irons, or even the least threat of suchlike, and it appeared evident:
 

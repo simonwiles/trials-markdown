@@ -52,7 +52,7 @@ Aldus gerecolleert op de plaats van den burger Pieter van Taak, voormeld, den 27
 
 ’Twelk ik getuijge, \[get.\] A. Schephausen, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since, from the voluntary and verified confession of Fortuijn van Bengalen, bondsman of the farmer Abraham de Villiers, 28 years old at a guess, currently their honours’ prisoner, given without torture or force of bonds, of irons, or even the least threat of suchlike, and from other documents serving the case, it has appeared evident:
 
@@ -78,7 +78,7 @@ Let the execution be done, \[signed\] H. Swellengrebel.
 
 Mij praesent, \[signed\] D.G. Carnspek, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 26 December 1741, there appears before me, Arnold Schephausen, secretary of Stellenbosch and Drakenstein, in the presence of the witnesses named below, Christijn van de Caab, bondswoman of the farmer Pieter Venter, about 25 years old, who, on the requisition of the landdrost, *Sieur* Pieter Lourensz, declares it to be true:
 

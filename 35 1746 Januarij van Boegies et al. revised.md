@@ -72,7 +72,7 @@ Den 23^e^ April 1746.
 
 Weledele heer.[^4]
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, Baatjoe van Samboua, bondsman of the burgher Christiaan Victor, 40 years old at a guess, who, on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, confesses it to be the whole truth:
 
@@ -96,7 +96,7 @@ Thus verified at the Cape of Good Hope on 14 May 1746 before the honourables Js.
 
 Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, Januarij van Boegies, bondsman of the burgher Barend van der Schijff, 40 years old at a guess, who, on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, confesses it to be true:
 
@@ -114,7 +114,7 @@ Thus verified at the Cape of Good Hope on 10 May 1746 before the honourables Js.
 
 Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, by the reverend minister, the honourable Frans le Sueur, of the following content:
 
@@ -130,7 +130,7 @@ Thus related at the Cape of Good Hope on 2 May 1746 in the presence of the clerk
 
 Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Right honourable Lord!
 

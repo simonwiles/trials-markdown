@@ -46,7 +46,7 @@ Als getuijgen, \[get.\] J.M. Smalberger, Coenraad Fick.
 
 In kennisse van mij, \[get.\] A. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 25 January 1764, there appears before me, Abraham Faure, secretary of Stellenbosch and Drakenstein, in the presence of the witnesses named below, the burgher Jan Lodewijk Pretorius, of competent age, who, on the requisition of the honourable landdrost, *Meester* Jacobus Johannes le Suëur, declares it to be the truth:
 
@@ -66,7 +66,7 @@ As witnesses, \[signed\] J.M. Smalberger, Coenraad Fick.
 
 With my cognisance, \[signed\] A. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 1 February 1764, there appears before me, Abraham Faure, secretary of Stellenbosch and Drakenstein, in the presence of the witnesses named below, the arquebusier[^4] Jacob Pietersz, who is on loan to and currently living with the burgher Jacob Mouton, being of competent age, who, on the requisition of the honourable landdrost, *Meester* Jacobus Johannes le Suëur, declares it to be true:
 

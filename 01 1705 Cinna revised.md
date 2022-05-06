@@ -72,7 +72,7 @@ Aldus g’examineert ten overstaan van voorseijde heemraden op ’t regthuijs St
 
 Mij present, \[get.\] Jan Mahieu, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 On Saturday, 29 August in the year 1705.
 

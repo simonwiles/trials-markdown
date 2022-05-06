@@ -46,7 +46,7 @@ Fiat Executie, \[get.\] R. Tulbagh.
 
 Mij present, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 The Cape of Good Hope.
 
@@ -66,7 +66,7 @@ Your right honourable lord’s most humble and obedient servant,
 
 Stellenbosch, 12 February 1751.
 
-TRANSLATION
+## TRANSLATION
 
 Since, from the voluntary, verified confessions of Tallone van Boegies, who used to be assigned as convict to the honourable Company’s slave lodge[^6], age about 40, Jason van Boegies, bondsman of the captain lieutenant Wijnand Willem Muijs, age 36, Jephta van Boegies and Baatjoe van Balij, both slaves of the chief prison warder Hermanus Hermansz., the one aged 25 and the other 22, Fortuijn van Boegies, belonging to the Chinese Limpsinko, age 24, Pomade van Macassar, slave of the soldier Nicolaas van Blerk, age 30, September van Padang,[^7] bondsman of the chief servant of the armoury Joachim Kannemeijer, age 25, Maij van Sambouwa, belonging to the burgher Roelof Ruijgrok, age 30, Baatjoe van Boegies, bondsman of the burgher Gijsbert Rogiers, age 40, Baatjoe van Mandhaar, slave of the captain at sea, the honourable Gerrit Rijndertsz. de Vos, and April van Boegies, belonging to Hendrick Pietersz. van Gale, also 40 years old at a guess, currently their honours’ prisoners, done without torture or force of bonds, of irons, or even the least threat of suchlike, and from the other documents furnished in the case, it has appeared as clear as daylight to the honourable Council of Justice of this government:
 

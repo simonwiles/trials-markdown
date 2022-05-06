@@ -66,7 +66,7 @@ Als gecommitteerdens, \[get.\] J.B. Hoffman, P.G. Wium.
 
 Mij praesent, \[get.\] J.P. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement, given in the presence of the undersigned deputised *heemraden*, the honourables Pieter Gerhard Wium and Christman Joël Ackerman, and on the requisition of the landdrost here, the honourable *koopman* Hendrik Lodewijk Bletterman, by and on behalf of David van de Caab, thirty years old at a guess, bondsman of the former burgher lieutenant, the *manhafte* Francois de Wet, which goes as follows: That after having been with and on the farm of the *manhafte* Johannes de Waal for about four months to suckle the youngest child of the said De Waal,[^6] the slave of the testifier’s owner, by the name of Jacomijn and with whom the testifier has a relationship, returned home on a certain Sunday, about fourteen days before the last New Year. Whenever the said Jacomijn picked up her child, who that whole day had been doing nothing but crying, and held it to her bosom, the testifier’s owner forbade it, saying in essence: “You shouldn’t think you’re with De Waal where you can sit all day long with the child on your lap”, which utterance he repeated a couple of times and when he did so again on the Tuesday thereafter, the said Jacomijn then answered him: “At *Sieur* De Waal’s I at least always had somebody to look after my child, but now there’s nobody; one day she will cry herself to death”. Whereupon the testifier’s owner became so angry over this that he took the *sjambok *for the back horses, which was hanging in the kitchen, and dealt the aforementioned Jacomijn, while she was holding the child in her arms, several blows with it, besides also dealing some blows to the child (in particular two visible wounds on its forehead) on this occasion, as a result of which the testifier’s child, who before this had been well and healthy, passed away the night of that very Tuesday, and was buried the following day. At which incident were present: the widow Jan Theron, a slave *jongen* of the said widow Theron, by the name of Goliad, a female Hottentot living at his owner’s, by the name of Anna, and a fellow slave of the testifier’s owner, named Fortuijn.
 
@@ -86,7 +86,7 @@ As delegates, \[signed\] P.G. Wium, C. Joël Ackerman.
 
 In my presence, \[signed\] J.P. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned deputised *heemraden*, the honourables Johan Bernhard Hoffman and Pieter Gerhard Wium, the *Bastaard-Hottentot* Anna, 30 years old at a guess, who, on the requisition of the landdrost, the honourable *koopman* Hendrik Lodewijk Bletterman, declares it to be the truth:
 
@@ -108,7 +108,7 @@ As delegates, \[signed\] J.B. Hoffman, P.G. Wium.
 
 In my presence, \[signed\] J.P. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before the undersigned deputised *heemraden*, the honourables Johan Bernhard Hoffman and Pieter Gerhard Wium, Fortuijn van Bengalen, forty years old at a guess, bondsman of the *manhafte* Francois de Wet, who, on the requisition of the landdrost here, the honourable *koopman *Hendrik Lodewijk Bletterman, declares it to be true:
 

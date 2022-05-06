@@ -14,7 +14,7 @@ Cabo de Goede Hoop, *datum ut supra*.
 
 Mij praesent, \[get.\] C.L. Neethling, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Sunday, 30 March 1766.
 

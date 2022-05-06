@@ -34,7 +34,7 @@ Aldus gerelateerd aan ’s edele Compagnies schuur, den 23^e^ Januarij 1739, voo
 
 ’Twelk ik getuijge, \[get.\] Js. de Grandpreez, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since, from the answered questions in the torture or pain room[^3] by the woodcutter Jurgen Scholts of Dantsig, 26 years old, as well as from the voluntary confessions of his fellow woodcutters Willem Brock of Bockholt, ... years old,[^4] Christoffel Coelmeijer of Paterborn, 28 years old, and Christoffel Hoorneft of Roosdorp, 32 years old[^5] – which confessions were verified voluntarily, willingly and without any torture or coercion of bonds, of irons, or even the least threat of suchlike – all four currently their honours’ prisoners, and from other papers furnished in the case, it has appeared evident:
 
@@ -56,7 +56,7 @@ Let the sentences be done, \[signed\] D. v.d. Henghel.
 
 In my presence, \[signed\] Js. de Grandpreez, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Testimony given, on the requisition of the *onderkoopman*, *Sieur* Johannes Needer, acting as fiscal for the interim, by the slave Coridon, belonging to the head of *De Schuur*, Gibbelaar, being of the following contents:
 

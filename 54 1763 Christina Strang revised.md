@@ -74,7 +74,7 @@ Aldus gerelateerd in ’t Casteel de Goede Hoop, den 28^e^ Februarij 1764, ten b
 
 ’Twelk ik getuijge, \[get.\] C.L. Neethling, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the landdrost of Stellenbosch and Drakensteijn, *Sieur* Johannes le Sueur, by Januarij van Ceijlon, slave of the farmer Jacobus Kruger, of competent age, going as follows: That, as the testifier believes, more than two years, or two or three times,[^4] ago, when the testifier’s owner, who resides on his farm situated in the Bocke Veld, rode away from his house and, as the testifier supposes, set out to Stellenbosch to drill,[^5] the testifier and his fellow slave called Augustus – without the testifier knowing for sure of what nation he was but he suspects that he must have been a Batavian *jongen* as he was yellow in colour[^6] – had to labour, with the help of some Hottentots, on the building of a stone corral, the stones for which they had to search for in the vicinity and had to drag them there with oxen, while the aforesaid Augustus moreover also had to lead these draught oxen.
 
@@ -100,7 +100,7 @@ Thus related in the Castle of Good Hope on 5 December 1763 in the presence of th
 
 Which I declare, \[signed\] C.L. Neethling, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the landdrost of Stellenbosch and Drakenstein, *Sieur* Johannes Jacobus le Sueur, by the Hottentot Jantje, 10 or 11 years old at a guess, going as follows:
 
@@ -118,7 +118,7 @@ Thus related in the Castle of Good Hope on 5 December 1763 in the presence of th
 
 Which I declare, \[signed\] C.L. Neethling, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the landdrost of Stellenbosch and Drakensteijn, *Sieur* Jacobus Johannes le Sueur, by Christina Strang, wife of the farmer Jacobus Cruger junior, of competent age, going as follows:
 

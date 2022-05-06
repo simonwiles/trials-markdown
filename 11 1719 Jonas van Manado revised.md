@@ -72,7 +72,7 @@ Geeft met alle nedrigheijt en droefheijt des herten te kennen UE. juffw. onderda
 
 ’Twelk doende &a.
 
-TRANSLATION
+## TRANSLATION
 
 As Jonas van Manado, 30 years old at a guess, bondsman of Hermina Herwigh, widow of Jan Basilius Creitsmar,[^8] currently their honours’ prisoner, has voluntarily confessed and admitted, without any torture or coercion of bonds, of irons, or any threat of suchlike; and since it has appeared most evident to the honourable Council of Justice:
 
@@ -100,7 +100,7 @@ Published and executed on the 25^th^ thereupon.
 
 In my presence, \[signed\] Dl. Thibault, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 16 October 1719, there appears before me, Daniel Thibault, secretary of the honourable Council of Justice of this government, in the presence of the witnesses named below, Hermina Herwig of Amsterdam, widow of the late burgher here, Jan Basilius Creitsmar, who, on the requisition of the honourable independent fiscal, Cornelis van Beaumont, declares it to be true:
 
@@ -132,7 +132,7 @@ As witnesses, \[signed\] P. van der Heijden, Ms. Heems.
 
 With my cognisance, \[signed\] Dl. Thibault, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 To the virtuous *juffrouw* Aarmintie Jillis,
 

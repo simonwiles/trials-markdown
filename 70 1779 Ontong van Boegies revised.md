@@ -82,7 +82,7 @@ U weledelachtbarens ootmoedigen en gehoorzamen dienaar, \[get.\] O.G. de Wet.
 
 Stellenbosch, den 8^e^ Maij 1779.
 
-TRANSLATION
+## TRANSLATION
 
 Most honourable Lord!
 
@@ -94,7 +94,7 @@ Your most honourable Lord’s obedient servant, \[signed\] O.G. de Wet.
 
 Stellenbosch, 12 March 1779.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates, from the honourable Council of Justice of this government, the slave *jongen* Adonis van de Caab, belonging to the burgher Jan Nieuwout, of competent age, who, on the requisition of the landdrost of Stellenbosch, the honourable *onderkoopman* Olof Godlieb de Wet, declares it to be true:
 
@@ -110,7 +110,7 @@ Thus done and verified in the Castle of Good Hope on 29 March 1779 before the ho
 
 Which I declare, \[signed\] C.L. Kloege, sworn clerk.
 
-TRANSLATION
+## TRANSLATION
 
 Since Ontong van Boegies, slave of the farmer Johannes Nieuwout, 50 years old at a guess, currently their honours’ prisoner, has voluntarily confessed and, since from the other documents produced in the case, it has appeared clear as daylight to the honourable Council of Justice:
 
@@ -134,7 +134,7 @@ Let the sentence be done, \[signed\] Jm. van Plettenberg.
 
 In my presence, \[signed\] C.L. Neethling, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Most honourable Lord!
 
@@ -148,7 +148,7 @@ Your most honourable’s humble and obedient servant, \[signed\] O.G. de Wet.
 
 Stellenbosch, 6 May 1779.
 
-TRANSLATION
+## TRANSLATION
 
 Most honourable Lord!
 

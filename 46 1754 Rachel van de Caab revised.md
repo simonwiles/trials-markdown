@@ -56,7 +56,7 @@ Aldus gerecolleert aan Cabo de Goede Hoop, den 26^e^ Januarij 1754, voor d’ ed
 
 ’Twelk ik getuijge, Jn. Fr. Tiemmendorf, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, Raachel van de Caab, slave of the burgher Jacobus van Reenen junior, 20 to 21 years old, who on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, confesses it to be true:
 
@@ -88,7 +88,7 @@ Thus verified in the Castle of Good Hope on 17 January 1754 before the honourabl
 
 Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 18 January 1754, there appears before me, Jan Frederick Tiemmendorf, secretary of the honourable Council of Justice of this government, in the presence of the witnesses named below, Amarentia van de Caab, slave of the former chief surgeon, Dirck Wijdenaar, of competent age, who, on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, declares it to be true:
 

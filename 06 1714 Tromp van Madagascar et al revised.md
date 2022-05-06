@@ -200,7 +200,7 @@ Mitsgaders gepronuntieert en g’executeert, den 6^e^ daaraanvolgende.
 
 Mij present, \[get.\] Dl. Thibault, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Interrogation, on the requisition of the Independent Fiscal, Cornelis van Beaumont, in which is to be heard and examined Thomas, bondsman of the burgher Christoffel Esterhuijsen.
 
@@ -354,7 +354,7 @@ As delegates, \[signed\] O. Bergh, J. Blanckenberg.
 
 In my presence, \[signed\] Dl. Thibault, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 As Tromp van Madagascar, age 20, Cupido van Batavia, age 30, Jeroen van de Malijtse Cust,[^8] age 24, and Neptunis van Bima, age 20 years, bondsmen of the former burgher councillor Nicolaas Oortmans, Titus van de Caab, age 22, and Joumat van Ternaten, age 40 years, slaves of the widow Diepenauw, Januarij van Batavia, age 20, Jonas van Trancqueebaare, age 40, and Pasqual from the Spanish West Indies,[^9] age 30 years, bondsmen of the *dispencier*, *Sieur* Johannes Swellengrebel,[^10] Thomas van Bengalen, age 30, and finally Anthonij van Mallebaar, age 40 years, slaves of the farmer Christoffel Esterhuijs, currently their honours’ prisoners, have willingly, without torture or threat of bonds, of irons, or even the least threat of these, confessed and admitted, and since it has appeared evident to the honourable Council of Justice of this government:
 

@@ -14,7 +14,7 @@ U weledele agtbaarens ootmoedigen dienaar, \[get.\] H.L. Bletterman.
 
 Stellenbosch, den 22^e^ April 1790.
 
-TRANSLATION
+## TRANSLATION
 
 Honourable lord!
 

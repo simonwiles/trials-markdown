@@ -34,7 +34,7 @@ Aldus gerelateerd ter secretarije aan Stellenbosch op den 8^e^ Januarij 1749, in
 
 ’Twelk ik getuijge, \[get.\] A. Schephausen, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of the Castle of Good Hope, Reijnier van Madagascar, bondsman of the heirs of the late farmer Matthijs Krugel, 60 years old at a guess, who on the requisition of the landdrost of Stellenbosch and Draakensteijn, *Sieur* Adriaan van Schoor, confesses it to be true:
 
@@ -52,7 +52,7 @@ Thus verified at the Cape of Good Hope on 14 January 1749 before the honourables
 
 Which I declare, \[signed\] C.L. Neethling, sworn clerk.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Adriaan van Schoor, by the burgher Pieter Reijnertsz., being of the following contents, namely:
 

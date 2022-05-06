@@ -72,7 +72,7 @@ Aldus gerecolleert aen Cabo de Goede Hoop, den 28^e^ Februarij 1744, voor d’ e
 
 ’Twelk ik getuijge, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of the Castle of Good Hope, Barkat van Timor, bondsman of the former burgher councillor, *Sinjeur* Abraham Cloppenburg, 30 years old at a guess, who, on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, confesses it to be true:
 
@@ -98,7 +98,7 @@ Thus verified at the Cape of Good Hope on 28 February 1744 before the honourable
 
 Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable fiscal Pieter Reede van Oudshoorn, by the former burgher councillor, *Sieur* Abraham Cloppenburg, which is of the following content, namely:
 
@@ -116,7 +116,7 @@ Thus verified at the Cape of Good Hope on 28 February 1744 before the honourable
 
 Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, by the *bandiet* Pannaij van Boegies,[^13] of competent age, being of the following contents, namely:
 

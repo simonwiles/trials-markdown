@@ -36,7 +36,7 @@ Als getuijgen, \[get.\] M.H.O.Woeke, J.J. Reiniers.
 
 In kennisse van mij, \[get.\] A. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, by the slave Carolina van Madagascar, of competent age, belonging to the burgher Pieter de Villiers Abramsz, of the following content:
 
@@ -52,7 +52,7 @@ As witnesses, \[signed\] J.J. Reiniers, Johs. Victor.
 
 With my cognisance, \[signed\] A. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, by the burgher Pieter de Villiers Abramsz, of competent age, which is of the following content, namely:
 

@@ -24,7 +24,7 @@ Mitsgaders gepronuntieert ende geëxecuteert den 15^e^ daaraanvolgende.
 
 Mij present, \[get.\] Js. de Grandpreez, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 As Jephta van Batavia, bondsman of the burgher Johannes Heufke, 30 years old, currently their honours’ prisoner, has voluntary confessed without any torture or coercion of bonds, of irons, or the least threat of suchlike, and since it also appeared evident to the honourable Council of Justice of this government:
 

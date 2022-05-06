@@ -28,7 +28,7 @@ In ’t Casteel de Goede Hoop, datum als vooren.
 
 Mij present, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Thursday, 20 April 1752, in the morning, present the honourable Isack Meinertzhagen and all the members, except the honourable lord president Sergius Swellengrebel and the honourable Hendrik Ruiter, because of their occupations, besides the honourable Willem van Kerckhoff, through indisposition.
 

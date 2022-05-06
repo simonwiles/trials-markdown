@@ -116,7 +116,7 @@ Stellenbosch, den 20^e^ Junij 1729.
 
 \[get.\] Js. Cl. Schabort.
 
-TRANSLATION
+## TRANSLATION
 
 Interrogation, on the requisition of the landdrost Pieter Lourensz, in which is to be heard and questioned the burgher Jan Botma.
 
@@ -182,7 +182,7 @@ As delegates, \[signed\] Cl. Brand, Hendk. Oostwalt Eksteen.
 
 In my presence, \[signed\] Js. de Grandpreez, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given by Domingo van Goa, bondsman of the farmer Jan Botma, on the requisition of the landdrost Pieter Lourensz, namely:
 
@@ -200,7 +200,7 @@ As witnesses, \[signed\] Hans Conterman, Johannis van Ellewe.
 
 With my cognisance, \[signed\] P. Mazot, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given by Aaron van Madagascar, bondsman of the farmer Jan Botma, on the requisition of the landdrost Pieter Lourensz, namely:
 
@@ -220,7 +220,7 @@ As witnesses, \[signed\] Hans Conterman, Johannis van Ellewe.
 
 With my cognisance, \[signed\] P. Mazot, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 I, the undersigned surgeon of Drakenstein, attest, on the requisition of the landdrost Pieter Lourensz, to have examined, on the 10^th^ of this current month June and in the presence of the deputised *heemraden*, on the farm of Jan Botma a certain dead slave, named Joseph, belonging to the aforesaid Botma, and to have found that the same was whipped, although unable to find any mortal wounds on the same, but presumes that this *jongen* Joseph must have drowned in the water, seeing that, when he had turned the same over, water ran from his mouth.
 

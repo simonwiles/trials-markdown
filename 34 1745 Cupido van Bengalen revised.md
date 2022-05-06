@@ -28,7 +28,7 @@ Den ondergetekende uijt alle de vier voorseijde relaasen verstaan hebbende dat d
 
 ’twelk doende etc.[^6]
 
-TRANSLATION
+## TRANSLATION
 
 To the honourable lord Rijk Tulbagh, president, together with the honourable Council of Justice of the Castle of Good Hope.
 

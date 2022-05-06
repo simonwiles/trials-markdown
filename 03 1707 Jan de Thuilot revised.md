@@ -32,7 +32,7 @@ Dat op Woensdagh, den 4^e^ deser maand, omtrent den avond,[^7] ick verstaan heb 
 
 Haer getrouwe en gehoorsame onderdaen, Jean du Thuile. De superscriptie is aen de heer d’Ableing, administrateur van ’t gouvernement aen Cabo de Goede Hoop en aen sijne achtbare Raad.
 
-TRANSLATION
+## TRANSLATION
 
 Since, some time ago, the provisional landdrost has demonstrated to us how, during the month of last December, the farmer Jan de Thuilot, living in the Wagemaakers Valeij in the district of Drakenstein, had made himself guilty in his own house of two abominable homicides to one of his slaves, Andries, and to a Hottentot working for him, named Caffer. The landdrost was then, at his own request and because of his \[De Thuilot’s\] flight, granted the right to act in anticipation,[^9] together with a first, second and third writ of summons, as well as a fourth mandate in superabundance,[^10] with a premium of twenty-five rixdollars for whoever may apprehend him and deliver him into the hands of justice, besides a penal prohibition against all who support, help to hide or may provide him with any provisions; that if he did not appear on the day advertised but still remained hidden, then these offences will not only be considered to be admitted, in accordance with law, but that he, Jan de Thuilot, would also be considered, being convinced and persuaded of it, the author and perpetrator of the same. So the said landdrost then brought his action, as well as the evidence which supported it, from which the honourable Council of Justice determined it to be clear and evident, as also to have appeared sufficiently:
 
@@ -50,7 +50,7 @@ Pronounced on the 7^th\ ^thereupon.
 
 In my presence, \[signed\] A. Poulle, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 I, the undersigned Jean de Thuile, have been summonsed by the landdrost to appear at the Cape before the honourable d’Ableing and his honourable Council at the latest Thursday, 22 December, but through my indisposition it is impossible for me, and therefore I considered it necessary to send my reasons in writing to the honourable d’Ableing and his honourable Council – my reasons are these:
 

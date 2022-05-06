@@ -62,7 +62,7 @@ Aldus gepasseert ter secretarije van justitie des Casteels de Goede Hoop, ter pr
 
 ’Twelk ik getuige, \[get.\] L.S. Faber, geswoore clercq.
 
-TRANSLATION
+## TRANSLATION
 
 *Dictum ter rolle*.
 
@@ -82,7 +82,7 @@ Concluding with this that the defendant, Nicolaas Godfried Heijns, with certain 
 
 Exhibit in court, 13 February in the year 1766.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable independent fiscal, Jan Willem Cloppenburg, by the slave Flora van Bengalen, bondswoman of the burgher Nicolaas Godfried Heijns, going as follows:
 
@@ -102,7 +102,7 @@ Thus related at the office of the secretary of justice of the Castle of Good Hop
 
 Which I declare, \[signed\] L.S. Faber, sworn clerk.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 3 February 1766, there appears before me, Lucas Sigismundus Faber, sworn clerk in the office of the secretary of justice of this government, in the presence of the witnesses named below, the slave Dela van Bengalen, belonging to the burgher Nicolaas Godfried Heijns, of competent age, who, on the requisition of the honourable independent fiscal, Jan Willem Cloppenburg, declares it to be true:
 

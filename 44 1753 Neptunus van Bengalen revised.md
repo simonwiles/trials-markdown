@@ -18,7 +18,7 @@ Fiat Executie, \[get.\] R. Tulbagh.
 
 \[get.\] H. Swellengrebel, and 12 others.
 
-TRANSLATION
+## TRANSLATION
 
 As Neptunus van Bengalen, slave of the former *heemraad* Philip du Preez, 36 years old at a guess, currently their honours’ prisoner, willingly confessed, without torture or coercion of bonds, of irons, or even the least threat of suchlike, and as it has also appeared evident to the honourable Council of Justice of this government:
 

@@ -40,7 +40,7 @@ Aldus gerecolleert aan Cabo de Goede Hoop, den 13^e^ November 1755, voor d’ ed
 
 ’Twelk ik getuijge, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, by Clara van Macassar, slave of the late captain lieutenant of the military, Godfried Gerhard Schindelaar, going as follows:
 
@@ -58,7 +58,7 @@ Thus verified at the Cape of Good Hope on 13 November 1755 before the honourable
 
 Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of the Castle of Good Hope, Januarij van Boegies, bondsman of the heirs of the late captain lieutenant of the military, Godfried Gerhard Schindelaar, 45 years old at a guess, who, on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, confesses it to be true:
 

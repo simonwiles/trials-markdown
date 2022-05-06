@@ -26,7 +26,7 @@ Fiat Executie, \[get.\] R. Tulbagh.
 
 \[get.\] L.S. Faber, geswoore clercq.
 
-TRANSLATION
+## TRANSLATION
 
 It has come to appear evident to the honourable Council of Justice of this government, both from the voluntary confession of Baatjoe van Mandhaar, bondsman of the burgher Jan Christoffel Broderik, 30 years old at a guess, currently their honours’ prisoner, as well as from the other documents, all properly verified, added to the case:
 

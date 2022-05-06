@@ -30,7 +30,7 @@ Fiat Executie, \[get.\] C.J. van de Graaff.
 
 Mij present, \[get.\] C. van Aersen, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 As Ceres van Madagascar, 30 years old at a guess, and April van Ceijlon, 40 years old at a guess, both slaves of the burgher Olthman Ahlers, currently their honours’ prisoners, have voluntarily confessed and further, since it appeared evident to the honourable Council of Justice of this government:
 

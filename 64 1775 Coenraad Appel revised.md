@@ -68,7 +68,7 @@ Als getuijgen, \[get.\] Johs. Victor, J.J.F. Wägener.
 
 In kennisse van mij, \[get.\] A. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 25 January 1775, there appears before me, Abraham Faure, secretary of Stellenbosch and Drakenstein, in the presence of the witnesses named below, the slave October van Bougies, of competent age, belonging to the farmer Coenraad Appel, who, on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, declares it to be true:
 
@@ -84,7 +84,7 @@ As witnesses, \[signed\] M.H.O. Woeke, Johs. Victor.
 
 With my cognisance, \[signed\] A. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, by the slave Filida van de Caab, of competent age, belonging to the farmer Coenraad Appel, which is of the following content, namely:
 
@@ -104,7 +104,7 @@ As witnesses, \[signed\] M.H.O. Woeke, Johs. Victor.
 
 With my cognisance, \[signed\] A. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, by Elsie Anna Meijburgh, wife of the farmer Coenraad Appel, which is of the following content, namely:
 

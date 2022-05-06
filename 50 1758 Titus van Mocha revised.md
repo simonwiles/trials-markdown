@@ -44,7 +44,7 @@ Aldus gerecolleert aan Cabo de Goede Hoop, den 12^e^ Maij 1758, voor d’ edele 
 
 ’Twelk ik getuijge, \[get.\] L.S. Faber, geswore clercq.
 
-TRANSLATION
+## TRANSLATION
 
 Since from the voluntary, verified confession of Titus van Mocha[^4], bondsman of the farmer Jacobus du Toij \[*sic*\], 27 years old at a guess, currently their honours’ prisoner, and from the other evidence furnished in the case, it has come to appear as clear as daylight to the honourable Council of Justice of this government:
 
@@ -62,7 +62,7 @@ Let the execution be done, \[signed\] R. Tulbagh.
 
 In my presence, \[signed\] C.L. Neethling, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, by the bondsman of the honourable Company, Coetoe van Madagascar, of competent age, going as follows: That about twelve days ago now, or in the night between a certain Saturday and Sunday, when the testifier, who is stationed with other bondsmen of the honourable Company at the brick ovens and was sleeping with them in a little hut standing there, woke up after twelve o’clock both through the knocking which was done on the door in front and through the barking of the dogs, got up, went outside of this hut and on to the large door and opened it in order to see who could be there.[^6]
 

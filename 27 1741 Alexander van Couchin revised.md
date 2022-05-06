@@ -144,7 +144,7 @@ Aldus gerecolleert aan Cabo de Goede Hoop, den 7^e\ ^April 1741, voor d’ edele
 
 ’Twelk ik getuijge, \[get.\] D.G. Carnspek, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given on the requisition of the landdrost, *Sieur* Pieter Lourensz, by the former *heemraad* Daniel van der Lith, the same being of the following contents, namely:
 
@@ -164,7 +164,7 @@ Thus verified at the Cape of Good Hope on 6 April 1741 before the honourables Cl
 
 Which I declare, \[signed\] D.G. Carnspek, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 13 May 1741, there appears before me, Arnold Schephausen, secretary of Stellenbosch and Drakenstein, in the presence of the witnesses named below, the soldier Christoffel Jansz, currently on loan as *knecht* to the former *heemraad*, Daniel van der Lith, who on the requisition of the landdrost, *Sieur* Pieter Lourensz, declares to be the certain truth:
 
@@ -188,7 +188,7 @@ As delegates, \[signed\] Am. Decker, J. de Wit \[*sic*\].
 
 In my presence, \[signed\] D.G. Carnspek, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Interrogation, in which is to be heard and questioned, on the requisition of the landdrost Pieter Lourensz, the slave Alexander van Couchin, bondsman of the former *heemraad*, Daniel van der Lith.
 

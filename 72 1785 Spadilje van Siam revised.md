@@ -28,7 +28,7 @@ Fiat Executie, \[get.\] C.J. van de Graaff.
 
 Mij present, \[get.\] C.L. Neethling, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since Spadiltje, slave of the free black Albert Isaaksz, twenty five years old at a guess, currently their honours’ prisoners, has voluntarily confessed and, from the other evidence produced in the case, it has appeared evident to the honourable Council of Justice:
 

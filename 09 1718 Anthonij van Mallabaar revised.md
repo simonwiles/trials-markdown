@@ -96,7 +96,7 @@ Als gecommitteerdens, \[get.\] Jn. Aldersz, Hk. Donker.
 
 Mij praesent, \[get.\] Dl. Thibault, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since Anthonij van Mallabaar, 24 years old at a guess, bondsman of the farmer Hendrik Moel, currently their honours’ prisoner, has voluntarily and freely confessed, without torture or coercion of bonds, of irons, or any threat of suchlike; and also since it has appeared evident to the honourable Council of Justice of this government:
 
@@ -118,7 +118,7 @@ Pronounced and executed on the 3^rd^ thereupon.
 
 In my presence, \[signed\] Dl. Thibault, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Questions on which, on the requisition of the landdrost Jacob Voet, are to be heard and examined the slave Anthoni van Mallebaar, belonging to the famer Hendrick Moel.
 

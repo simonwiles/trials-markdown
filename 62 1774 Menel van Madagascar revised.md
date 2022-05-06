@@ -20,7 +20,7 @@ Als getuijgen, \[get.\] J.J. Reijniers, J. Engel.
 
 In kennisse van mij, \[get.\] A. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Martinus Adrianus Bergh, by the slave Julij van Bengalen, of competent age, bondsman of the burgher Christoffel Lombard, which is of the following content, namely:
 

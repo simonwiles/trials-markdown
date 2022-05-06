@@ -24,7 +24,7 @@ Als gecommitteerdens, \[get.\] J.B. Hoffman, P.G. Wium.
 
 Mij present, \[get.\] J.P. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement, given in the presence of the undersigned deputised *heemraden*, the honourables Johan Bernhard Hoffman and Pieter Gerhard Wium, and on requisition of the landdrost of Stellenbosch and Drakenstein, the honourable Hendrik Lodewijk Bletterman, by the burgher Tieleman Roos Jansz, of competent age, which goes as follows:
 

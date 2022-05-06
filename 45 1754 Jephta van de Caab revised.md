@@ -22,7 +22,7 @@ Fiat Executie, \[get.\] R. Tulbagh.
 
 Mij present, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since, from both the written *eijsch* supplied by the honourable independent fiscal, Pieter Reede van Oudshoorn, as well as the confession made in court by Jephta van de Caab, bondsman of the first chief surgeon of the hospital here, *sieur* Bartho de St. Jean, 16 years old at a guess, currently their honours’ prisoner, it has appeared evident to the honourable Council of Justice of this governement:
 

@@ -24,7 +24,7 @@ Als gecommitteerdens, \[get.\] C. Joël Ackerman, P.G. Wium.
 
 In kennisse van mij, \[get.\] J.P. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the titular merchant and landdrost, the honourable Hendrik Lodewijk Bletterman, and in the presence of the undersigned *heemraden*, the honourables, Christman Joël Ackerman and Pieter Gerhard Wium, by the little slave boy Lakij, about 12 years old, belonging to the burgher Isaak de Villiers Jansz, going as follows:
 

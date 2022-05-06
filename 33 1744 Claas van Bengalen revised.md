@@ -46,7 +46,7 @@ Als getuijgen, \[get.\] J. van Ellewe, Arend Wilckens.
 
 In kennisse van mij, \[get.\] A. Schephausen, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given on the requisition of the landdrost, *Sieur* Pieter Lourensz, by Januarij van Rio de la Goa,[^7] 20 years old at a guess, bondsman of the burgher Francois Retief, being of the following contents, namely:
 
@@ -70,7 +70,7 @@ As witnesses, \[signed\] J. van Ellewe, Arend Wilckens \[*sic*\].
 
 With my cognisance, \[signed\] A. Schephausen, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the landdrost, *Sieur* Pieter Lourensz, by Anna Marais, wife of the burgher Francois Retief, being of the following contents, namely:
 

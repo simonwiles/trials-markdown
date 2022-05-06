@@ -20,7 +20,7 @@ Als getuijgen, \[get.\] J.J. Reiniers, Johs. Victor.
 
 In kennisse van mij, \[get.\] A. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, by the burgher Gerrit Marits, of competent age, which is of the following content, namely:
 

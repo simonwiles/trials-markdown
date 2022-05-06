@@ -40,7 +40,7 @@ Concludeert dat de gevangen en gedaagden in den hoofde deeses gemeldt, bij diffi
 
 \[get.\] D. van den Henghel.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of the Castle of Good Hope, Januarij van Tutocorijn, slave of the widow of Melt van der Spuij, 20 years old at a guess, who, on requisition of the honourable independent fiscal, *Meester* Daniel van den Henghel, confesses it to be true:
 
@@ -56,7 +56,7 @@ Thus verified at the Cape of Good Hope on 4 September 1737 in the Dutch language
 
 Which I declare, \[signed\] Js. de Grandpreez, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 *Dictum ter rolle*
 

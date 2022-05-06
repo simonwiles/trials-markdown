@@ -44,7 +44,7 @@ Als gecommitteerdens , \[get.\] P.G. Wium, C. Joël Ackerman.
 
 Mij present, \[get.\] J.P. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement, given in the presence of the undersigned deputised *heemraden* and on the requisition of landdrost here, the honourable *koopman* Hendrik Lodewijk Bletterman, by Rosetta van de Caab, 24 years old at a guess, bondswoman of the former first chief surgeon of this government, the honourable Pieter Domus, which goes as follows:
 
@@ -64,7 +64,7 @@ As delegates, \[signed\] P.G. Wium, C. Joël Ackerman.
 
 With my cognisance, \[signed\] J.P. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before the undersigned deputised *heemraden*, the honourables Pieter Gerhard Wium and Christman Joël Ackerman, Sangoor van Macassar, 20 years old at a guess, bondsman of the burgher Hermanus Combrink, who on the requisition of the landdrost here, the honourable *koopman* Hendrik Lodewijk Bletterman, declares it to be true:
 

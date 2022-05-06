@@ -26,7 +26,7 @@ Fiat Executie, \[get.\] R. Tulbagh.
 
 Mij present, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since Patientie van Manacabo,[^3] bondsman of the burgher Jan Brouwer, 30 \[years\] old at a guess, and December van Bougies, slave of the burgher Frederick Simon Plaagman, about 26 years old, currently their honours’ prisoners, voluntarily confessed, without torture or coercion of bonds, of irons, or even the least threat of suchlike, and since it has also appeared evident to the honourable Council of Justice of this government:
 

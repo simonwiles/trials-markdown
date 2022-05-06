@@ -30,7 +30,7 @@ U Edel Agtbaarens onderdaanige en gehoorsaame dienaren,
 
 Kuijlenburgh, den 6^e^ September 1741.
 
-TRANSLATION
+## TRANSLATION
 
 The Cape of Good Hope.
 

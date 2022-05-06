@@ -154,7 +154,7 @@ Als gecommitteerdens, \[get.\] Jan de la Fontaine, J. Blanckenberg.
 
 Mij praesent, \[get.\] Dl. Thibault, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since Aaron van Bengalen, 40 years old at a guess, bondsman of the burgher and farmer Pieter van der Westhuijsen, currently their lordships’ prisoner, voluntarily confessed and admitted, without torture or force of bonds, of irons, or the least threat of suchlike, and it has fully appeared to the honourable Council of Justice:
 
@@ -182,7 +182,7 @@ Pronounced and executed on the 10^th^ thereupon.
 
 In my presence, \[signed\] Dl. Thibault, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 To my lord, the honourable N. Beeomondt, independent fiscal at the Cape of Good Hope.
 
@@ -196,7 +196,7 @@ The Tijgerbergen, 26 November in the year 1716,
 
 This X is the mark of Piter van der Westhuijsen.
 
-TRANSLATION
+## TRANSLATION
 
 Statement of Gerrit Mos concerning the arson on his parents’ farm, situated in the Tijgerbergen, going as follows:
 
@@ -206,7 +206,7 @@ Thus related in the Castle of Good Hope, this 27^th^ of November 1716.
 
 \[signed\] Gerrt Mos \[*sic*\].
 
-TRANSLATION
+## TRANSLATION
 
 Interrogation, on the requisition of the independent fiscal of this government, Cornelis van Beaumont, in which is to be heard and examined Aaron van Bengalen, bondsman of the farmer Pieter van der Westhuijsen.
 

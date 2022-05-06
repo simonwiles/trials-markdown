@@ -34,7 +34,7 @@ Fiat Executie, \[get.\] H. Swellengrebel.
 
 Mij present, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of the Castle of Good Hope, the Chinese Limoeijko, 40 years old at a guess, who, on the requisition of the honourable independent fiscal, Pieter Reede van Oudshoorn, confesses it to be true:
 
@@ -46,7 +46,7 @@ Thus confessed at the Cape of Good Hope on 5 November 1749 before the honourable
 
 Which I declare, \[signed\] Jn. Fr. Tiemmendorf, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Since, from the voluntary, verified confessions of Salaoos van Sambouwa, bondsman of the burgher Gijsbert Rogier, age 28, December van Sambouwa, slave of the chief ship’s carpenter Barend van Dockum, age 36, Baatjoe van Macassar, belonging to the burgher Juriaan Jansz, age 25, and the Chinese banished here, Limoeijko, 40 years old at a guess, all currently their honours’ prisoners; and from the other documents produced in the case, it has come to appear evident to the honourable Council of Justice of this Castle of Good Hope:
 

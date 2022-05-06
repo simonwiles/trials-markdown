@@ -30,7 +30,7 @@ In ’t Casteel de Goede Hoop, datum als boven.
 
 Mij present, \[get.\] Jn. Fr. Tiemmendorf, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Thursday, 18 February 1751, in the morning, present the honourable lord president Rijk Tulbagh, nominated governor of this place, and all the members, except for the honourable Willem van Kerckhoff, through indisposition, with the burgher councillors joining in.
 

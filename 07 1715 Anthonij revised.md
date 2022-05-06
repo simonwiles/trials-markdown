@@ -38,7 +38,7 @@ Als getuijgen, \[get.\] Bastiaen Cevaal, Roloff Jonasse.
 
 In kennisse van mij, \[get.\] E. Fk. de Swart, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 6 February in the year 1715, there appears before me, Ernst Fredrik de Swart, secretary of Stellenbosch and Drakenstein etc., in the presence of the witnesses named below, the burgher Jacob Mundes, who, on the requisition of the burgher and surgeon Dirk Snith, declares it to be true and truthful:
 
@@ -54,7 +54,7 @@ As witnesses, \[signed\] Bastiaen Cevaal, Roloff Jonasse \[*sic*\].
 
 With my cognisance, \[signed\] E. Fk. de Swart, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 6 February in the year 1715, there appear before me, Ernst Fredrik de Swart, secretary of Stellenbosch and Drakenstein etc., in the presence of the witnesses named below, Margarita Coenen, widow of the former secretary Jan Swart, and Eliesabeth \[*sic*\] Jansz, wife of the burgher Hendrik Loos, who, on the requisition of the burgher and surgeon Dirk Snidt \[*sic*\], declare the following:
 

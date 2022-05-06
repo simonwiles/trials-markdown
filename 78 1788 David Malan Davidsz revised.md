@@ -88,7 +88,7 @@ Aldus gedaan ende gesententieerd aan Cabo de Goede Hoop, den 5^e^ Maart 1789, mi
 
 Mij praesent, \[get.\] W.S. v. Rijneveld, geswoore clercq.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, Anna Dorothea Otto, wife of the burgher Jurgen Radijn, who, on the requisition of the landdrost of Stellenbosch and Drakenstein, the honourable Hendrik Lodewijk Bletterman, declares it to be true:
 
@@ -110,7 +110,7 @@ As delegates, \[signed\] R.J. v.d. Riet, D. de Wet.
 
 In my presence, \[signed\] A. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, the keeper of Hottentots Hollands kloof, Jan de Vos of Severen who, on the requisition of the landdrost of Stellenbosch and Drakenstein, the honourable Hendrik Lodewijk Bletterman, declares it to be true and truthful:
 
@@ -138,7 +138,7 @@ As delegates, \[signed\] R.J. van der Riet, D. de Wet.
 
 In my presence, \[signed\] A. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 There appears before us, the undersigned delegates from the honourable Council of Justice of this government, the burgher Isaak de Vlaming who, on the requisition of the landdrost of Stellenbosch and Drakenstein, the honourable Hendrik Lodewijk Bletterman, declares it to be true and truthful:
 
@@ -154,7 +154,7 @@ As delegates, \[signed\] R.J. van der Riet, D. de Wet.
 
 In my presence, \[signed\] A. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Since, during the night of the 11^th^ and 12^th^ of August of the recently passed year 1788, the cornet of the Stellenbosch burgher cavalry, David Malan Davidsz, supplied with a rifle, gunpowder and shot, as well as some clothes, quietly departed from his farm Vergelegen and proceeded to the residence of the keeper of Hottentots Holland kloof, by the name of Jan de Vos, where at this time was to be found the slave Sara, belonging to the burgher Jurgen Radijn (and with which slave the said Malan, according to undeniable proof of this, had already previously been living in adultery).
 

@@ -52,7 +52,7 @@ Als getuijgen, \[get.\] M.H.O. Woeke, J.J. Reiniers.
 
 In kennisse van mij, \[get.\] A. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, by the *veldcorporaal* Gerrit Smit, of competent age, being of the following contents, namely:
 
@@ -68,7 +68,7 @@ As witnesses, \[signed\] M.H.O. Woeke, J. Engel.
 
 With my cognisance, \[signed\] A. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, by the slave Maart van Bencoule, of competent age, belonging to the *fabricq*, *Monsieur* Marthinus van Oorden, being of the following contents, namely:
 
@@ -84,7 +84,7 @@ As witnesses, \[signed\] Johs. Victor, J.J. Reiniers.
 
 With my cognisance, \[signed\] A. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 14 June 1775, there appears before me, Abraham Faure, secretary of Stellenbosch and Drakenstein, in the presence of the witnesses named below, the Hottentot Jan, of competent age, who, on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, declares it to be true:
 

@@ -54,7 +54,7 @@ Fiat Executie, \[get.\] Jm. van Plettenberg.
 
 Mij present, \[get.\] C.L. Neethling, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement, given on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, by the burgher Johan Hendrik Ehlers, of competent age, which is of the following contents, namely:
 
@@ -76,7 +76,7 @@ As witnesses, \[signed\] M.H.O. Woeke, Hendk. Stoltenkamp.
 
 With my cognisance, \[signed\] A. Faure, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Since Julij van Boegies, slave of the burgher Johan Hendrik Elers, twenty-six years old at a guess, currently their honours’ prisoner, has voluntarily confessed and since, from the other documents produced in the case, it has appeared evident to the honourable Council of Justice:
 

@@ -20,7 +20,7 @@ Als getuijgen, \[get.\] M.H.O. Woeke, F. Wagener.
 
 In kennisse van mij, \[get.\] A. Faure, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Marthinus Adrianus Bergh, by the slave Julij van de Caab, of competent age, bondsman of the burgher Jacobus Malan, which is of the following content, namely:
 

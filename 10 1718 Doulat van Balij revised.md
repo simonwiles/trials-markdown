@@ -48,7 +48,7 @@ Door mijn \[sic\], gereghtsboode, \[get.\] Sn. Witmont.
 
 Als getuijgen, \[get.\] J. Keijts.
 
-TRANSLATION
+## TRANSLATION
 
 As Doulat of Balij, 30 years old at a guess, bondsman of Denge Mamouti, Prince of Ternate, and currently their honours’ prisoner, has freely and volutarily confessed and admitted, without any pain or coercion of bonds, of irons, or any threat of suchlike; and moreover, as it has appeared totally evident to the honourable Council of Justice of this government:
 
@@ -80,7 +80,7 @@ Pronounced and executed on the 15^th^ thereupon.
 
 In my presence, \[signed\] Dl. Thibault, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 By order of the honourable landdrost *Sieur* Jacob Voet, I, the undersigned, in the presence of the assistant Johannes Keijts, set out to the house and residence of the Prince of Ternate, named Daije Mosis. He (on being questioned by the said Keijts, if he wished to defend his slave, currently under arrest, or to wholly give him up to the Officer) answered that if his slave had committed any crimes, the judge may punish him, and that he gives him up to the judge.
 

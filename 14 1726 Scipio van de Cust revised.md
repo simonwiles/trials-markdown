@@ -28,7 +28,7 @@ Als getuijgen, \[get.\] Ms. Heems, Js. Hs. Blanckenberg.
 
 In kennisse van mij, \[get.\] Dl. Thibault, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement, given on the request of the honourable independent fiscal, Adriaan van Kervel, by the slave Scipio van de Cust, belonging to *Juffrouw* Helena Gulix, widow of the late Willem ten Damme, who had been chief surgeon here, the contents being as follows:
 

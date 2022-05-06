@@ -46,7 +46,7 @@ In ’t Casteel de Goede Hoop, datum als voren.
 
 Mij present, \[get.\] Js. de Grandpreez, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 # Dictum ter rolle
 
@@ -64,7 +64,7 @@ Exhibit in court, 2 January 1738.
 
 \[signed\] Js. Needer.
 
-TRANSLATION
+## TRANSLATION
 
 Thursday, 2 January 1738, present the honourable lord president Hendrik Swellengrebel and all the members, with the three burgher councillors, the honourables Hendrik Oostwalt Eksteen, Henning Joachim Prehn and Abraham Cloppenburg, joining in.[^3]
 

@@ -26,7 +26,7 @@ Fiat executie, \[get.\] A.J. Sluijsken.
 
 Mij present, \[get.\] J.A. Truter, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since Caesar van Madagascar, bondsman of the burgher Daniel Malan, 30 years old at a guess, currently their honours’ prisoner, has voluntarily confessed, and since, from the documents furnished in the case, it has appeared evident to the honourable Council of Justice:
 

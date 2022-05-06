@@ -108,7 +108,7 @@ Ao 1786
 
 include here photograph of the Bougies letter (CJ 424, pp. 703)
 
-TRANSLATION
+## TRANSLATION
 
 Since August van de Caab, bondsman of the burgher David Benjamin d’Aillij, 26 years old at a guess, Andries van Calkuta,[^7] slave of the dragoon Christiaan Velbron, 25 years old at a guess, Jonas van Batavia, bondsman of the burgher Willem van Reenen, 30 years old at a guess, Damon van Bougies, slave of the burgher Jochem Janeke, 28 years old at a guess, Saripa van Mandhaar, bondsman of the burgher Jan Bierman, 30 years old at a guess, Welkom van Ternate, slave of the widow of Daniel Beets, 27 years old at a guess, currently their honours’ prisoners, have voluntarily confessed and since, from the other documents produced in the case, it has appeared evident to the honourable Council of Justice:
 
@@ -192,7 +192,7 @@ Let the execution be done, \[signed\] C.J. van de Graaff.
 
 In my presence, \[signed\] C. van Aersen, secretary.
 
-TRANSLATION
+## TRANSLATION
 
 Allow these *jongens* to pass, named Aandries, Augus, Zalomon, Jonas, Welkomp, Loewies, Klaas the Hottentot, up to the Sundays river to David Koen to go and collect sheep and cattle.
 

@@ -66,7 +66,7 @@ Cabo de Goede Hoop, den 10^e^ October 1740,
 
 \[get.\] Js. van Schoor, B. de St. Jean.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 11 October 1740, there appears before me, Daniel Godfried Carnspek, secretary of the honourable Council of Justice of the Castle of Good Hope, in the presence of the witnesses named below, the soldier Jan Christoffel Fabricius, of competent age, who, on the requisition of the honourable independent fiscal, *Meester* Daniel van den Henghel, declares it to be the whole truth:
 
@@ -86,7 +86,7 @@ Thus verified and confirmed at the Cape of Good Hope on 18 November 1740, before
 
 Which I declare, \[signed\] P.J. Slotsboo, first sworn clerk.
 
-TRANSLATION
+## TRANSLATION
 
 Today, 11 October 1740, there appears before me, Daniel Godfried Carnspek, secretary of the honourable Council of Justice of this government, in the presence of the witnesses named below, Januarij van Mallabaar, slave of the burgher Michiel Daniel Lourick, of competent age, who, on the requisition of the honourable independent fiscal, *Meester* Daniel van den Henghel, declares it to be true:
 
@@ -114,7 +114,7 @@ Thus verified at the Cape of Good Hope on 18 November 1740 before the honourable
 
 Which I declare, \[signed\] P.J. Slotsboo, first sworn clerk.
 
-TRANSLATION
+## TRANSLATION
 
 On the requisition of the honourable independent fiscal, *Meester* Daniel van den Henghel, we, the first and second chief surgeons of the honourable Company’s hospital, declare to have opened the head and inspected, in the presence of the delegates from the honourable Council of Justice of this government, the honourables Philip Rudolph de Savoij and Jacobus d’Hennion, a woman slave named Diana van Bengalen, belonging to the burgher Daniel Lorich, and to have found:
 

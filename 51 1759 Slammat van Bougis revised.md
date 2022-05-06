@@ -18,7 +18,7 @@ Als getuijgen, \[get.\] C. Berkman, Hermanus Combrink.
 
 Mij praesent, \[get.\] J.J. le Sueur, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Statement given, on the requisition of the honourable landdrost, Adriaan van Schoor, by the burgher Andries Nolte, of competent age, containing the following:
 

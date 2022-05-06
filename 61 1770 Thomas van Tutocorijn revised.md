@@ -34,7 +34,7 @@ Fiat Executie, \[get.\] R. Tulbagh.
 
 Mij present, \[get.\] C.L. Neethling, secretaris.
 
-TRANSLATION
+## TRANSLATION
 
 Since Thomas van Tutocorijn, slave of Adriana Debits, widow of the late farmer Andries Bester junior, forty years old at a guess, currently their honours’ prisoner, has voluntarily confessed and since, from the other documents produced in the case, it has appeared evident to the honourable Council of Justice:
 

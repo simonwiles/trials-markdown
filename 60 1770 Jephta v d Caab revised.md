@@ -30,7 +30,7 @@ Den ondergetekende wijders ter ondersoek treedende van de, door gemelde Jephta o
 
 *Exhibitum in judicio*, den 12^e^ April 1770.
 
-TRANSLATION
+## TRANSLATION
 
 To the honourable Jan Willem Cloppenburg, president, as well as the honourable Council of Justice of this government.
 

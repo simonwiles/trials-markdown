@@ -36,7 +36,7 @@ Uwe weledele gestrenges onderdanige en gehoorsamen dienaar,
 
 Swellendam, den 11^e^ October 1750.
 
-TRANSLATION
+## TRANSLATION
 
 Report to the right honourable lord Rijk Tulbagh, nominated[^3] governor of the Cape of
 
