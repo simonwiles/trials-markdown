@@ -1,13 +1,10 @@
-**1705 CINNA**
+# CINNA
 
 **1/STB 3/8** Criminele Verklaringen, 1702-1749, unpaginated.
 
 Op Saturdag, den 29^e^ Augustus *anno* 1705.
 
-Examen gedaan door den edele landdrost Johannes Starrenburg ten
-overstaan van den heemraaden Guilliam du Toit en Ferdinandus Appel
-wegens de slaav van den landbouwer Arij van Wijk, genaamt Cinna, dewelke
-’t naar volgende belijd:
+Examen gedaan door den edele landdrost Johannes Starrenburg ten overstaan van den heemraaden Guilliam du Toit en Ferdinandus Appel wegens de slaav van den landbouwer Arij van Wijk, genaamt Cinna, dewelke ’t naar volgende belijd:
 
 Sijn naam?
 
@@ -31,8 +28,7 @@ Buijten consent ofte sonder vragen.
 
 Om wat redenen?
 
-Omdat geen klederen nog tabak kreeg, en van de vrouw en kinderen gedurig
-gescholden wierd voor den ouden hond, en verders geplaagt.
+Omdat geen klederen nog tabak kreeg, en van de vrouw en kinderen gedurig gescholden wierd voor den ouden hond, en verders geplaagt.
 
 Wanneer op wat tijd?
 
@@ -40,8 +36,7 @@ Den jongstledene Sondag, den 23 Augustus 1705.
 
 Waar hij na toe wilde?
 
-Dat hij een dag na de Caab is geweest na zijn suster om een broekje en
-wat tabak te krijgen.
+Dat hij een dag na de Caab is geweest na zijn suster om een broekje en wat tabak te krijgen.
 
 Wanneer bij Hans Hendk. Hatting gecomen is in de Tijgers vallij?
 
@@ -67,8 +62,7 @@ Wat Hans Hendk. tegen hem heeft gesegt?
 
 Dat hij na zijn baas wou gaan om hem van de baas te kopen.
 
-Aldus g’examineert ten overstaan van voorseijde heemraden op ’t
-regthuijs Stellenbosch alwaar dese is getekent, *dato ut supra*.
+Aldus g’examineert ten overstaan van voorseijde heemraden op ’t regthuijs Stellenbosch alwaar dese is getekent, *dato ut supra*.
 
 \[get.\] Guilliam du Toit, Ferdinandus Appel.
 
