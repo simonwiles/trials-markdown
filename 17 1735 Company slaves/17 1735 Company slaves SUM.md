@@ -2,7 +2,7 @@
 
 *One night in 1735, several runaway Company slaves, who had been hiding for several months on Table Mountain, stole sheep from various farms and corrals in and around Cape Town. It is not clear whether they all belonged to the same group, but some were spotted by a slave shepherd and a* knecht *at one of the corrals and they were all captured by the* ratelwacht*, the night watch that guarded the town.*
 
-*Table Mountain was a well-known refuge for runaway slaves throughout the eighteenth century.[^1] * *This case shows some of the ways in which they tried to obtain food in the town, and also the dangers they faced from the town militia, as well as slaves and* knechten *stationed on the properties they raided.*
+*Table Mountain was a well-known refuge for runaway slaves throughout the eighteenth century.[^1] This case shows some of the ways in which they tried to obtain food in the town, and also the dangers they faced from the town militia, as well as slaves and* knechten *stationed on the properties they raided.*
 
 *The court records for this case contain eight testimonies by all of those involved. Since they are all rather repetitive, we print four here: those of two of the accused, the Company-owned slaves Claas van de Caab and Kinsa van Madagascar, and those of the* knecht*, Jan Plat, and Januarij van Madagascar, a slave shepherd.[^2]*
 
