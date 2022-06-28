@@ -1,3 +1,8 @@
+---
+doc_no: CJ 349
+citation: Criminele Process Stukken, 1744, ff. 104-8.
+---
+
 # BARKAT VAN TIMOR
 
 **CJ 349** Criminele Process Stukken, 1744, ff. 104-8.

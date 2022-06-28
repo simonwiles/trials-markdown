@@ -1,3 +1,8 @@
+---
+doc_no: CJ 795
+citation: Sententiën, 1782-1789, ff. 531-36.
+---
+
 # DAVID MALAN DAVIDSZ
 
 **CJ 795** Sententiën, 1782-1789, ff. 531-36.

@@ -1,3 +1,8 @@
+---
+doc_no: CJ 394
+citation: Criminele Process Stukken, 1768, ff. 516-17v.
+---
+
 # FRANS VAN MADAGASCAR
 
 **CJ 394** Criminele Process Stukken, 1768, ff. 516-17v.

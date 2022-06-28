@@ -1,3 +1,8 @@
+---
+doc_no: CJ 786
+citation: Sententiën, 1736-1743, ff. 234-241.
+---
+
 # JURGEN SCHOLTS ET AL.
 
 **CJ 786** Sententiën, 1736-1743, ff. 234-241.

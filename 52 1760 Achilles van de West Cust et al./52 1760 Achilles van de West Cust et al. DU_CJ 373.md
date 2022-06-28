@@ -1,3 +1,8 @@
+---
+doc_no: CJ 373
+citation: Criminele Process Stukken, 1760, Deel 2, ff. 85-95v.
+---
+
 # ACHILLES VAN DE WEST CUST ET AL.
 
 **CJ 373** Criminele Process Stukken, 1760, Deel 2, ff. 85-95v.

@@ -1,3 +1,8 @@
+---
+doc_no: CJ 354
+citation: Criminele Process Stukken, 1746, Deel 2, ff. 464-67.
+---
+
 # JANUARIJ VAN BOEGIES ET AL.
 
 **CJ 354** Criminele Process Stukken, 1746, Deel 2, ff. 464-67.

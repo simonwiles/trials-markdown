@@ -1,3 +1,8 @@
+---
+doc_no: CJ 341
+citation: Criminele Process Stukken, 1737, ff. 397-98.
+---
+
 # JANUARIJ VAN TUTOCORIJN
 
 **CJ 341** Criminele Process Stukken, 1737, ff. 397-98.

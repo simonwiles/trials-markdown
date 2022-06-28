@@ -1,3 +1,8 @@
+---
+doc_no: CJ 787
+citation: Sententiën, 1744-1749, ff. 360-64.
+---
+
 # SALAOOS VAN SAMBOUWA
 
 **CJ 787** Sententiën, 1744-1749, ff. 360-64.

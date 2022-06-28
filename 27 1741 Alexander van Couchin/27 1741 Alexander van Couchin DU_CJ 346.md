@@ -1,3 +1,8 @@
+---
+doc_no: CJ 346
+citation: Criminele Process Stukken, 1741, ff. 115-16.
+---
+
 # ALEXANDER VAN COUCHIN
 
 **CJ 346** Criminele Process Stukken, 1741, ff. 115-16.

@@ -1,3 +1,8 @@
+---
+doc_no: CJ 2485
+citation: Inkoomende Brieven, 1729-1759, Deel 1, ff. 52-4.
+---
+
 # ANDRIES VAN BENGALEN
 
 **CJ 2485** Inkoomende Brieven, 1729-1759, Deel 1, ff. 52-4.

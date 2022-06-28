@@ -1,3 +1,8 @@
+---
+doc_no: CJ 339
+citation: Criminele Process Stukken, 1735, ff. 177-78.
+---
+
 # COMPANY SLAVES
 
 **CJ 339** Criminele Process Stukken, 1735, ff. 177-78.

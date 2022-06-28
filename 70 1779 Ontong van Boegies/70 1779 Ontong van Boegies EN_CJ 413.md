@@ -1,3 +1,8 @@
+---
+doc_no: CJ 413
+citation: Criminele Process Stukken, 1779, deel 2, ff. 315-19.
+---
+
 # ONTONG VAN BOEGIES AND ADONIS VAN DE CAAB
 
 **CJ 413** Criminele Process Stukken, 1779, deel 2, ff. 315-19.

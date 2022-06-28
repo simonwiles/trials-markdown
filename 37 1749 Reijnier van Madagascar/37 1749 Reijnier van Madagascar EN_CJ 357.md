@@ -1,3 +1,8 @@
+---
+doc_no: CJ 357
+citation: Criminele Process Stukken, 1749, ff. 7-9v.
+---
+
 # REIJNIER VAN MADAGASCAR
 
 **CJ 357** Criminele Process Stukken, 1749, ff. 7-9v.

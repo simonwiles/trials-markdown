@@ -1,3 +1,8 @@
+---
+doc_no: CJ 793
+citation: Sententiën, 1771-1776, ff. 270-85.
+---
+
 # JULIJ VAN TIMOR
 
 **CJ 793** Sententiën, 1771-1776, ff. 270-85.

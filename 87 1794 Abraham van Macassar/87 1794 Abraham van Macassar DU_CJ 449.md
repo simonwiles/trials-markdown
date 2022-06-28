@@ -1,3 +1,8 @@
+---
+doc_no: CJ 449
+citation: Criminele Process Stukken, 1792-1794, ff. 419-21.
+---
+
 # ABRAHAM VAN MACASSAR
 
 **CJ 449** Criminele Process Stukken, 1792-1794, ff. 419-21.

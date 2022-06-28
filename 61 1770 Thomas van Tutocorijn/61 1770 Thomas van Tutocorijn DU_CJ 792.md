@@ -1,3 +1,8 @@
+---
+doc_no: CJ 792
+citation: Sententiën, 1768-1771, ff. 154-76.
+---
+
 # THOMAS VAN TUTOCORIJN
 
 **CJ 792** Sententiën, 1768-1771, ff. 154-76.

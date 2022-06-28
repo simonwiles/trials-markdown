@@ -1,3 +1,8 @@
+---
+doc_no: CJ 357
+citation: Criminele Process Stukken, 1749, ff. 428-29.
+---
+
 # SALAOOS VAN SAMBOUWA
 
 **CJ 357** Criminele Process Stukken, 1749, ff. 428-29.

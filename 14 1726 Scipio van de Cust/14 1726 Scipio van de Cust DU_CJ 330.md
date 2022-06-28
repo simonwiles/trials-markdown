@@ -1,3 +1,8 @@
+---
+doc_no: CJ 330
+citation: Criminele Process Stukken, 1726, ff. 939-44.
+---
+
 # SCIPIO VAN DE CUST
 
 **CJ 330** Criminele Process Stukken, 1726, ff. 939-44.

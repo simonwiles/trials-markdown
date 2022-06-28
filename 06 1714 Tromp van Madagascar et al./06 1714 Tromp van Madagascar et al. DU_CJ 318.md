@@ -1,3 +1,8 @@
+---
+doc_no: CJ 318
+citation: Criminele Process Stukken, 1714, ff. 90-7.
+---
+
 # TROMP VAN MADAGASCAR ET AL.
 
 **CJ 318** Criminele Process Stukken, 1714, ff. 90-7.

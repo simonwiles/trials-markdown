@@ -1,3 +1,8 @@
+---
+doc_no: 1/STB
+citation: **3/11** Criminele Verklaringen, 1759-1782, unpaginated.
+---
+
 # MOSES VAN DE CAAB
 
 **1/STB** **3/11** Criminele Verklaringen, 1759-1782, unpaginated.

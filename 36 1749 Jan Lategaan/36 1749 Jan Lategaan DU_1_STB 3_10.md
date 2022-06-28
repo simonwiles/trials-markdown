@@ -1,3 +1,8 @@
+---
+doc_no: 1/STB 3/10
+citation: Criminele Verklaringen, 1749-1758, unpaginated.
+---
+
 # JAN LATEGAAN
 
 **1/STB 3/10** Criminele Verklaringen, 1749-1758, unpaginated.

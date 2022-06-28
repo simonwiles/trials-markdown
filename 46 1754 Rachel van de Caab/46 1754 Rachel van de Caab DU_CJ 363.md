@@ -1,3 +1,8 @@
+---
+doc_no: CJ 363
+citation: Criminele Process Stukken, Deel 2, 1754, ff. 6-9v.
+---
+
 # RACHEL VAN DE CAAB
 
 **CJ 363** Criminele Process Stukken, Deel 2, 1754, ff. 6-9v.

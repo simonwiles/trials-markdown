@@ -1,3 +1,8 @@
+---
+doc_no: CJ 782
+citation: Sententiën, 1705-1713, ff. 136-141.
+---
+
 # JAN DE THUILOT
 
 **CJ 782** Sententiën, 1705-1713, ff. 136-141.

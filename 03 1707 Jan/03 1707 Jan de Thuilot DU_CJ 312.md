@@ -1,3 +1,8 @@
+---
+doc_no: CJ 312
+citation: Criminele Process Stukken, 1708, document 28.
+---
+
 # JAN DE THUILOT
 
 **CJ 312** Criminele Process Stukken, 1708, document 28.

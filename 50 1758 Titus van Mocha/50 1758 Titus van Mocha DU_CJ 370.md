@@ -1,3 +1,8 @@
+---
+doc_no: CJ 370
+citation: Criminele Process Stukken, 1758, ff. 172-74v.
+---
+
 # TITUS VAN MOCHA
 
 **CJ 370** Criminele Process Stukken, 1758, ff. 172-74v.

@@ -1,3 +1,8 @@
+---
+doc_no: CJ 788
+citation: Sententiën, 1750-1755, ff. 58-67.
+---
+
 # JANUARIJ VAN BOEGIES ET AL.
 
 **CJ 788** Sententiën, 1750-1755, ff. 58-67.

@@ -1,3 +1,8 @@
+---
+doc_no: CJ 796
+citation: Sententiën, 1790-1794, ff. 279-284.
+---
+
 # CAESAR VAN MADAGASCAR
 
 **CJ 796** Sententiën, 1790-1794, ff. 279-284.

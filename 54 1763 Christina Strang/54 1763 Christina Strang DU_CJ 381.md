@@ -1,3 +1,8 @@
+---
+doc_no: CJ 381
+citation: Criminele Process Stukken, 1764, ff. 32-5.
+---
+
 # CHRISTINA STRANG
 
 **CJ 381** Criminele Process Stukken, 1764, ff. 32-5.

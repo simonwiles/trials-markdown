@@ -1,3 +1,8 @@
+---
+doc_no: CJ 365
+citation: Criminele Process Stukken, Deel 2, 1755, ff. 730-31v.
+---
+
 # JANUARIJ VAN BOEGIES
 
 **CJ 365** Criminele Process Stukken, Deel 2, 1755, ff. 730-31v.

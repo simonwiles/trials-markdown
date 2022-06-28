@@ -1,3 +1,8 @@
+---
+doc_no: CJ 789
+citation: Sententiën, 1756-1760, ff. 80-91.
+---
+
 # BAATJOE VAN MANDHAAR
 
 **CJ 789** Sententiën, 1756-1760, ff. 80-91.

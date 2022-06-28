@@ -1,3 +1,8 @@
+---
+doc_no: 1/STB 3/8
+citation: Criminele Verklaringen, 1702-1749, unpaginated.
+---
+
 # JULIJ VAN BENGALEN
 
 **1/STB 3/8** Criminele Verklaringen, 1702-1749, unpaginated.

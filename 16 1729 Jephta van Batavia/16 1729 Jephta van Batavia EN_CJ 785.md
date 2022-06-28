@@ -1,3 +1,8 @@
+---
+doc_no: CJ 785
+citation: Sententiën, 1726-1735, ff. 178-82.
+---
+
 # JEPHTA VAN BATAVIA
 
 **CJ 785** Sententiën, 1726-1735, ff. 178-82.

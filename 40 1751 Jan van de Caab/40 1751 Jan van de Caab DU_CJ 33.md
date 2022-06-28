@@ -1,3 +1,8 @@
+---
+doc_no: CJ 33
+citation: Crimineele Regtsrolle des Casteels de Goede Hoop, 1751, ff. 31-3.
+---
+
 # JAN VAN DE CAAB
 
 **CJ 33** Crimineele Regtsrolle des Casteels de Goede Hoop, 1751, ff. 31-3.

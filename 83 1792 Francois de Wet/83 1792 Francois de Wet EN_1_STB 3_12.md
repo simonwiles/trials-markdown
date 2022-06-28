@@ -1,3 +1,8 @@
+---
+doc_no: 1/STB
+citation: **3/12** Criminele Verklaringen, 1786-1793, unpaginated.
+---
+
 # FRANCOIS DE WET
 
 **1/STB** **3/12** Criminele Verklaringen, 1786-1793, unpaginated.

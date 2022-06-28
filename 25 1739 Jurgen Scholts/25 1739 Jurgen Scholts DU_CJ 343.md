@@ -1,3 +1,8 @@
+---
+doc_no: CJ 343
+citation: Criminele Process Stukken, 1739, ff. 123r-v.
+---
+
 # JURGEN SCHOLTS ET AL.
 
 **CJ 343** Criminele Process Stukken, 1739, ff. 123r-v.

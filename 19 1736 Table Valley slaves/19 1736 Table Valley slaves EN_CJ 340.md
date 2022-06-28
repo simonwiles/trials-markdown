@@ -1,3 +1,8 @@
+---
+doc_no: CJ 340
+citation: Criminele Process Stukken, 1736, ff. 97-103 \[modern pagination\].
+---
+
 # TABLE VALLEY SLAVES
 
 **CJ 340** Criminele Process Stukken, 1736, ff. 97-103 \[modern pagination\].

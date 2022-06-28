@@ -1,3 +1,8 @@
+---
+doc_no: CJ 424
+citation: Criminele Process Stukken, 1786, deel 2, ff. 699 & 701.
+---
+
 # AUGUSTUS VAN DE CAAB ET AL.
 
 **CJ 424** Criminele Process Stukken, 1786, deel 2, ff. 699 & 701.

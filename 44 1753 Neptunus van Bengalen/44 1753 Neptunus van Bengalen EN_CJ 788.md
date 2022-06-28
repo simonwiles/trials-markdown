@@ -1,3 +1,8 @@
+---
+doc_no: CJ 788
+citation: Sententiën, 1750-1755, ff. 151-56.
+---
+
 # NEPTUNUS VAN BENGALEN
 
 **CJ 788** Sententiën, 1750-1755, ff. 151-56.

@@ -1,3 +1,8 @@
+---
+doc_no: CJ 48
+citation: Crimineele Regtsrolle des Casteels de Goede Hoop, 1766, ff. 54-6.
+---
+
 # CAREL BOOM
 
 **CJ 48** Crimineele Regtsrolle des Casteels de Goede Hoop, 1766, ff. 54-6.

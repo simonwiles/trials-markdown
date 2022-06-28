@@ -1,3 +1,8 @@
+---
+doc_no: CJ 789
+citation: Sententiën, 1756-1760, ff. 121-25.
+---
+
 # TITUS VAN MOCHA
 
 **CJ 789** Sententiën, 1756-1760, ff. 121-25.

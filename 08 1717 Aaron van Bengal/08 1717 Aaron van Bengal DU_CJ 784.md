@@ -1,3 +1,8 @@
+---
+doc_no: CJ 784
+citation: Sententiën, 1717-1725, ff. 7-11.
+---
+
 # AARON VAN BENGALEN
 
 **CJ 784** Sententiën, 1717-1725, ff. 7-11.

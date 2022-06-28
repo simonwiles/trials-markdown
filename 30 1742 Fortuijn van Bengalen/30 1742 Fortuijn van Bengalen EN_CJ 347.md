@@ -1,3 +1,8 @@
+---
+doc_no: CJ 347
+citation: Criminele Process Stukken, 1742, ff. 18-19v.
+---
+
 # FORTUIJN VAN BENGALEN
 
 **CJ 347** Criminele Process Stukken, 1742, ff. 18-19v.

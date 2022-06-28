@@ -1,3 +1,8 @@
+---
+doc_no: 1/STB 3/9
+citation: Criminele Verklaringen, 1740-1746, unpaginated.
+---
+
 # JAN HENDRIK HOP
 
 **1/STB 3/9** Criminele Verklaringen, 1740-1746, unpaginated.

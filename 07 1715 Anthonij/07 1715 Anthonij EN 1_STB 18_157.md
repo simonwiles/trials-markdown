@@ -1,3 +1,8 @@
+---
+doc_no: 1/STB 18/157
+citation: Notariële Verklaringen, 1715-1720, unpaginated.
+---
+
 # ANTHONIJ
 
 **1/STB 18/157** Notariële Verklaringen, 1715-1720, unpaginated.

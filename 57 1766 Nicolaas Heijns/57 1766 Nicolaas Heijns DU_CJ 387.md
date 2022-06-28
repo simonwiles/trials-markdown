@@ -1,3 +1,8 @@
+---
+doc_no: CJ 387
+citation: Criminele Process Stukken, 1766, ff. 127-28.
+---
+
 # NICOLAAS HEIJNS
 
 **CJ 387** Criminele Process Stukken, 1766, ff. 127-28.

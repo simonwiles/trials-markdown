@@ -1,3 +1,8 @@
+---
+doc_no: CJ 321
+citation: Criminele Process Stukken, 1717, document 7.
+---
+
 # AARON VAN BENGALEN
 
 **CJ 321** Criminele Process Stukken, 1717, document 7.

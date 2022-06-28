@@ -1,3 +1,8 @@
+---
+doc_no: CJ 325
+citation: Criminele Process Stukken, 1721, ff. 57-64.
+---
+
 # ANTHONIJ VAN GOA
 
 **CJ 325** Criminele Process Stukken, 1721, ff. 57-64.

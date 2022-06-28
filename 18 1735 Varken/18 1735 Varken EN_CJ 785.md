@@ -1,3 +1,8 @@
+---
+doc_no: CJ 785
+citation: Sententiën, 1726-1735, ff. 333-38.
+---
+
 # VARKEN, TOONTJE AND RUIJTER
 
 **CJ 785** Sententiën, 1726-1735, ff. 333-38.

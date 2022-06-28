@@ -1,3 +1,8 @@
+---
+doc_no: CJ 794
+citation: Sententiën, 1777-1781, ff. 161-70.
+---
+
 # ONTONG VAN BOEGIES AND ADONIS VAN DE CAAB
 
 **CJ 794** Sententiën, 1777-1781, ff. 161-70.

@@ -1,3 +1,8 @@
+---
+doc_no: CJ 34
+citation: Crimineele Regtsrolle des Casteels de Goede Hoop, 1752, ff. 28-30.
+---
+
 # JACOB VAN DE CAAB
 
 **CJ 34** Crimineele Regtsrolle des Casteels de Goede Hoop, 1752, ff. 28-30.

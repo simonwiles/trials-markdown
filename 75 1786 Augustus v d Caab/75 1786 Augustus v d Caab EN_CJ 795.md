@@ -1,3 +1,8 @@
+---
+doc_no: CJ 795
+citation: Sententiën, 1782-1789, ff. 376-406.
+---
+
 # AUGUSTUS VAN DE CAAB ET AL.
 
 **CJ 795** Sententiën, 1782-1789, ff. 376-406.

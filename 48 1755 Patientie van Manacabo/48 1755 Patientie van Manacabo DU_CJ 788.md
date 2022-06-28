@@ -1,3 +1,8 @@
+---
+doc_no: CJ 788
+citation: Sententiën, 1750-1755, ff. 212-19.
+---
+
 # PATIENTIE VAN MANACABO AND DECEMBER VAN BOEGIES
 
 **CJ 788** Sententiën, 1750-1755, ff. 212-19.

@@ -1,3 +1,8 @@
+---
+doc_no: CJ 333
+citation: Criminele Process Stukken, 1729, ff. 268-70.
+---
+
 # JAN BOTMA
 
 **CJ 333** Criminele Process Stukken, 1729, ff. 268-70.

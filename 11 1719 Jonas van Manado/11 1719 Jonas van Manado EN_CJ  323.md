@@ -1,3 +1,8 @@
+---
+doc_no: CJ 323
+citation: Criminele Process Stukken, 1719, ff. 535-39 \[modern pagination\].
+---
+
 # JONAS VAN MANADO
 
 **CJ 323** Criminele Process Stukken, 1719, ff. 535-39 \[modern pagination\].

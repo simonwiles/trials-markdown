@@ -1,3 +1,8 @@
+---
+doc_no: 1/STB 3/11
+citation: Criminele Verklaringen, 1759-1782, unpaginated.
+---
+
 # GERRIT MARITS
 
 **1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.

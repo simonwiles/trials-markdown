@@ -1,3 +1,8 @@
+---
+doc_no: CJ 345
+citation: Criminele Process Stukken, 1740, ff. 581-83.
+---
+
 # MICHIEL DANIEL LOURICH
 
 **CJ 345** Criminele Process Stukken, 1740, ff. 581-83.

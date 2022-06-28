@@ -1,3 +1,8 @@
+---
+doc_no: CJ 322
+citation: Criminele Process Stukken, 1718, document 58.
+---
+
 # DOULAT VAN BALIJ
 
 **CJ 322** Criminele Process Stukken, 1718, document 58.
