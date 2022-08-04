@@ -1,6 +1,7 @@
-# JANUARIJ VAN BOEGIES ET AL.
-
-**1/STB** **3/8** Criminele Verklaringen, 1702-1749, unpaginated.
+---
+title: JANUARIJ VAN BOEGIES ET AL.
+citation: 1/STB **3/8** Criminele Verklaringen, 1702-1749, unpaginated.
+---
 
 Right honourable Lord!
 

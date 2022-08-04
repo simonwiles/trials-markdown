@@ -1,6 +1,7 @@
-# PIETER CORIDON
-
-**CJ 342** Criminele Process Stukken, 1738, ff. 1-2v.
+---
+title: PIETER CORIDON
+citation: CJ 342 Criminele Process Stukken, 1738, ff. 1-2v.
+---
 
 Dictum ter rolle
 

@@ -1,6 +1,7 @@
-# ONTONG VAN BOEGIES AND ADONIS VAN DE CAAB
-
-**CJ 794** Sententiën, 1777-1781, ff. 161-70.
+---
+title: ONTONG VAN BOEGIES AND ADONIS VAN DE CAAB
+citation: CJ 794 Sententiën, 1777-1781, ff. 161-70.
+---
 
 Nademaal Ontong van Boegies, slaaf van den landbouwer Johannes Nieuwout, oud na gissing vijftig jaaren, thans ’s heeren gevangen, vrijwillig beleeden heeft, en den edelagtbaare Raad van Justitie, uijt de verdere, ten processe gevoegde, stucken, sonneklaar gebleeken is:
 

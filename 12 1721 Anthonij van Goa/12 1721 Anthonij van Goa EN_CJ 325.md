@@ -1,6 +1,7 @@
-# ANTHONIJ VAN GOA
-
-**CJ 325** Criminele Process Stukken, 1721, ff. 57-64.
+---
+title: ANTHONIJ VAN GOA
+citation: CJ 325 Criminele Process Stukken, 1721, ff. 57-64.
+---
 
 Questions, on the requisition of the landdrost Jacob Voet, on which is to be heard and examined the slave Anthonij van Goa, belonging to the burgher Beatrix Verweij.
 

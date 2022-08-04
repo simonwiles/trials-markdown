@@ -1,6 +1,7 @@
-# ANDRIES VAN BENGALEN
-
-**CJ 2485** Inkoomende Brieven, 1729-1759, Deel 1, ff. 52-4.
+---
+title: ANDRIES VAN BENGALEN
+citation: CJ 2485 Inkoomende Brieven, 1729-1759, Deel 1, ff. 52-4.
+---
 
 Cabo de Goede Hoop.
 

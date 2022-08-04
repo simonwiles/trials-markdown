@@ -1,6 +1,7 @@
-# NICOLAAS HEIJNS
-
-**CJ 387** Criminele Process Stukken, 1766, ff. 127-28.
+---
+title: NICOLAAS HEIJNS
+citation: CJ 387 Criminele Process Stukken, 1766, ff. 127-28.
+---
 
 *Dictum ter rolle*.
 

@@ -1,6 +1,7 @@
-# JAN BOTMA
-
-**CJ 333** Criminele Process Stukken, 1729, ff. 268-70.
+---
+title: JAN BOTMA
+citation: CJ 333 Criminele Process Stukken, 1729, ff. 268-70.
+---
 
 Interrogatoriën, omme daarop, ter requisitie van den landdrost Pieter Lourensz, gehoord en ondervraagt te werden, den burger Jan Botma.
 

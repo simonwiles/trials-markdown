@@ -1,6 +1,7 @@
-# GERRIT HARTOG
-
-**1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
+---
+title: GERRIT HARTOG
+citation: 1/STB 3/11 Criminele Verklaringen, 1759-1782, unpaginated.
+---
 
 Relaas gegeven, ter requisitie van den heer landdrost, Lucas Sigimundus Faber, door de slavinne Juliana van de Caab, van competenten ouderdom, toebehorende den heemraad, monsieur Hercules Adriaan Malan, van de volgende inhoud, namentlijk:
 

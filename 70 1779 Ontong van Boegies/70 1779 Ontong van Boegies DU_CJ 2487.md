@@ -1,6 +1,7 @@
-# ONTONG VAN BOEGIES AND ADONIS VAN DE CAAB
-
-**CJ 2487** Inkoomende Brieven, 1776-1780, Deel 3, f. 125.
+---
+title: ONTONG VAN BOEGIES AND ADONIS VAN DE CAAB
+citation: CJ 2487 Inkoomende Brieven, 1776-1780, Deel 3, f. 125.
+---
 
 Weledelachtbare heer!
 

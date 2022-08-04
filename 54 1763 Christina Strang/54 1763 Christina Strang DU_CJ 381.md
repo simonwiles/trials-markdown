@@ -1,6 +1,7 @@
-# CHRISTINA STRANG
-
-**CJ 381** Criminele Process Stukken, 1764, ff. 32-5.
+---
+title: CHRISTINA STRANG
+citation: CJ 381 Criminele Process Stukken, 1764, ff. 32-5.
+---
 
 Relaas gegeeven, ter requisitie van den landdrost van Stellenbosch en Drakensteijn, sieur Johannes le Sueur, door Januarij van Ceijlon, slaaf van den landbouwer Jacobus Kruger, van competenten ouderdom, luijdende als volgt:
 

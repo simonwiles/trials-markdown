@@ -1,6 +1,7 @@
-# CUPIDO VAN BENGALEN
-
-**1/STB 3/8** Criminele Verklaringen, 1702-1749, unpaginated.
+---
+title: CUPIDO VAN BENGALEN
+citation: 1/STB 3/8 Criminele Verklaringen, 1702-1749, unpaginated.
+---
 
 To the honourable lord Rijk Tulbagh, president, together with the honourable Council of Justice of the Castle of Good Hope.
 

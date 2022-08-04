@@ -1,6 +1,7 @@
-# CUPIDO VAN BENGALEN
-
-**1/STB 3/8** Criminele Verklaringen, 1702-1749, unpaginated.
+---
+title: CUPIDO VAN BENGALEN
+citation: 1/STB 3/8 Criminele Verklaringen, 1702-1749, unpaginated.
+---
 
 Aan den edelagtbaare heere Rijk Tulbagh, president, beneevens den edelagtbaare Raad van Justitie dese Casteels de Goede Hoop.
 

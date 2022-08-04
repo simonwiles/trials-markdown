@@ -1,6 +1,7 @@
-# CLAAS VAN BENGALEN
-
-**1/STB 3/9** Criminele Verklaringen, 1740-1746, unpaginated.
+---
+title: CLAAS VAN BENGALEN
+citation: 1/STB 3/9 Criminele Verklaringen, 1740-1746, unpaginated.
+---
 
 Statement given on the requisition of the landdrost, *Sieur* Pieter Lourensz, by Januarij van Rio de la Goa,[^1] 20 years old at a guess, bondsman of the burgher Francois Retief, being of the following contents, namely:
 

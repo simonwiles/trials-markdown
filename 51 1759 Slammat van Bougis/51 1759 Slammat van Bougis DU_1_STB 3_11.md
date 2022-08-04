@@ -1,6 +1,7 @@
-# SLAMMAT VAN BOUGIS
-
-**1/STB 3/11** Criminele Verklaringen, 1759-1782, unpaginated.
+---
+title: SLAMMAT VAN BOUGIS
+citation: 1/STB 3/11 Criminele Verklaringen, 1759-1782, unpaginated.
+---
 
 Relaas gegeven, ter requisitie van den heer landdrost, Adriaan van Schoor, door den burger Andries Nolte, van competenten ouderdom, inhoudende als volgt:
 

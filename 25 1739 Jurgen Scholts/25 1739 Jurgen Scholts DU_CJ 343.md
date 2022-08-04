@@ -1,6 +1,7 @@
-# JURGEN SCHOLTS ET AL.
-
-**CJ 343** Criminele Process Stukken, 1739, ff. 123r-v.
+---
+title: JURGEN SCHOLTS ET AL.
+citation: CJ 343 Criminele Process Stukken, 1739, ff. 123r-v.
+---
 
 Relaas gegeven, ter requisitie van den ondercoopman, sieur Johannes Needer, als *pro interim* het Fiscaals ampt waarneemende, door den slaaf Coridon, toebehoorende den baas van de schuur, Gibbelaar, sijnde van de volgende inhoud:
 
