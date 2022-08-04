@@ -1,5 +1,3 @@
-# JAN DE THUILOT
-
 *Jan de Thuilot, a Huguenot immigrant, was found guilty of killing two of his labourers, a slave named Andries and a Khoi named Caffer. They died after severe whippings inflicted by De Thuilot because he suspected them of stealing his keys. This was despite the advice of a visiting farmer, that errant slaves should be reported to the authorities rather than being punished severely by their owner: in the early eighteenth century, Company authority was only slowly extending into the world of masters and their slaves.[^1]*
 
 *De Thuilot’s letter to the court (written in French) tried to shift the blame for the deaths onto a neighbour who had assisted him in the punishment, but he clearly realised his guilt and fled before he could be arrested. The Council of Justice tried him in absentia,[^2] and sentenced him to be shot.[^3]*

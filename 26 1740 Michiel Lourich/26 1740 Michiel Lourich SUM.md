@@ -1,5 +1,3 @@
-# MICHIEL DANIEL LOURICH
-
 *Slaves were often caught up in the domestic disputes of their owners. Michiel Lourich[^1] was clearly a violent man who both beat his wife and ordered his slave January to whip his female slave Diana, causing the latter’s death. The reasons for his abuse of Diana are not clear, but they may have been linked to his dispute with his wife, whom he had thrown out of the house[^2]. Fabricius, the Company soldier who was lodging at Lourich’s house,[^3] was clearly shocked by his behaviour, towards both his wife and Diana, and left the household.*
 
 *The fiscal did not recommend a sentence, but the court decided that Lourich should be banished from the Cape ‘as soon as possible’ and sent back to the Netherlands at his own cost ‘as a useless subject’.[^4]*

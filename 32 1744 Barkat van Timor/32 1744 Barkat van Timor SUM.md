@@ -1,5 +1,3 @@
-# BARKAT VAN TIMOR
-
 *This drama took place in the house of the prominent burgher Abraham Cloppenburg.[^1] When he angrily ordered his slave Barkat van Timor to be whipped for not having set the supper table, Barkat attacked him, as well as another slave who got in his way, and barricaded himself in the attic. The subsequent siege lasted until the following morning, when Barkat was overcome by a* bandiet *working as one of the Company’s policemen.[^2]*
 
 *Barkat’s response was a form of running* amok*,[^3] with indiscriminate attacks on everyone who got in his way, burghers,* caffers *and his fellow slaves, and his realisation that his actions were suicidal. It was a sudden and spontaneous reaction which took Cloppenburg by surprise. However, Cloppenburg was renowned for maltreating his slaves and admitted to the court that he had been angry. Barkat was executed by breaking on the wheel, but Cloppenburg was also reprimanded by the Council of Justice.[^4]*

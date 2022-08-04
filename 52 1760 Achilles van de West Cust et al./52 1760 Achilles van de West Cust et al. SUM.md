@@ -1,5 +1,3 @@
-# ACHILLES VAN DE WEST CUST ET AL.
-
 *This is one of the most complex and revealing cases about slavery in the criminal records of the Council of Justice.[^1] It involved what one historian has described as a ‘minor slave uprising’, in circumstances that greatly alarmed the authorities and colonists.[^2]*
 
 *The events involved a group of slave runaways on Table Mountain who fought pitched battles with the burghers. They sent particular panic through Cape Town when some of them, inspired by the revenge of Achilles van de West Cust against his owner, murdered Michiel Smuts and his family in their Oranjezicht home.[^3] After a series of encounters with other slaves and skirmishes with commandos, some were killed (and some summarily executed on the spot). Januarij van Boegies, the sole survivor of the original gang, was brought to justice, together with eleven other slaves who had later joined it or provided it with food or support. The original group of runaways on Table Mountain had drawn over twenty slaves into its net by this time.*

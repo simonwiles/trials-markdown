@@ -1,5 +1,3 @@
-# FRANCOIS DE WET
-
 *The evidence in this case was collected by the Stellenbosch landdrost after he received a complaint by the slave David van de Caab about the actions of his owner, Francois de Wet. David accused De Wet of causing the deaths of the young child of the slave Jacomijn, David’s partner, and, three years earlier, that of his sister, Stijn.*
 
 *The case shows the difficulties encountered by a slave family. David formed part of a slave kinship network on the farm, albeit one which was devastated by the actions of his owner. Jacomijn, as a young mother, had been working as a wet nurse on another farm and was accused of neglecting her own child. Stijn had tried to abort her child and was whipped for being the suspected carrier of a venereal disease.[^1]*

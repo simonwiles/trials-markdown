@@ -1,5 +1,3 @@
-# NICOLAAS HEIJNS
-
 *This is a case of a slave who was caught in the midst of a matrimonial dispute between her owners. Nicolaas Heijns hit Flora several times, causing severe wounds to her head, for reasons which were not clear to any of those who witnessed the scene. She complained to the authorities, and the supporting testimonies, which included those of Heijns’s son, seemed to back Flora’s claims. The fiscal was sympathetic, calling for Heijn’s punishment with a fine. But Heijns’s claims to the Court of Justice that his wife had put Flora up to making the complaint gave them pause for thought and Heijns does not appear to have been penalised.[^1]*
 
 *The case contains some incidental details of interest, such as Flora’s job of selling almonds in the streets of Cape Town, a task at which she had little success,[^2] and her role of serving at table in the Heijns household.*

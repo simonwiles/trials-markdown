@@ -1,5 +1,3 @@
-# ANTHONIJ VAN GOA
-
 *This case reveals the problems that slaves faced in forming permanent emotional and sexual relationships when they could be separated by sale at any time.[^1] Anthonij’s attempts to get back to the farm from which he had been sold were caused by his separation from Jannetie, the slave whom he refers to as his ‘wife’, although VOC law did not recognise the right of slaves to marry.[^2] His discovery that she had taken another partner after his permanent and forced departure led to his attack on her and his subsequent attempted suicide – whether from despair at her infidelity, or from fear of punishment for his attack, is unclear.*
 
 *It is noteworthy that the court imposed a milder sentence than the death penalty recommended in the* eijsch*,[^3] presumably having some sympathy for Anthonij’s predicament. Nonetheless, he was still whipped, branded, forced to work in chains and returned to his new owner. Given his attempted suicide, it is questionable which fate he might have preferred. Of Jannetjie we know no more.*

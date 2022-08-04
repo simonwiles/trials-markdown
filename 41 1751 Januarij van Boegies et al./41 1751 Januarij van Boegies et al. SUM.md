@@ -1,5 +1,3 @@
-# JANUARIJ VAN BOEGIES ET AL.
-
 *These documents relate to two groups of slave runaways. The first deals with ten recently arrived Southeast Asian slaves, who separated into two groups. The first, of four, seem to have got away, while of the other six, four were killed by a commando, one got away and one was captured, hence this letter by the Stellenbosch landdrost. They escaped in the middle of January and it seems as if the encounter with the commando took place around 2 February.*
 
 *News of all this reached the slaves in Cape Town, because on 13 February the second group of twelve slaves and a* bandiet[^1] *fled, inspired by the news that ‘recently a group of slaves had taken flight and had already arrived safely in a free negerij’.[^2] This group did not get very far, as they were all recaptured three days later, not far from Cape Town.*

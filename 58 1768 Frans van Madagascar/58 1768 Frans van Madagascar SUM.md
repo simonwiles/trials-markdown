@@ -1,5 +1,3 @@
-# FRANS VAN MADAGASCAR
-
 *This dispute took place at Elsenburg, the large wine farm owned by Marten Melk, one of the richest burghers in the colony.[^1] Melk employed his slave Willem as a* mandoor*,[^2] a slave who was placed in charge of the other slaves and had the authority to punish them. Willem beat Frans when he found him drunk and ordered him back to work. Frans later took his revenge by killing Willem with a* kirrij *blow. Frans then ran away, but was caught several days later in the Swellendam district.*
 
 *The case is interesting for the details it gives of the slave living quarters on Melk’s farm, with separate sections for the male and female slaves.[^3] Willem, in the privileged position of* mandoor*, slept in the women’s quarters.*

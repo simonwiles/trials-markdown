@@ -1,5 +1,3 @@
-# COMPANY SLAVES
-
 *One night in 1735, several runaway Company slaves, who had been hiding for several months on Table Mountain, stole sheep from various farms and corrals in and around Cape Town. It is not clear whether they all belonged to the same group, but some were spotted by a slave shepherd and a* knecht *at one of the corrals and they were all captured by the* ratelwacht*, the night watch that guarded the town.*
 
 *Table Mountain was a well-known refuge for runaway slaves throughout the eighteenth century.[^1] This case shows some of the ways in which they tried to obtain food in the town, and also the dangers they faced from the town militia, as well as slaves and* knechten *stationed on the properties they raided.*

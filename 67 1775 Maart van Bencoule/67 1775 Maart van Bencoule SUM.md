@@ -1,5 +1,3 @@
-# MAART VAN BENCOULE
-
 *This incident of the tracking down, shooting and capturing of a group of Cape Town runaway slaves who had raided a farm in the Piketberg, is primarily of interest for what it reveals about the linguistic complexity of the Cape as late as the 1770s.[^1] Whereas in the previous case communication problems arose because of the variety of languages spoken amongst the slaves, this one illustrates how slaves were linguistically differentiated from the settlers. The runaways, who were all slaves from the East Indies, spoke Malay to one another, which the farmers and Khoi who apprehended them could not understand, although they attempted to communicate with them in Portuguese.[^2]*
 
 *The slaves tried to run* amok,[^3] *but were shot or captured before they could attack any of their pursuers. Two were killed, while Maart van Bencoule[^4] and Kuijper van Macassar were captured and questioned.[^5] However, the case against them was not forwarded to the Court of Justice and it is not known how they were punished.[^6] Also of interest is the farmers’ use of the Khoi Jan as a tracker to locate the barefooted runaways.*
